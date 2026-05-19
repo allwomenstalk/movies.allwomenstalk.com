@@ -1,0 +1,199 @@
+---
+title: "New TV Show Trailers Youve Got to Add to Your Watch List ASAP ..."
+description: "Life Sentence (premieres Midseason); Dynasty (premieres Fall 2017); Valor (premieres Fall 2017); Black Lightning (premieres Midseason); The Alienist (premieres Fall 2017); More ..."
+url: "https://movies.allwomenstalk.com/new-tv-show-trailers-youve-got-to-add-to-your-watch-list-asap/"
+category: "movies"
+last_updated: "2026-05-19"
+---
+
+# New TV Show Trailers Youve Got to Add to Your Watch List ASAP ...
+
+It's summer, which means all the networks are starting to release trailers for their new shows and shows coming back. There's nothing better than catching a glimpse of your fave show returning and having to get the DVR prepared for all the upcoming recordings. Glamour.com has composed this great list of new TV show trailers you absolutely need to add to your watch list.
+
+**The CW**
+
+## 1. Life Sentence (premieres Midseason)
+
+Pretty Little Liars queen Lucy Hale plays a 20-something woman named Stella who gets some surprising news: She's not dying. Confused? Here's the backstory: Eight years before, Stella was diagnosed with cancer and was told she'd die from it. So she lived her life to the fullest from that point forward-which, to her, meant dropping out of school, quitting her job, going skydiving, and pretending like the future wasn't a thing. But now she's cancer-free and has to go back to living a normal, stable life. That's the central story, which seems like a non-issue at first but actually creates some good drama. How does Stella find a job with zero skills? How do her relationships change? We're excited to find out.
+
+## 2. Dynasty (premieres Fall 2017)
+
+Your first look at the highly-anticipated Dynasty reboot is here! Gossip Girl and The O.C. masterminds Josh Schwartz and Stephanie Savage are the brains behind this revival, which chronicles the knock-down, drag-out feud between a wealthy socialite and her father's new (and potentially gold-digging) fiancé. Admittedly, the show plays on mean-girl tropes, but it's done with a tongue-in-cheek wink that makes it funny (as opposed to just reductive). Dynasty is in on its own campy joke, which is why it works.
+
+## 3. Valor (premieres Fall 2017)
+
+Valor is your standard military drama. The show follows a group of highly-trained soldiers (sidebar: What soldiers aren't highly-trained?) as they attempt to rescue two of their own from a hostage situation. The premise probably isn't enough to hook you-but the central character of the story, a conflicted female soldier named Nora (Christina Ochoa), certainly is.
+
+## 4. Black Lightning (premieres Midseason)
+
+Black Lightning returns after a 12-year hiatus to fight bad guys and put an end to Philadelphia's rising crime rate. This is one of the better superhero shows coming to television this fall. It has heart, dizzying action, and is grounded in a completely committed performance from Cress Williams.
+
+**TNT**
+
+## 5. The Alienist (premieres Fall 2017)
+
+An atmospheric period drama starring Dakota Fanning is just what the doctor ordered, to be honest. This one is set in 1896 New York (when the disparity between the rich and poor was seismic) and follows the hunt for a serial killer responsible for murdering male prostitutes. If that premise isn't enough to hook you, Luke Evans (a.k.a Gaston) also stars.
+
+**CBS**
+
+## 6. Salvation (premieres July 12)
+
+A team of scientists at the Pentagon tries to stop a monstrous asteroid that has the potential to wipe out the entire planet. Fans of The Day After Tomorrow, Independence Day, or other titles in the post (and pre)-apocalyptic genre should check out this drama, which is bolstered by Santiago Cabrera's jawline.
+
+## 7. Young Sheldon (premieres November 2)
+
+This Big Bang Theory prequel follows 9-year-old Sheldon (Iain Armitage) as he comes to terms with his super-sonic intelligence, which is pretty much a taboo in his religious, football-centric town. Expect lots of sassy, pint-sized one-liners. (Hey, it is Sheldon, after all.)
+
+## 8. SEAL TEAM (premieres Fall 2017)
+
+This paint-by-numbers military drama dives deep into the elite missions of the Tier One Navy Seals. The show certainly looks action-packed (and we even spot some badass lady Seals), but here's hoping it focuses on character development just as much as special effects.
+
+## 9. S.W.a.T. (premieres Fall 2017)
+
+A community falls apart after a S.W.A.T. team police officer accidentally shoots an African American teenager. If S.W.A.T. focuses on the cultural dynamic between the police and people of color (and not just clunky cop noise), it actually has some promise.
+
+## 10. Me, Myself, and I (premieres Fall 2017)
+
+Bobby Moynihan stars in this comedy that tracks three different, very traumatic stages of a man's life. It's like This Is Us, but with just one person (and a lot less crying).
+
+## 11. 9JKL (premieres Fall 2017)
+
+A man moves back in with his parents after getting a divorce, and standard sitcom hilarity ensues. Not much about 9JKL feels original, but the charming leading actor (Mark Feuerstein) might be able to salvage it.
+
+## 12. Wisdom of the Crowd (premieres Fall 2017)
+
+A mega-rich tech CEO (Jeremy Piven) quits his job and starts a crowdsourcing website that he hopes will bring his late daughter's real killer to justice. The plot feels a little convoluted (It's Law & Order meets Reddit, essentially), but it's nonetheless intriguing. Put this one on your list, crime lovers.
+
+**ABC**
+
+## 13. Splitting up Together (premieres Midseason)
+
+Ellen DeGeneres executive-produced this charming comedy about a couple (Oliver Hudson and Jenna Fischer) who decide to get divorced but still live together with their kids. This isn't a new concept (The Break-Up with Jennifer Aniston and Vince Vaughn is essentially the same story), but the trailer hints at a deeper exploration of Fischer's character-specifically, her desire to have a life outside her family and kids. That's intriguing (and important) enough of a reason to tune in.
+
+## 14. For the People (premieres Midseason)
+
+Queen Shonda Rhimes is behind your next television obsession, which feels almost like How to Get Away With Murder: Post-Grad. It follows the personal and professional lives of a group of young New York City attorneys as they fight tough cases and sexual urges. We'd expect nothing less from a Shondaland show.
+
+## 15. Alex, Inc. (premieres Midseason)
+
+Zach Braff quits his job and starts a podcast company in this quirky, offbeat comedy based on the actual StartUp podcast series. The show looks kind of blah, but Braff's wonderfully zany and impassioned performance is enough to at least watch the pilot.
+
+## 16. Still Star-Crossed (premieres May 29)
+
+Queen of Thursday nights Shonda Rhimes is behind this fantasy confection, which takes place immediately after Romeo and Juliet die. (Yes, spoiler alert: They die.) It centers on Juliet's cousin, Rosaline, who has to marry a Montague in order to keep the peace between the two families. Does this make sense? Not really, but logic isn't imperative with shows like these. All you need is a soapy plot, fun twists, and hot people to keep you hooked. Still Star-Crossed has all three-and it's a period drama. Sign us up.
+
+## 17. Ten Days in the Valley (premieres Fall 2017)
+
+Kyra Sedgwick plays an overworked television producer in L.A. whose daughter is kidnapped in the middle of the night. The trailer alone is pretty heart-pumping, so this show looks particularly promising. Fans of the Taken franchise should certainly tune in. (We'd pick Sedgwick to win in a fight against Liam Neeson any day of the week.)
+
+## 18. The Good Doctor (premieres Fall 2017)
+
+From the creator of House comes this medical drama about a young surgeon with autism and savant syndrome (Freddie Highmore) named Shaun who has the unexplainable ability to quickly and seamlessly heal his patients. (His colleagues think he's some kind of warlock, but he's just talented, people!) The last thing television needs is another hospital soap, but this show has potential if it explores Shaun's autism, which is a topic hardly discussed in entertainment.
+
+## 19. Deception (premieres Midseason)
+
+A highly-skilled magician (Cameron Black) uses his illusion cred to help out the F.B.I. with difficult cases. The show certainly gets brownie points for originality (but will lose them if it gets too wonky).
+
+## 20. The Gospel of Kevin (premieres Fall 2017)
+
+Jason Ritter plays a deadbeat who's ordered by an angel from Heaven to save the human race. Sure? (In all seriousness, Ritter is irreverent and very funny in The Gospel of Kevin trailer, but he might not be enough to save the show from its half-baked premise.)
+
+## 21. The Crossing (premieres Midseason)
+
+An American police squad comes across a group of refugees on a beach shore fleeing their war-torn country. But here's the kicker: They're from 150 years into the future, and the country they're fleeing is America (which, apparently, is in the middle of a war). Yes, we have another time-travel show on our hands. But give this one a chance: It's anchored by strong central performances and a truly mystifying plot.
+
+## 22. The Mayor (premieres Fall 2017)
+
+Hamilton's Daveed Diggs helms this very funny comedy about an aspiring rapper (Brandon Micheal Hall) who runs for local office to promote his music career...and wins. So instead of winning Grammy Awards, he now has to do government stuff he doesn't want to do. (Sound familiar?) Lea Michele also stars as a character named Valentina. Valentina! We're on board.
+
+## 23. Roseanne (premieres in 2018)
+
+ABC is hopping on the reboot train and bringing back Roseanne. The principal cast-including Michael Fishman (DJ Conner), Roseanne Barr (Roseanne Conner), John Goodman (Dan Conner), Alicia Goranson (Becky Conner), and Laurie Metcalf (Jackie Harris)-is slated to return. The network dropped a retrospective clip at its Upfront presentation, but fingers crossed some new footage comes soon.
+
+**NBC**
+
+## 24. Will & Grace (premieres Fall 2017)
+
+Eric McCormack, Debra Messing, Sean Hayes, and Megan Mullally are back for another 12 episodes of NBC's groundbreaking '90s sitcom-and based on this five-minute musical trailer, nothing has changed. Of course, the humor in the original Will & Grace is a bit dated-gay representation in media has come a long way since Will and Jack-so here's hoping things are at least slightly updated to be more inclusive. Leave Karen's martini glass the same, though: That's nonnegotiable.
+
+## 25. Law & Order True Crime: the Menendez Murders (premieres Fall 2017)
+
+NBC takes a cue from American Crime Story and Making a Murderer with a new iteration of the Law & Order franchise focused solely on true crime. The first season will center on the highly publicized trial of Lyle and Erik Menendez, two wealthy brothers from Beverly Hills who killed their parents with a shotgun. The always-amazing Edie Falco will play Erik's infamous defense attorney, Leslie Abramson, who alleged the brothers committed the crime because of the psychological and sexual abuse they endured from their parents. If this show is anything like The People v. O.J. Simpson, consider us hooked.
+
+## 26. The Brave (premieres Fall 2017)
+
+This high-intensity military drama focuses on a group of badass Special Ops that executes the most dangerous government assignments in the world-like saving someone on their team after she's taken hostage by radical terrorists. The Brave boasts a diverse cast and heart-pounding drama to boot, so it's almost your duty as an American to tune in.
+
+**Fox**
+
+## 27. The Gifted (premieres Fall 2017)
+
+X-Men fans, get excited: A series based on the beloved Marvel franchise is coming to Fox this fall. It's called The Gifted, and it centers on what happens to a suburban couple when they realize their children have mutant powers (like, as this trailer points out, the ability to knock popcorn out of a vending machine). A tyrannical government forces the family to run away and seek refuge with an underground network of similar mutants. Expect dazzling special effects, a classic good vs. evil fight, and-most refreshingly-a very badass female superhero (played by Natalie Alyn Lind).
+
+## 28. The Resident (premieres Midseason)
+
+Matt Czuchry (a.k.a. Logan Huntzberger) stars in this Grey's Anatomy–adjacent drama about a young doctor who becomes privy to the low-key corruption happening in his hospital (like the doctor who accidentally killed a patient in the operating room and covered it up). The trailer comes off melodramatic and campy (at one point, Czuchry's character exclaims, "Be a doctor or go be something else" and it feels very "Give my daughter the shot!"), but hot people medical shows are always a fun watch. At the very least, tune in to imagine how Rory Gilmore would handle these situations.
+
+## 29. L.a. to Vegas (premieres Midseason)
+
+Dylan McDermott leads the most incompetent (and reckless) flight crew of all time in this screwball workplace comedy from executive producer Will Ferrell. The show will totally get some laughs, but we wish it had more female characters.
+
+## 30. Ghosted (premieres Fall 2017)
+
+This Ghostbusters-like buddy comedy is anchored by strong (and very funny) performances from Adam Scott and Craig Robinson. Sure, we'll watch them catch monsters for 30 minutes every week.
+
+## 31. The Orville (premieres Fall 2017)
+
+Seth MacFarlane helms this Family Guy-meets-Star Trek series about a supremely unqualified ship captain who finds himself running a very important intergalactic operation. Expects lots of crude, space-inspired humor, a.k.a: Uranus jokes (which, if that's your thing, enjoy).
+
+**Netflix**
+
+## 32. Gypsy (premieres June 30)
+
+Naomi Watts stars in this 10-part psychological thriller series about a therapist who begins dangerous and inappropriate relationships with her patients. The trailer depicts Watts calmly-almost robotically-reciting the physician's Hippocratic Oath, which is clearly meant as foreshadowing for the not-so-ethical activities her character engages in throughout the show. There's a lot to be excited about with Gypsy: A flawed, complex female character is at the center of its narrative, and several of the episodes were helmed by Sam Taylor-Johnson, who directed the first Fifty Shades of Grey flick. In other words, go ahead and cancel your plans for that weekend.
+
+## 33. Glow (premieres June 23)
+
+Alison Brie stars in this hilarious new comedy about a struggling actress who attempts one last shot at fame by joining a women's wrestling league. But Glow isn't a sports show: It's a feminist commentary expressed via glitter and spandex. The show was created by women and boasts a nearly all-female cast, so you know it's in good hands.
+
+**Freeform**
+
+## 34. The Bold Type (premieres July 11)
+
+Three aspiring journalists navigate careers, love, and friendship while climbing the ranks at a popular women's magazine. This trope is done to death (cough, The Devil Wears Prada, cough), but the tight bond between the three female leads puts The Bold Type on our radar. In the past, movies and TV shows about fashion magazines typically depicted the women as catty rivals, but the young women on The Bold Type seem to be each other's allies more than anything. Let's hope it stays that way-the last thing we need is another mean, two-dimensional "magazine gal" who doesn't eat. (I work at a magazine. Those people don't exist.)
+
+## 35. Siren (coming Summer 2018)
+
+We're finally getting a TV show about mermaids. This one centers on the coastal town of Bristol Cove, which is rumored to have mermaids lurking in its waters. This theory checks (or, rather, swims) out when a group of fisherman literally catch a mermaid one night. What transpires, based on the trailer, is a battle between the mermaid (played by Game of Thrones's Eline Powell) and townspeople who think fish-people are dangerous. There's an absolute cheese factor to this show, but if you scrape that away, it actually looks pretty intriguing. This trailer alone proves Freeform is trying to put a new spin on mermaids: They're not docile, aquatic deities waiting for Prince Eric but strong women who aren't afraid to fight back. We're behind that message.
+
+## 36. Alone Together (coming Early 2018)
+
+Fat-shame-y undertones aside, Alone Together-which explores the platonic best friendship between a guy (Benji Aflalo) and girl (Esther Povitsky) in Los Angeles-looks promising. The single-camera show, which is produced by Andy Samberg's The Lonely Island, is ripe with dry humor, sarcasm, and witty banter, a nice respite from the occasionally campy discourse on [Pretty Little Liars.](https://www.glamour.com/story/pretty-little-liars-season-7-episode-11-recap)
+
+## 37. Marvel's Cloak & Dagger (coming Early 2018)
+
+Freeform is attempting to draw in that [Marvel](https://www.glamour.com/about/marvel) audience with Cloak & Dagger. Based on the popular comic, Cloak & Dagger explores the emerging friendship between two teenagers, Tandy Bowen (Olivia Holt) and Tyrone Johnson (Aubrey Joseph), who just discovered they have conflicting superpowers. The trailer for this one is a little hard to follow (or maybe I'm just superhero-intolerant), but it has enough splashy effects and supernatural intrigue to keep fans of the genre hooked. Lovers of The Flash should put Cloak & Dagger on their list.
+
+We'll be updating this post with new trailers as they come out, so stay tuned.
+
+## Related Posts
+
+- [A Day in the Life of: Working in the Film Industry...](https://bilbr.com/working-in-the-film-industry/)
+- [classic movies musicals](https://movies.allwomenstalk.com/classic-film-musicals-you-must-watch/)
+- [Christmas Movies the Whole Family  Will Enjoy  ...](https://movies.allwomenstalk.com/christmas-movies-for-the-whole-family/)
+- [The Ultimate List of Summer Blockbusters Youve Got...](https://bilbr.com/the-ultimate-list-of-summer-blockbusters-youve-got-to-see/)
+- [10 Movies That Turn 10 Years Old in 2018 ...](https://movies.allwomenstalk.com/movies-that-are-years-old-in/)
+- [The Most Romantic Moviesto Catch on Netflix This S...](https://bilbr.com/the-most-romantic-movies-to-catch-on-netflix-this-summer/)
+- [Top 7 Movies That Woman Must See at Least Once ...](https://bilbr.com/movies-every-woman-must-see/)
+- [Best Romantic Movies for Valentines Day Part 1 of ...](https://movies.allwomenstalk.com/best-romantic-movies-for-valentines-day/)
+- [15 Must See Christmas Movies This Season ...](https://movies.allwomenstalk.com/what-to-watch-in-a-christmas-movie-marathon/)
+- [12 Feminist Movies Every Girl Should See at Least ...](https://movies.allwomenstalk.com/feminist-movies/)
+- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
+- [10 Fall TV Shows I Cant Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
+
+## Site Information
+
+- [Main page](https://allwomenstalk.com)
+- [Contact us](https://allwomenstalk.com/contact.html)
+- [HTML article](https://movies.allwomenstalk.com/new-tv-show-trailers-youve-got-to-add-to-your-watch-list-asap/)
+
