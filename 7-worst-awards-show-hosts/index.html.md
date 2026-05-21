@@ -3,7 +3,7 @@ title: "7 Worst Awards-Show Hosts ..."
 description: "James Franco – 83rd Annual Academy Awards; David Letterman – 67th Annual Academy Awards; Donald Duck – 30th Academy Awards; Chelsea Handler, MTV Video Music Awards, 2010; Angela Lansbury, Emmy Awards 1993; More ..."
 url: "https://movies.allwomenstalk.com/7-worst-awards-show-hosts/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Worst Awards\-Show Hosts ...
@@ -44,16 +44,16 @@ Top image source: _chiqmontes.com_
 
 ## Related Posts
 
-- [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-robin-hood-premiere/)
-- [33 Photos of the Met Costume Institute Gala ...](https://celebs.allwomenstalk.com/met-costume-gala/)
-- [36 Photos of the GLEE Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
-- [jane march clash of the titans](https://celebs.allwomenstalk.com/clash-of-the-titans-premieres-in-london/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
-- [blanca from sopranos](https://celebs.allwomenstalk.com/the-losers-premiere/)
-- [Pick the Best and Worst Dressed at the Clash of th...](https://celebs.allwomenstalk.com/clash-of-the-titans-premiere/)
 - [Pick Best Dressed at the Kick-Ass Premiere in L.a ...](https://celebs.allwomenstalk.com/kick-ass-premiere/)
-- [45th grammys](https://celebs.allwomenstalk.com/45th-annual-academy-of-country-music-awards/)
+- [Pick the Best and Worst Dressed at the Clash of th...](https://celebs.allwomenstalk.com/clash-of-the-titans-premiere/)
 - [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-on-tour-premiere/)
+- [cannes film festival 2010](https://celebs.allwomenstalk.com/cannes-film-festival-robin-hood-premiere/)
+- [jane march clash of the titans](https://celebs.allwomenstalk.com/clash-of-the-titans-premieres-in-london/)
+- [45th grammys](https://celebs.allwomenstalk.com/45th-annual-academy-of-country-music-awards/)
+- [blanca from sopranos](https://celebs.allwomenstalk.com/the-losers-premiere/)
+- [36 Photos of the GLEE Spring Premiere Soiree ...](https://celebs.allwomenstalk.com/glee-premiere/)
+- [33 Photos of the Met Costume Institute Gala ...](https://celebs.allwomenstalk.com/met-costume-gala/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

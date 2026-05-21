@@ -3,7 +3,7 @@ title: "7 Must-Have Flicks for Your Collection ..."
 description: "The Godfather; Gone with the Wind; The African Queen; Mr. Smith Goes to Washington; Some like It Hot; More ..."
 url: "https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Must\-Have Flicks for Your Collection ...
@@ -65,16 +65,16 @@ Top image source: [doctormacro.com](https://www.doctormacro.com/Images/Leigh,%20
 
 ## Related Posts
 
+- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
+- [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
+- [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
 - [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
 - [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
+- [most pirated movie of all time](https://movies.allwomenstalk.com/most-pirated-movies/)
+- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
+- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
 - [top romantic comedies](https://movies.allwomenstalk.com/top-romantic-comedies/)
 - [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
-- [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
-- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
-- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
-- [most pirated movie of all time](https://movies.allwomenstalk.com/most-pirated-movies/)
-- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
-- [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
 - [7 Books for Your Childs Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 

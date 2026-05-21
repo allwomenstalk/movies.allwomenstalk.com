@@ -3,7 +3,7 @@ title: "21 Classics to Watch on Netflix with Your Partner ..."
 description: "Dirty Dancing; Jerry Maguire; Pretty in Pink; Amelie; Chasing Amy; More ..."
 url: "https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 21 Classics to Watch on Netflix with Your Partner ...
@@ -102,16 +102,16 @@ An 80s classic that everyone should have seen!
 
 ## Related Posts
 
+- [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
+- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
+- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
+- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
 - [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
 - [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
+- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
 - [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
 - [its true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
-- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
-- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
-- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
-- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
-- [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
-- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
 - [8 Comedies to Watch with Your Boyfriend ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
 - [7 New Romantic Movies You Have to Watch ...](https://allwomenstalk.com/7-new-romantic-movies-you-have-to-watch/)
 

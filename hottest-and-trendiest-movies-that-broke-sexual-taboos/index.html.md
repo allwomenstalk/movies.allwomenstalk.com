@@ -3,7 +3,7 @@ title: "7 Hottest and Trendiest Movies That Broke Sexual Taboos ..."
 description: "Ecstasy (1933); Sweetback's Baadasssss Song (1971); The Devils (1971); Don't Look Now (1973); Last Tango in Paris; More ..."
 url: "https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Hottest and Trendiest Movies That Broke Sexual Taboos ...
@@ -49,15 +49,15 @@ Have you seen any of these? What other movies that broke sexual taboos do you kn
 
 ## Related Posts
 
-- [last line of gone with the wind movie](https://movies.allwomenstalk.com/the-end-best-last-lines-in-the-movies/)
 - [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
 - [princesses in movies](https://movies.allwomenstalk.com/grab-a-bucket-of-popcorn-and-your-bucketlist-9-princess-movies-to-see-before-you-die/)
-- [jim carrey martial arts](https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/)
-- [films for sleepovers](https://movies.allwomenstalk.com/so-bad-that-theyre-good-awful-movies-to-enjoy-at-your-next-sleepover/)
 - [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
-- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
+- [films for sleepovers](https://movies.allwomenstalk.com/so-bad-that-theyre-good-awful-movies-to-enjoy-at-your-next-sleepover/)
 - [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
+- [last line of gone with the wind movie](https://movies.allwomenstalk.com/the-end-best-last-lines-in-the-movies/)
+- [jim carrey martial arts](https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/)
 - [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
+- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
 - [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)

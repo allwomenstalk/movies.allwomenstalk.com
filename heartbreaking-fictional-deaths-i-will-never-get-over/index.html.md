@@ -3,7 +3,7 @@ title: "9 Heartbreaking Fictional Deaths I Will Never Get over ..."
 description: "Ellie from up; Marley from Marley and Me; Bambi’s Mum from Bambi; Shmuel and Bruno from the Boy in the Striped Pajamas; Mufasa from the Lion King; More ..."
 url: "https://movies.allwomenstalk.com/heartbreaking-fictional-deaths-i-will-never-get-over/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Heartbreaking Fictional Deaths I Will Never Get over ...
@@ -51,14 +51,14 @@ There are far too many heartbreaking fictional deaths to name, but these are jus
 ## Related Posts
 
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
-- [period piece actors](https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/)
-- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
-- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
-- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
-- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
 - [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
+- [period piece actors](https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/)
+- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
+- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
 - [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
+- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
+- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
+- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
 - [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
 - [7 Tragic Famous Love Stories ...](https://love.allwomenstalk.com/7-tragic-famous-love-stories/)
 - [8 Moments of My Life Ill Never Get Back ...](https://allwomenstalk.com/8-moments-of-my-life-ill-never-get-back/)

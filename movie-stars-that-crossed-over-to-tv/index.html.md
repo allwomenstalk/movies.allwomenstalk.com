@@ -3,7 +3,7 @@ title: "7 Movie Stars That Crossed over to TV ..."
 description: "Maggie Smith; Kiefer Sutherland; Kevin Bacon; Alec Baldwin; Zooey Deschanel; More ..."
 url: "https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Movie Stars That Crossed over to TV ...
@@ -42,16 +42,16 @@ There are so many actors that try to make the switch from movies to TV! Some of 
 
 ## Related Posts
 
+- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
 - [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
+- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
 - [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
 - [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
-- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
-- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 - [7 Beloved TV Couples ...](https://allwomenstalk.com/7-beloved-tv-couples/)
 

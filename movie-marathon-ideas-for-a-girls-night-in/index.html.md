@@ -3,7 +3,7 @@ title: "9 Movie Marathon Ideas for a Girls Night in ..."
 description: "Harry Potter; Twilight; Julia Roberts; Baz Luhrman; Literature; More ..."
 url: "https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Movie Marathon Ideas for a Girls Night in ...
@@ -73,13 +73,13 @@ Why not add a theme to your movie marathon? Nothing too rigid, just certain food
 
 ## Related Posts
 
-- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
 - [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
-- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
 - [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
+- [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
+- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
 - [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
 - [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
-- [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
 - [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
 - [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
 - [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)

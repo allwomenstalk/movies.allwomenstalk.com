@@ -3,7 +3,7 @@ title: "7 Iconic Movies Roles That Were Almost Played by Other Actors ..."
 description: "Will Smith as Neo; Mel Gibson in Gladiator; Jack Nicholson as the Godfather; Christopher Walken as Han Solo; John Travolta as Forrest Gump; More ..."
 url: "https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Iconic Movies Roles That Were Almost Played by Other Actors ...
@@ -44,15 +44,15 @@ Top Photo Credit: [tymorg85](https://www.flickr.com/photos/33194829@N08/45761171
 
 ## Related Posts
 
-- [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
-- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
-- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
 - [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
-- [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
+- [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
+- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)

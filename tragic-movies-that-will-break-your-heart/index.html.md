@@ -3,7 +3,7 @@ title: "7 Tragic Movies That Will Break Your Heart ..."
 description: "Seven Pounds; Titanic; The Notebook; Armageddon; The Boy in the Striped Pyjamas; More ..."
 url: "https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Tragic Movies That Will Break Your Heart ...
@@ -42,16 +42,16 @@ So those are my tragic movie recommendations! Sometimes it is nice to just sit d
 
 ## Related Posts
 
+- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [best of tyler perry movies](https://movies.allwomenstalk.com/tyler-perry-movies-that-teach-us-valuable-lessons/)
 - [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
 - [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
-- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
-- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [best of tyler perry movies](https://movies.allwomenstalk.com/tyler-perry-movies-that-teach-us-valuable-lessons/)
-- [fairy tale movies to watch](https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/)
 - [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
-- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [fairy tale movies to watch](https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/)
+- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
 - [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

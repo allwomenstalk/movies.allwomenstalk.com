@@ -3,7 +3,7 @@ title: "7 Child Stars Who Are Still Awesome Today ..."
 description: "Abigail Breslin; Hilary Duff; Melissa Joan Hart; Neil Patrick Harris; Joseph Gordon Levitt; More ..."
 url: "https://movies.allwomenstalk.com/child-stars-who-are-still-awesome-today/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Child Stars Who Are Still Awesome Today ...
@@ -57,15 +57,15 @@ Who’s your favorite child star? I think it’s so interesting to see child sta
 ## Related Posts
 
 - [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
-- [celebrities unicef](https://celebs.allwomenstalk.com/celebrities-share-makeup-free-selfies-for-new-unicef-campaign/)
-- [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
 - [9 Celebrities Open up about Filming Those Awkward ...](https://movies.allwomenstalk.com/celebrities-open-up-about-filming-those-awkward-sex-scenes/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
+- [celebrities unicef](https://celebs.allwomenstalk.com/celebrities-share-makeup-free-selfies-for-new-unicef-campaign/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
 - [tbt posts](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-3/)
 - [riche le stylo eye shadow timeless blue spark](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
+- [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
 - [5 Latest News about Our Favorite Young Stars ...](https://allwomenstalk.com/5-latest-news-about-our-favorite-young-stars/)
 - [8 Child Stars Who Achieved Adult Success ...](https://allwomenstalk.com/8-child-stars-who-achieved-adult-success/)
 

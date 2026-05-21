@@ -3,7 +3,7 @@ title: "8 Classic Romantic Comedies ..."
 description: "Pretty Woman; It Happened One Night; Annie Hall; Sleepless in Seattle; Roman Holiday; More ..."
 url: "https://movies.allwomenstalk.com/classic-romantic-comedies/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Classic Romantic Comedies ...
@@ -70,16 +70,16 @@ I love each and every one of these movies, and have watched each of them several
 
 ## Related Posts
 
-- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
-- [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
-- [subtitled movies](https://movies.allwomenstalk.com/great-foreign-films-with-subtitles/)
-- [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
-- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
-- [stellar movie](https://movies.allwomenstalk.com/stellar-movie-franchises/)
-- [liner movie](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
-- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
 - [top romantic comedies](https://movies.allwomenstalk.com/top-romantic-comedies/)
+- [stellar movie](https://movies.allwomenstalk.com/stellar-movie-franchises/)
+- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
 - [9 Irrespressible Movies Hollywood Should Remake .....](https://movies.allwomenstalk.com/irrespressible-movies-hollywood-should-remake/)
+- [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
+- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
+- [subtitled movies](https://movies.allwomenstalk.com/great-foreign-films-with-subtitles/)
+- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
+- [liner movie](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
+- [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

@@ -3,7 +3,7 @@ title: "7 Worst Disney Sequels ..."
 description: "Lady and the Tramp II: Scamp's Adventure; Aladdin: the Return of Jafar; The Fox and the Hound 2; Beauty and the Beast: the Enchanted Christmas; Peter Pan 2: Return to Neverland; More ..."
 url: "https://movies.allwomenstalk.com/worst-disney-sequels/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Worst Disney Sequels ...
@@ -42,16 +42,16 @@ Sad to say, I own most of these horrible sequels because, like say, I was a trie
 
 ## Related Posts
 
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
-- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
-- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
-- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
-- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
 - [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
+- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
 - [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
+- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
+- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
 - [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
+- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

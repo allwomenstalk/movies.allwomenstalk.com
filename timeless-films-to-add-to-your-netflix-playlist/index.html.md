@@ -3,7 +3,7 @@ title: "7 Timeless Films to Add to Your Netflix Playlist ..."
 description: "Sabrina; The Last Time I Saw Paris; Ghostbusters; His Girl Friday; Lean on Me; More ..."
 url: "https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Timeless Films to Add to Your Netflix Playlist ...
@@ -42,14 +42,14 @@ As a fan of classic and old time films, there's nothing I enjoy more than spendi
 
 ## Related Posts
 
-- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
-- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
-- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
-- [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
-- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
-- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
-- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
 - [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
+- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
+- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
+- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
+- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
+- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
+- [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
 - [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)

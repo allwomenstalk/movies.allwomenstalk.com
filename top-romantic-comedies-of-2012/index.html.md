@@ -3,7 +3,7 @@ title: "Top 8 Romantic Comedies of 2012 ..."
 description: "The Bop Decameron; Ted; Five Year Engagement; How to Be Single; Playing the Field; More ..."
 url: "https://movies.allwomenstalk.com/top-romantic-comedies-of-2012/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Top 8 Romantic Comedies of 2012 ...
@@ -48,16 +48,16 @@ Top mage source: [atessanicole.files.wordpress.com](https://atessanicole.files.w
 
 ## Related Posts
 
-- [Ten Worst Horror Movies of All Times ...](https://movies.allwomenstalk.com/ten-worst-horror-movies-of-all-times/)
-- [underdog story movies](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
 - [9 Great Disaster Movies ...](https://movies.allwomenstalk.com/great-disaster-movies/)
-- [film word](https://movies.allwomenstalk.com/favourite-four-word-film-reviews/)
-- [glbt movies](https://movies.allwomenstalk.com/inspiring-lgbt-films/)
 - [7 Movies That Make a Joke of Science ...](https://movies.allwomenstalk.com/7-movies-that-make-a-joke-of-science/)
+- [film word](https://movies.allwomenstalk.com/favourite-four-word-film-reviews/)
 - [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
+- [glbt movies](https://movies.allwomenstalk.com/inspiring-lgbt-films/)
 - [8 Reasons to Go to the Movies This Year ...](https://7fun.net/8-reasons-to-go-to-the-movies-this-year/)
-- [classic chick flicks](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [nect flicks](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
+- [Ten Worst Horror Movies of All Times ...](https://movies.allwomenstalk.com/ten-worst-horror-movies-of-all-times/)
+- [classic chick flicks](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
+- [underdog story movies](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 - [8 Most Romantic Love Scenes ...](https://movies.allwomenstalk.com/most-romantic-love-scenes/)
 

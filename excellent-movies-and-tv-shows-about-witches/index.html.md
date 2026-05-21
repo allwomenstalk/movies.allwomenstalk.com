@@ -3,7 +3,7 @@ title: "7 Excellent Movies and TV Shows about Witches ..."
 description: "Charmed; Bewitched; Practical Magic; The Craft; Witches of East End; More ..."
 url: "https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Excellent Movies and TV Shows about Witches ...
@@ -49,16 +49,16 @@ Whether it is a television show or movie, this collection of options is fantasti
 
 ## Related Posts
 
-- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
-- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
-- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
-- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
 - [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
-- [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
-- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
-- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
 - [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
+- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
+- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
+- [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
+- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
+- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
+- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
+- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

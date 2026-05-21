@@ -3,7 +3,7 @@ title: "9 of the Hottest Men on TV Right Now ..."
 description: "Ian Somerhalder from the Vampire Diaries; T0m Mison from Sleepy Hollow; Benedict Cumberbatch from Sherlock; Simon Baker from the Mentalist; Matt Bomer from White Collar; More ..."
 url: "https://movies.allwomenstalk.com/of-the-hottest-men-on-tv-right-now/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 of the Hottest Men on TV Right Now ...
@@ -71,15 +71,15 @@ All of these men are incredibly good looking and have the acting talent on top o
 ## Related Posts
 
 - [role model celebrity](https://celebs.allwomenstalk.com/awesome-celebrity-moms-that-are-great-role-models/)
+- [laguna beach food](https://celebs.allwomenstalk.com/laguna-beach-celebrities-and-where-they-are-now/)
+- [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
+- [ginger denial midnight](https://celebs.allwomenstalk.com/of-the-most-amazing-redhead-celebrities/)
+- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
+- [florence welch haircut](https://hair.allwomenstalk.com/of-the-best-bangs-in-hollywood/)
 - [nicole richies biological parents](https://celebs.allwomenstalk.com/celebrities-who-were-adopted-that-you-probably-didnt-know-of/)
 - [9 Obnoxious Celebrities Who Really Need to Go Back...](https://celebs.allwomenstalk.com/obnoxious-celebrities-who-really-need-to-go-back-to-charm-school/)
-- [ginger denial midnight](https://celebs.allwomenstalk.com/of-the-most-amazing-redhead-celebrities/)
-- [weird looking actresses](https://celebs.allwomenstalk.com/adorkable-celebrities-you-cant-help-but-love/)
-- [laguna beach food](https://celebs.allwomenstalk.com/laguna-beach-celebrities-and-where-they-are-now/)
-- [stylish celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-under-20-who-have-style-beyond-their-years/)
-- [black haired female actresses](https://celebs.allwomenstalk.com/funniest-female-actresses-in-hollywood/)
-- [florence welch haircut](https://hair.allwomenstalk.com/of-the-best-bangs-in-hollywood/)
 - [celebrity stunt meaning](https://celebs.allwomenstalk.com/worst-celebrity-publicity-stunts-we-have-ever-seen/)
+- [weird looking actresses](https://celebs.allwomenstalk.com/adorkable-celebrities-you-cant-help-but-love/)
 - [The Top 10 Leading Men of All Time ...](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 

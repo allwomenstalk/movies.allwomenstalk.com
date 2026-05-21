@@ -3,7 +3,7 @@ title: "7 of the Top Bafta Nominees for 2015 ..."
 description: "The Grand Budapest Hotel; The Theory of Everything; Birdman; The Imitation Game; Boyhood; More ..."
 url: "https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 of the Top Bafta Nominees for 2015 ...
@@ -43,15 +43,15 @@ All the winners will be announced at the Bafta Film Awards ceremony on February 
 ## Related Posts
 
 - [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
-- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
-- [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
-- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
 - [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
 - [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
-- [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
-- [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
-- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
 - [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
+- [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
+- [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
+- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
+- [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
 - [7 Best Shows on TV Right Now ...](https://movies.allwomenstalk.com/7-best-shows-on-tv-right-now/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 

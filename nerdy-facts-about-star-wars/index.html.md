@@ -3,7 +3,7 @@ title: "7 Nerdy Facts about Star Wars ..."
 description: "Yoda-the Monkey?; The Alternate Ending; Qui-Gon is Silky Smooth; Ewok Who?; Surprising Cameos; More ..."
 url: "https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Nerdy Facts about Star Wars ...
@@ -42,16 +42,16 @@ If you love Star Wars as much as I do, you'll be happy to learn these facts. You
 
 ## Related Posts
 
-- [jrr tolkien interesting facts](https://books.allwomenstalk.com/interesting-facts-about-j-r-r-tolkien/)
 - [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
+- [myths about vikings](https://lifestyle.allwomenstalk.com/myths-about-the-vikings-debunked/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
+- [jrr tolkien interesting facts](https://books.allwomenstalk.com/interesting-facts-about-j-r-r-tolkien/)
+- [strange facts about dolphins](https://lifestyle.allwomenstalk.com/facts-about-dolphins-you-probably-didnt-know/)
+- [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
+- [frozen 3d movie](https://movies.allwomenstalk.com/little-known-facts-about-disneys-frozen/)
 - [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
 - [food industry secrets](https://food.allwomenstalk.com/shocking-secrets-of-the-fast-food-industry/)
-- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
-- [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
-- [myths about vikings](https://lifestyle.allwomenstalk.com/myths-about-the-vikings-debunked/)
-- [frozen 3d movie](https://movies.allwomenstalk.com/little-known-facts-about-disneys-frozen/)
-- [strange facts about dolphins](https://lifestyle.allwomenstalk.com/facts-about-dolphins-you-probably-didnt-know/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 - [5 Cool Paranormal Facts ...](https://twilight.allwomenstalk.com/5-cool-paranormal-facts/)
 

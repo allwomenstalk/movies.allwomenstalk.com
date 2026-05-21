@@ -3,7 +3,7 @@ title: "7 Fun Facts about Disneys the Little Mermaid You Didnt Know ..."
 description: "Alyssa Milano; Ursula and Triton; Carlotta and Cinderella; Divine; Flotsam and Jetsam; More ..."
 url: "https://movies.allwomenstalk.com/fun-facts-about-disneys-the-little-mermaid-you-didnt-know/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Fun Facts about Disneys the Little Mermaid You Didnt Know ...
@@ -57,12 +57,12 @@ There are so many fun facts about The Little Mermaid that my mind is just swimmi
 ## Related Posts
 
 - [fun facts about lupus](https://health.allwomenstalk.com/facts-about-lupus-that-you-probably-didnt-know/)
-- [fun fact about corn syrup](https://health.allwomenstalk.com/facts-about-high-fructose-corn-syrup-that-you-need-to-know/)
-- [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
-- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
-- [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
 - [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
+- [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
 - [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
+- [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
+- [fun fact about corn syrup](https://health.allwomenstalk.com/facts-about-high-fructose-corn-syrup-that-you-need-to-know/)
+- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
 - [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
 - [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
 - [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)

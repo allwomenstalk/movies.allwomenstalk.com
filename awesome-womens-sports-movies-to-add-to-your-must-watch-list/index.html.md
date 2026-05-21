@@ -3,7 +3,7 @@ title: "7 Awesome Womens Sports Movies to Add to Your Must-Watch List ..."
 description: "Ladybugs; Bend It like Beckham; A League of Their Own; Girlfight; Blue Crush; More ..."
 url: "https://movies.allwomenstalk.com/awesome-womens-sports-movies-to-add-to-your-must-watch-list/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Awesome Womens Sports Movies to Add to Your Must\-Watch List ...
@@ -56,16 +56,16 @@ I hope you'll find this a good representation of movies that celebrate women in 
 
 ## Related Posts
 
-- [7 Kick-Ass Celebrities Who Support Womens Rights ....](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
+- [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
+- [dumblonde smart hair](https://celebs.allwomenstalk.com/women-who-prove-that-there-is-no-such-thing-as-a-dumb-blonde/)
 - [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
 - [disney princess live action movie](https://celebs.allwomenstalk.com/actresses-who-should-play-disney-princesses-in-live-action-movies/)
-- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
-- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
-- [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
-- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
-- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
-- [dumblonde smart hair](https://celebs.allwomenstalk.com/women-who-prove-that-there-is-no-such-thing-as-a-dumb-blonde/)
+- [7 Kick-Ass Celebrities Who Support Womens Rights ....](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
 - [most loved disney princess](https://movies.allwomenstalk.com/of-the-best-disney-princesses-that-we-absolutely-adore/)
+- [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
+- [tvwomen r34](https://movies.allwomenstalk.com/funniest-tv-women-that-you-just-have-to-watch/)
+- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
+- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [9 Super Funny Sports Movies ...](https://movies.allwomenstalk.com/super-funny-sports-movies/)
 

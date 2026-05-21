@@ -3,7 +3,7 @@ title: "7 Actors Who Are Overrated ..."
 description: "Ben Stiller; Tom Cruise; Matthew Mcconaughey; The Rock; Keanu Reeves; More ..."
 url: "https://movies.allwomenstalk.com/7-actors-who-are-overrated/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Actors Who Are Overrated ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Cineando](https://www.flickr.com/photos/cineando/3728564593/)
 
 ## Related Posts
 
-- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
-- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
-- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 - [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
-- [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
+- [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
+- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

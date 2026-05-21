@@ -3,7 +3,7 @@ title: "9 Movies That Became a TV Series ..."
 description: "Clueless; Buffy the Vampire Slayer; Honey I Shrunk the Kids; Fargo; The Terminator/the Sarah Connor Chronicles; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-became-a-tv-series/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Movies That Became a TV Series ...
@@ -50,16 +50,16 @@ So ladies, what are your favorite movies that became TV series and which do you 
 
 ## Related Posts
 
-- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
-- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
-- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
 - [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
+- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
+- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 

@@ -3,7 +3,7 @@ title: "10 Awesome Brad Pitt Movies ..."
 description: "Mr. & Mrs. Smith; Fight Club; Ocean's Movies; Se7en; Meet Joe Black; More ..."
 url: "https://movies.allwomenstalk.com/awesome-brad-pitt-movies/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 Awesome Brad Pitt Movies ...
@@ -56,15 +56,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21363707)
 
 ## Related Posts
 
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
-- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
-- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
 - [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
-- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
+- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
+- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
 - [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
-- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
 - [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)

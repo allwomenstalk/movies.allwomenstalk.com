@@ -3,7 +3,7 @@ title: "Best Foot Forward: 7 Iconic Shoes in the Movies ..."
 description: "Ruby Slippers – the Wizard of Oz (1939); Glass Slipper – Cinderella (1950); Breakfast at Tiffany’s (1960); Barbarella (1968); Pretty Woman (1990); More ..."
 url: "https://movies.allwomenstalk.com/best-foot-forward-iconic-shoes-in-the-movies/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Best Foot Forward: 7 Iconic Shoes in the Movies ...
@@ -55,16 +55,16 @@ Over to you now my fashionistas! Which iconic shoes in the movies left an impres
 
 ## Related Posts
 
-- [oxfords with dresses](https://shoes.allwomenstalk.com/what-would-you-wear-these-magnificent-pairs-of-oxfords-with/)
-- [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
-- [womens turquoise sandals](https://shoes.allwomenstalk.com/of-the-best-looking-turquoise-shoes-in-the-world/)
-- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
-- [types of heels](https://shoes.allwomenstalk.com/walk-the-walk-types-of-heels-every-woman-needs-to-own/)
 - [yellow wedding shoes for bride](https://shoes.allwomenstalk.com/pairs-of-yellow-shoes-that-will-make-you-smile/)
-- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
+- [types of heels](https://shoes.allwomenstalk.com/walk-the-walk-types-of-heels-every-woman-needs-to-own/)
 - [green and purple heels](https://shoes.allwomenstalk.com/would-you-wear-purple-heels-choices-that-will-rock-your-world/)
-- [shoes every woman needs](https://shoes.allwomenstalk.com/stylish-shoes-every-woman-needs-for-spring/)
+- [womens turquoise sandals](https://shoes.allwomenstalk.com/of-the-best-looking-turquoise-shoes-in-the-world/)
+- [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
 - [stripe heel](https://fashion.allwomenstalk.com/jazz-up-your-wardrobe-with-these-pairs-of-striped-high-heels/)
+- [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
+- [oxfords with dresses](https://shoes.allwomenstalk.com/what-would-you-wear-these-magnificent-pairs-of-oxfords-with/)
+- [shoes every woman needs](https://shoes.allwomenstalk.com/stylish-shoes-every-woman-needs-for-spring/)
+- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Fab Shoes with Fringe ...](https://shoes.allwomenstalk.com/fab-shoes-with-fringe/)
 

@@ -3,7 +3,7 @@ title: "9 Tim Burton Movies to Get You in the Halloween Spirit ..."
 description: "The Nightmare before Christmas; Alice in Wonderland; Edward Scissorhands; Corpse Bride; Batman Series; More ..."
 url: "https://movies.allwomenstalk.com/tim-burton-movies-to-get-you-in-the-halloween-spirit/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Tim Burton Movies to Get You in the Halloween Spirit ...
@@ -50,16 +50,16 @@ Tim Burton movies often have the same eerie air around them that is very distinc
 
 ## Related Posts
 
-- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
-- [jatinga bird mystery solved](https://travel.allwomenstalk.com/really-scary-places-to-visit-on-halloween/)
-- [halloween songs for cover bands](https://music.allwomenstalk.com/best-bands-for-halloween-that-youd-love-to-get-ready-to/)
-- [best horror tv shows to add to your creepy collect...](https://movies.allwomenstalk.com/spooky-television-shows-to-get-you-ready-for-halloween/)
-- [pin the hat on the witch game](https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/)
-- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
-- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
-- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
 - [nerd day outfit ideas](https://lifestyle.allwomenstalk.com/cute-and-easy-last-minute-halloween-costume-ideas/)
+- [best horror tv shows to add to your creepy collect...](https://movies.allwomenstalk.com/spooky-television-shows-to-get-you-ready-for-halloween/)
 - [halloween house diy](https://diy.allwomenstalk.com/adorable-and-super-easy-diy-halloween-decorations/)
+- [cute girl halloween costumes](https://fashion.allwomenstalk.com/halloween-looks-that-wed-love-to-wear-year-round/)
+- [tasty halloween treats](https://food.allwomenstalk.com/awesome-and-tasty-halloween-treats/)
+- [jatinga bird mystery solved](https://travel.allwomenstalk.com/really-scary-places-to-visit-on-halloween/)
+- [breaking bad dog costume](https://lifestyle.allwomenstalk.com/modern-halloween-costumes-youre-sure-to-see-this-year/)
+- [makeup for witches](https://makeup.allwomenstalk.com/halloween-makeup-ideas-to-spook-everyone-out-this-year/)
+- [pin the hat on the witch game](https://parenting.allwomenstalk.com/fun-filled-ideas-for-a-kids-halloween-party/)
+- [halloween songs for cover bands](https://music.allwomenstalk.com/best-bands-for-halloween-that-youd-love-to-get-ready-to/)
 - [8 Incredible Tim Burton Movies ...](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
 - [9 Food Themed Movies to Make Your Mouth Water ...](https://eatial.com/food-themed-movies-to-make-your-mouth-water/)
 

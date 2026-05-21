@@ -3,7 +3,7 @@ title: "Top 5 Times Michael Scott from the Office Should Have Gone to Jail ..."
 description: "Attempted Theft; Misleading Police/Falsely Accusing an Innocent Person; Assault/Attempted Murder; Another Assualt; Sexual Harassment/Assault; More ..."
 url: "https://movies.allwomenstalk.com/times-the-offices-michael-scott-should-have-gone-to-jail/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Top 5  Times Michael Scott from the Office Should Have Gone to Jail ...
@@ -48,14 +48,14 @@ Did we miss anything? What is your favorite cringe-worthy Michael Scott moment?
 
 - [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
 - [mothers are special poems](https://parenting.allwomenstalk.com/to-my-very-special-mother-by-erin-hanson/)
-- [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
 - [not eric hanson poem](https://inspiration.allwomenstalk.com/who-would-remember-by-erin-hanson/)
-- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
-- [when does iris get her powers](https://movies.allwomenstalk.com/times-iris-west-proved-you-didnt-need-powers-to-be-a-hero/)
-- [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
 - [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
-- [erin hanson face](https://inspiration.allwomenstalk.com/that-burn-bridges-by-erin-hanson/)
 - [wendy yap](https://inspiration.allwomenstalk.com/lifes-journey-by-wendy-yap/)
+- [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
+- [erin hanson face](https://inspiration.allwomenstalk.com/that-burn-bridges-by-erin-hanson/)
+- [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
+- [when does iris get her powers](https://movies.allwomenstalk.com/times-iris-west-proved-you-didnt-need-powers-to-be-a-hero/)
+- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
 - [5 Cool Edward Quotes ...](https://twilight.allwomenstalk.com/5-cool-edward-quotes/)
 - [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 

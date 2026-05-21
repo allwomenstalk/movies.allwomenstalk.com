@@ -3,7 +3,7 @@ title: "7 Tolerable Kids Cartoons to DVR Right Now ..."
 description: "Octonauts; Looney Tunes; Jake and the Never Land Pirates; Backyardigans; Franklin; More ..."
 url: "https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Tolerable Kids Cartoons to DVR Right Now ...
@@ -57,15 +57,15 @@ What cartoons are your kids’ favorites? Mine have mostly outgrown this once lo
 ## Related Posts
 
 - [why did topanga break up with cory](https://movies.allwomenstalk.com/ways-cory-and-topanga-ruined-real-life-for-us/)
-- [how to be like barney stinson](https://love.allwomenstalk.com/effective-barney-stinson-flirting-moves-to-steal/)
-- [funny frozen](https://funny.allwomenstalk.com/funny-videos-inspired-by-disneys-frozen/)
-- [top 10 buffy episodes](https://movies.allwomenstalk.com/best-episodes-of-buffy-the-vampire-slayer-that-youve-got-to-see/)
+- [watch truly strange](https://fitness.allwomenstalk.com/strange-olympic-sports-that-are-actually-fun-to-watch/)
+- [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
 - [promise phan](https://makeup.allwomenstalk.com/disney-makeup-transformations-that-are-simply-amazing/)
+- [steve buscemi makeup](https://movies.allwomenstalk.com/career-defining-steve-buscemi-perfomances/)
+- [top 10 buffy episodes](https://movies.allwomenstalk.com/best-episodes-of-buffy-the-vampire-slayer-that-youve-got-to-see/)
 - [best fantasy shows on tv](https://movies.allwomenstalk.com/great-fantasy-shows-for-young-adults/)
 - [good things to watch on yourube](https://lifestyle.allwomenstalk.com/must-watch-youtube-videos-for-when-youre-bored/)
-- [watch truly strange](https://fitness.allwomenstalk.com/strange-olympic-sports-that-are-actually-fun-to-watch/)
-- [steve buscemi makeup](https://movies.allwomenstalk.com/career-defining-steve-buscemi-perfomances/)
-- [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
+- [how to be like barney stinson](https://love.allwomenstalk.com/effective-barney-stinson-flirting-moves-to-steal/)
+- [funny frozen](https://funny.allwomenstalk.com/funny-videos-inspired-by-disneys-frozen/)
 - [7 Clean Cartoons That Your 5 Year Old Can Watch .....](https://parenting.allwomenstalk.com/7-clean-cartoons-that-your-5-year-old-can-watch/)
 - [My 7 Favourite Cartoons ...](https://movies.allwomenstalk.com/my-favourite-cartoons/)
 

@@ -3,7 +3,7 @@ title: "8 Riveting Robot Movies ..."
 description: "Transformers; WALL-E; The Terminator (1984); Blade Runner (1982); Short Circuit (1986); More ..."
 url: "https://movies.allwomenstalk.com/riveting-robot-movies/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Riveting Robot Movies ...
@@ -48,16 +48,16 @@ Top Image Source: _theglow.com_
 
 ## Related Posts
 
-- [10 Pivotal African American Films Not to Miss ...](https://bilbr.com/pivotal-african-american-films-not-to-miss/)
-- [geek movies](https://movies.allwomenstalk.com/geek-movies-to-love/)
-- [8 Terrific Robin Williams Movies ...](https://7fun.net/terrific-robin-williams-movies/)
-- [10 Movie Romances That Went off-Screen ...](https://bilbr.com/movie-romances-that-went-off-screen/)
 - [best british movies of all time](https://movies.allwomenstalk.com/best-british-movies-of-all-time/)
-- [movies about shakespeare](https://movies.allwomenstalk.com/movies-of-shakespeares-plays/)
 - [9 John Cusack Movies Youve Got to Watch ASAP ...](https://bilbr.com/john-cusack-movies-youve-got-to-watch-asap/)
-- [9 Utterly Awesome Films about Music ...](https://movies.allwomenstalk.com/utterly-awesome-films-about-music/)
-- [8 Amazing Actors Turned Great Directors ...](https://bilbr.com/amazing-actors-turned-great-directors/)
 - [8 Fascinating Must-See Documentaries ...](https://movies.allwomenstalk.com/fascinating-must-see-documentaries/)
+- [geek movies](https://movies.allwomenstalk.com/geek-movies-to-love/)
+- [10 Movie Romances That Went off-Screen ...](https://bilbr.com/movie-romances-that-went-off-screen/)
+- [8 Terrific Robin Williams Movies ...](https://7fun.net/terrific-robin-williams-movies/)
+- [movies about shakespeare](https://movies.allwomenstalk.com/movies-of-shakespeares-plays/)
+- [8 Amazing Actors Turned Great Directors ...](https://bilbr.com/amazing-actors-turned-great-directors/)
+- [9 Utterly Awesome Films about Music ...](https://movies.allwomenstalk.com/utterly-awesome-films-about-music/)
+- [10 Pivotal African American Films Not to Miss ...](https://bilbr.com/pivotal-african-american-films-not-to-miss/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 

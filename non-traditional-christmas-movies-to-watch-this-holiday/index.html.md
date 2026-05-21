@@ -3,7 +3,7 @@ title: "7 Non-traditional Christmas Movies to Watch This Holiday ..."
 description: "Bad Santa; Gremlins; The Night before; The Nightmare before Christmas; A Very Harold and Kumar Christmas; More ..."
 url: "https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Non\-traditional Christmas Movies to Watch This Holiday ...
@@ -42,15 +42,15 @@ You don't have to watch classic Christmas movies in order to get into the holida
 
 ## Related Posts
 
-- [disney movie old](https://movies.allwomenstalk.com/old-disney-movies-you-should-watch-before-you-die/)
-- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
-- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
-- [most secual movies](https://movies.allwomenstalk.com/the-most-sexually-charged-movies-of-all-time/)
 - [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
 - [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
-- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
 - [horror movies you shouldnt watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
+- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
+- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
+- [disney movie old](https://movies.allwomenstalk.com/old-disney-movies-you-should-watch-before-you-die/)
+- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
+- [most secual movies](https://movies.allwomenstalk.com/the-most-sexually-charged-movies-of-all-time/)
 - [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)

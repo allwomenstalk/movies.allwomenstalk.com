@@ -3,7 +3,7 @@ title: "Sports Movies Even Non-Sporty Girls Can Appreciate for Their Romance Fac
 description: "Bend It like Beckham (2002); Love & Basketball (2000); Rocky (1976); Fever Pitch (2005); The Wrestler (2008); More ..."
 url: "https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Sports Movies Even Non\-Sporty Girls Can Appreciate for Their Romance Factor ...
@@ -56,16 +56,16 @@ Other sports movies with some romance to them you might also want to watch inclu
 
 ## Related Posts
 
-- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
 - [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
+- [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
+- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
 - [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
 - [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
-- [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
+- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
 - [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
-- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
-- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
 - [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
+- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

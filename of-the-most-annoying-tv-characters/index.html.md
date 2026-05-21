@@ -3,7 +3,7 @@ title: "15 of the Most Annoying TV Characters ..."
 description: "Allison Cameron; Declan Porter; Ben Grogan; Lori Grimes; Alison DiLaurentis; More ..."
 url: "https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 15 of the Most Annoying TV Characters ...
@@ -105,15 +105,15 @@ Almost every show has an annoying character that people would love to be rid of.
 ## Related Posts
 
 - [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
-- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 - [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
+- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 - [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
+- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
+- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
 - [15 Adorable Celebrity Dogs ...](https://allwomenstalk.com/15-adorable-celebrity-dogs/)
 - [7 Most Popular Television Shows ...](https://allwomenstalk.com/7-most-popular-television-shows/)
 

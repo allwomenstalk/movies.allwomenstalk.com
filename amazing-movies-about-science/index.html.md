@@ -3,7 +3,7 @@ title: "7 Amazing Movies about Science ..."
 description: "Longitude; Creation; A Beautiful Mind; Madame Curie; Jurassic Park; More ..."
 url: "https://movies.allwomenstalk.com/amazing-movies-about-science/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Amazing Movies about Science ...
@@ -42,15 +42,15 @@ Science isn't as dull as you might think, so check out these movies and some of 
 
 ## Related Posts
 
-- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
-- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
-- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
 - [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
-- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
-- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
+- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
+- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
 - [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
+- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
 - [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
+- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
+- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
+- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)

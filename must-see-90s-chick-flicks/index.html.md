@@ -3,7 +3,7 @@ title: "7 Must-see 90s Chick Flicks ..."
 description: "10 Things I Hate about You; She’s All That; Clueless; Romeo and Juliet; Pretty Woman; More ..."
 url: "https://movies.allwomenstalk.com/must-see-90s-chick-flicks/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Must\-see 90s Chick Flicks ...
@@ -42,16 +42,16 @@ I think I'll always have a special place in my heart for 1990’s chick flicks. 
 
 ## Related Posts
 
-- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
-- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
-- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
 - [edge of seat horror movies](https://movies.allwomenstalk.com/scary-movies-that-will-keep-you-on-the-edge-of-your-seat/)
-- [hardx upcoming](https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/)
-- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
 - [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
-- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
-- [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
+- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
 - [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
+- [hardx upcoming](https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/)
+- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
+- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
+- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
+- [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

@@ -3,7 +3,7 @@ title: "7 Badass Films for Girls to Learn Not to GAF ..."
 description: "Ferris Bueller's Day off; Yes Man; The Big Lebowski; Fight Club; Easy a; More ..."
 url: "https://movies.allwomenstalk.com/movies-thatll-inspire-you-to-stop-giving-a-damn/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Badass Films for Girls to Learn Not to GAF ...
@@ -42,16 +42,16 @@ We care way too much about our appearances and the way others view us, even thou
 
 ## Related Posts
 
-- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
-- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
+- [kelly rutherford and george clooney](https://celebs.allwomenstalk.com/lifesaving-lifestyle-tips-from-your-favorite-stars/)
+- [alka boost multivitamin](https://health.allwomenstalk.com/best-vitamins-and-supplements-for-young-women-and-teens/)
+- [things to accomplish by 30](https://lifestyle.allwomenstalk.com/what-every-woman-should-accomplish-before-turning/)
 - [why do i get so obsessed with guys](https://love.allwomenstalk.com/how-to-calm-down-your-obsession-with-boys/)
 - [hgtv female renovators](https://diy.allwomenstalk.com/watch-these-shows-before-renovating-your-home/)
-- [kelly rutherford and george clooney](https://celebs.allwomenstalk.com/lifesaving-lifestyle-tips-from-your-favorite-stars/)
-- [im here if you need to talk](https://lifestyle.allwomenstalk.com/friendly-phrases-thatll-make-you-more-likable/)
-- [things to accomplish by 30](https://lifestyle.allwomenstalk.com/what-every-woman-should-accomplish-before-turning/)
-- [alka boost multivitamin](https://health.allwomenstalk.com/best-vitamins-and-supplements-for-young-women-and-teens/)
-- [This is Why Women Shouldnt Fall for the Latest It ...](https://beauty.allwomenstalk.com/why-you-shouldnt-fall-for-the-latest-beauty-miracle/)
+- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
 - [fighting tips for girls](https://lifestyle.allwomenstalk.com/little-ways-to-feel-more-independent-right-now/)
+- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
+- [This is Why Women Shouldnt Fall for the Latest It ...](https://beauty.allwomenstalk.com/why-you-shouldnt-fall-for-the-latest-beauty-miracle/)
+- [im here if you need to talk](https://lifestyle.allwomenstalk.com/friendly-phrases-thatll-make-you-more-likable/)
 - [10 Best Girl Power Movies ...](https://movies.allwomenstalk.com/best-girl-power-movies/)
 - [7 Wonderful Movies That Will Change Your Life ...](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
 

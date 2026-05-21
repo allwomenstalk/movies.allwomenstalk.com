@@ -3,7 +3,7 @@ title: "9 Movies That Are Based on Books ..."
 description: "Terms of Endearment; Fast Times at Ridgemont High; Die Hard; Fried Green Tomatoes; Breakfast at Tiffany's; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-are-based-on-books/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Movies That Are Based on Books ...
@@ -59,16 +59,16 @@ As a serious bookworm, I love to read books that I know are on their way to beco
 
 ## Related Posts
 
-- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
-- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
-- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
-- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
-- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
-- [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
 - [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
-- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
+- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
+- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
 - [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
+- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
+- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
+- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
+- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
 

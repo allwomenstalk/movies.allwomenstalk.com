@@ -3,7 +3,7 @@ title: "7 Underrated British Movies That Deserve Some Serious Credit ..."
 description: "East is East; This is England; The Full Monty; Kevin & Perry Go Large; Vanity Fair; More ..."
 url: "https://movies.allwomenstalk.com/underrated-british-movies-that-deserve-some-serious-credit/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Underrated British Movies That Deserve Some Serious Credit ...
@@ -42,16 +42,16 @@ There were one or two other films I wanted to feature in this list. Twin Town is
 
 ## Related Posts
 
-- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
+- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
+- [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
+- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
+- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
 - [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
 - [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
-- [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
-- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
-- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
-- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
-- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
-- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
 - [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
+- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

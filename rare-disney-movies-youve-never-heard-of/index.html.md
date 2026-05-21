@@ -3,7 +3,7 @@ title: "15 Rare Disney Movies Youve Never Heard of ..."
 description: "“Gargoyles the Movie: the Heroes Awaken”; “Tarzan II: the Legend Begins”; “the Great Mouse Detective”; Cinderella’s Happily Ever after; “the Adventures of Ichabod and Mr. Toad”; More ..."
 url: "https://movies.allwomenstalk.com/rare-disney-movies-youve-never-heard-of/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 15 Rare Disney Movies Youve Never Heard of ...
@@ -76,16 +76,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
+- [zac efron nicholas sparks movie](https://movies.allwomenstalk.com/best-nicholas-sparks-inspired-movies/)
+- [top steve carell movies](https://movies.allwomenstalk.com/of-steve-carells-funniest-movietv-roles/)
+- [catherine hepburn movies](https://movies.allwomenstalk.com/katharine-hepburn-films-you-must-see/)
 - [films van amanda seyfried](https://movies.allwomenstalk.com/movies-starring-amanda-seyfried-i-cant-get-enough-of/)
-- [must see movies 2013](https://movies.allwomenstalk.com/amazing-movies-of-that-youve-got-to-watch/)
 - [movie writers](https://movies.allwomenstalk.com/fantastic-movies-about-writers-that-will-motivate-you/)
 - [animated fairy tales](https://movies.allwomenstalk.com/non-disney-animated-movies-featuring-fairytale-characters/)
+- [must see movies 2013](https://movies.allwomenstalk.com/amazing-movies-of-that-youve-got-to-watch/)
+- [2000s movies comedy](https://movies.allwomenstalk.com/comedies-from-the-early-2000s-that-you-should-rewatch/)
 - [why did beautiful creatures flop](https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/)
 - [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
-- [zac efron nicholas sparks movie](https://movies.allwomenstalk.com/best-nicholas-sparks-inspired-movies/)
-- [catherine hepburn movies](https://movies.allwomenstalk.com/katharine-hepburn-films-you-must-see/)
-- [top steve carell movies](https://movies.allwomenstalk.com/of-steve-carells-funniest-movietv-roles/)
-- [2000s movies comedy](https://movies.allwomenstalk.com/comedies-from-the-early-2000s-that-you-should-rewatch/)
 - [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)
 - [9 Great Disney  Pixar Movies ...](https://allwomenstalk.com/9-great-disney-pixar-movies/)
 

@@ -3,7 +3,7 @@ title: "Gabrielle Union and Other Actors Who Were Adults Playing Teens ..."
 description: "Stockard Channing in Grease; Jennifer Grey in Dirty Dancing; Tobey Maguire in Spider-Man; Emilia Clarke in Game of Thrones; Sissy Spacek in Carrie; More ..."
 url: "https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Gabrielle Union and Other Actors Who Were Adults Playing Teens ...
@@ -70,14 +70,14 @@ What other adults who’ve played teenagers can you think of?
 
 - [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
 - [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
-- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
 - [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
 - [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
-- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
-- [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
 - [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
+- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
+- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
+- [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - [Hollywood Baby Secrets ...](https://allwomenstalk.com/hollywood-baby-secrets/)
 

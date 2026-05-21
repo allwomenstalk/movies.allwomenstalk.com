@@ -3,7 +3,7 @@ title: "7 Television Shows on Right Now That Are Already Classics ..."
 description: "How I Met Your Mother; Modern Family; Scandal; Parks and Recreation; New Girl; More ..."
 url: "https://movies.allwomenstalk.com/television-shows-on-right-now-that-are-already-classics/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Television Shows on Right Now That Are Already Classics ...
@@ -54,16 +54,16 @@ What’s your favorite show on TV right now? Do you think it will be a classic? 
 
 ## Related Posts
 
-- [7 Shocking TV Moments That Made Us Say What ...](https://movies.allwomenstalk.com/shocking-tv-moments-that-made-us-say-what/)
-- [9 Creature Features to Make You Scream ...](https://bilbr.com/creature-features-to-make-you-scream/)
-- [loreal paris color riche stylo timeless blue](https://movies.allwomenstalk.com/fun-shows-to-watch-on-hulu-when-youre-feeling-low/)
-- [socute 7tv](https://movies.allwomenstalk.com/tv-cliques-i-wish-i-couldve-been-a-part-of/)
-- [7 Priceless Fangirl Problems Weve All Had to Deal ...](https://funny.allwomenstalk.com/fangirl-problems-weve-all-had-to-deal-with/)
-- [7 TV Relationships Were Loving Right Now ...](https://movies.allwomenstalk.com/tv-relationships-were-loving-right-now/)
+- [what is the most infuriating case of double standa...](https://lifestyle.allwomenstalk.com/infuriating-double-standards-that-should-no-longer-exist/)
 - [ricky gervais comedies](https://movies.allwomenstalk.com/ricky-gervais-comedy-classics-everyone-should-check-out/)
 - [7 Friends Episodes That Will Always Make You Roar ...](https://funny.allwomenstalk.com/friends-episodes-that-will-always-make-you-roar/)
-- [what is the most infuriating case of double standa...](https://lifestyle.allwomenstalk.com/infuriating-double-standards-that-should-no-longer-exist/)
 - [victorious wedgie](https://movies.allwomenstalk.com/upcoming-tv-series-starring-familiar-faces-from-past-shows/)
+- [loreal paris color riche stylo timeless blue](https://movies.allwomenstalk.com/fun-shows-to-watch-on-hulu-when-youre-feeling-low/)
+- [7 Shocking TV Moments That Made Us Say What ...](https://movies.allwomenstalk.com/shocking-tv-moments-that-made-us-say-what/)
+- [7 Priceless Fangirl Problems Weve All Had to Deal ...](https://funny.allwomenstalk.com/fangirl-problems-weve-all-had-to-deal-with/)
+- [9 Creature Features to Make You Scream ...](https://bilbr.com/creature-features-to-make-you-scream/)
+- [socute 7tv](https://movies.allwomenstalk.com/tv-cliques-i-wish-i-couldve-been-a-part-of/)
+- [7 TV Relationships Were Loving Right Now ...](https://movies.allwomenstalk.com/tv-relationships-were-loving-right-now/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 

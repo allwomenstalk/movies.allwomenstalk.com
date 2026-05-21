@@ -3,7 +3,7 @@ title: "17 Romance Films That He Will like Too ..."
 description: "Legends of the Fall; Frozen (honestly); True Romance; There’s Something about Mary; Groundhog Day; More ..."
 url: "https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 17 Romance Films That He Will like Too ...
@@ -118,16 +118,16 @@ I’d love to hear your recommendations!
 
 ## Related Posts
 
-- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
-- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
-- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
-- [saddest rom coms](https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
-- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
+- [saddest rom coms](https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/)
+- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
 - [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
+- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
+- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
+- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 

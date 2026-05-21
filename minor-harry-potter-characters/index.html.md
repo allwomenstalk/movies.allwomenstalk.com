@@ -3,7 +3,7 @@ title: "7 Minor Harry Potter Characters ..."
 description: "Nymphadora Tonks; Gellert Grindelwald; Moaning Myrtle; The Weird Sisters; Rita Skeeter; More ..."
 url: "https://movies.allwomenstalk.com/minor-harry-potter-characters/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Minor Harry Potter Characters ...
@@ -44,16 +44,16 @@ Top Photo Credit: [images4.fanpop.com](http://images4.fanpop.com/image/quiz/5560
 
 ## Related Posts
 
-- [42 Photos of 21st Annual a Time for Heroes ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
-- [celebs with ms](https://celebs.allwomenstalk.com/17th-annual-race-to-erase-ms/)
-- [hunger games bread scene](https://movies.allwomenstalk.com/hunger-games-highlights/)
-- [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
-- [old tv shows worth watching](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 - [7 Non-English TV Series That Used to Be Popular .....](https://movies.allwomenstalk.com/non-english-tv-series-that-used-to-be-popular/)
 - [stella rose gahan height](https://celebs.allwomenstalk.com/gahan-has-a-laugh/)
-- [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
+- [hunger games bread scene](https://movies.allwomenstalk.com/hunger-games-highlights/)
+- [celebs with ms](https://celebs.allwomenstalk.com/17th-annual-race-to-erase-ms/)
 - [7 Reasons the Batman Franchise is Disappointing .....](https://movies.allwomenstalk.com/reasons-the-batman-franchise-is-disappointing/)
 - [disturbing true crime documentaries youtube](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
+- [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
+- [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
+- [old tv shows worth watching](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
+- [42 Photos of 21st Annual a Time for Heroes ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
 - [5 Interesting Twilight Characters ...](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
 - [5 Evil Magic Users to Be ...](https://twilight.allwomenstalk.com/5-evil-magic-users-to-be/)
 

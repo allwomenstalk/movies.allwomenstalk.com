@@ -3,7 +3,7 @@ title: "Movies like Twilight That Will Quench Your Thirst for the Supernatural .
 description: "Twilight Series (2009, 2010, 2011, 2012); Red Riding Hood (2011); Tuck Everlasting (2002); Beautiful Creatures (2013); Vampire Academy (2014); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-twilight-that-will-quench-your-thirst-for-the-supernatural/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Movies like Twilight That Will Quench Your Thirst for the Supernatural ...
@@ -54,14 +54,14 @@ These movies like Twilight will definitely satisfy your supernatural obsession. 
 
 ## Related Posts
 
+- [no kissing list](https://movies.allwomenstalk.com/movies-like-the-kissing-booth/)
+- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
 - [modern movies like pride and prejudice](https://movies.allwomenstalk.com/movies-like-pride-and-prejudice/)
 - [movies like stronger](https://movies.allwomenstalk.com/movies-like-me-before-you/)
+- [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
 - [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
 - [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
-- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
-- [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
 - [movies like the favourite](https://movies.allwomenstalk.com/movies-like-the-proposal/)
-- [no kissing list](https://movies.allwomenstalk.com/movies-like-the-kissing-booth/)
 - [movie like perks of being a wallflower](https://movies.allwomenstalk.com/movies-like-the-perks-of-being-a-wallflower/)
 - [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)

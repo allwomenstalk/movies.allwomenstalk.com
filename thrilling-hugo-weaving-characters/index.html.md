@@ -3,7 +3,7 @@ title: "10 Thrilling Hugo Weaving Characters You Will Love ..."
 description: "Elrond – the Lord of the Rings; V – V for Vendetta; Tick/Mitzi – the Adventures of Priscilla, Queen of the Desert; Lionel – Little Fish; Agent Smith – the Matrix; More ..."
 url: "https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 Thrilling Hugo Weaving Characters You Will Love ...
@@ -54,16 +54,16 @@ I love it when an actor really makes me believe what he's doing, and Hugo does t
 
 ## Related Posts
 
-- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
 - [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
 - [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
 - [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
 - [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
+- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
+- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

@@ -3,7 +3,7 @@ title: "7 Terrible Movie Wives Who Give Marriage a Bad Name ..."
 description: "Jenny in Forrest Gump; Sheba Hart in Notes on a Scandal; Ginger in Casino; Suzanne in to Die for; Jane Smith in Mr & Mrs Smith; More ..."
 url: "https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Terrible Movie Wives Who Give Marriage a Bad Name ...
@@ -70,15 +70,15 @@ These terrible movie wives may give marriage, and women, a bad name, but they ca
 
 ## Related Posts
 
-- [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
-- [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
 - [films with joseph gordon-levitt](https://movies.allwomenstalk.com/great-and-intriguing-movies-featuring-joseph-gordon-levitt/)
-- [movie night names](https://movies.allwomenstalk.com/awesome-movie-night-ideas-to-liven-up-your-night/)
 - [moviegeeks](https://movies.allwomenstalk.com/movie-geeks-you-just-have-to-love/)
-- [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
+- [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
 - [nip tuck on netflix](https://movies.allwomenstalk.com/best-tv-series-on-netflix-youve-gotta-watch/)
+- [movie night names](https://movies.allwomenstalk.com/awesome-movie-night-ideas-to-liven-up-your-night/)
 - [movie with orange car](https://movies.allwomenstalk.com/awesome-movie-cars-wed-all-love-to-drive/)
+- [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
 - [family road trip movie](https://travel.allwomenstalk.com/movie-road-trips-you-can-take-in-real-life/)
+- [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
 - [make you think movies](https://movies.allwomenstalk.com/incredible-movies-about-war-that-make-you-think/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)

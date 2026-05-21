@@ -3,7 +3,7 @@ title: "28 Most Adorable on Screen Couples ..."
 description: "John Krasinski & Jenna Fischer on \"the Office (US)\"; Lucille Ball & Desi Arnaz on \"I Love Lucy\"; Scott Michael Foster & Spencer Grammer on \"Greek\"; Douglas Booth & Miley Cyrus in \"LOL\"; Kiera Knightly & Matthew Macfadyen in \"Pride & Prejudice\"; More ..."
 url: "https://movies.allwomenstalk.com/most-adorable-on-screen-couples/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 28 Most Adorable on Screen Couples ...
@@ -191,15 +191,15 @@ The list of adorable on screen couples goes on and on! Which couples are your fa
 ## Related Posts
 
 - [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
-- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
-- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
 - [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
-- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
-- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
-- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
 - [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
+- [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
+- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
+- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
+- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
 - [30 Best and Surprisingly Awesome Wedding Movies .....](https://wedding.allwomenstalk.com/best-and-surprisingly-awesome-wedding-movies/)
 - [11 Best Movie Boyfriends ...](https://allwomenstalk.com/11-best-movie-boyfriends/)
 

@@ -3,7 +3,7 @@ title: "8 Delightful Movies Set in Ireland ..."
 description: "Circle of Friends (1995); Angela’s Ashes (1999); Veronica Guerin (2003); Michael Collins (1996); About Adam (2000); More ..."
 url: "https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Delightful Movies Set in Ireland ...
@@ -49,15 +49,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/24771963)
 ## Related Posts
 
 - [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
-- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
-- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
-- [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
-- [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
-- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
 - [inspired by a true story movies](https://movies.allwomenstalk.com/great-movies-inspired-by-true-stories/)
+- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
+- [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
+- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
+- [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [8 Fabulous French Films ...](https://movies.allwomenstalk.com/fabulous-french-films/)
 

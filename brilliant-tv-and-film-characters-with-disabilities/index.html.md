@@ -3,7 +3,7 @@ title: "7 Brilliant TV and Film Characters with Disabilities ..."
 description: "Gregory House, House; Becky, Glee; Raymond, Rain Man; Joe Swanson, Family Guy; Artie Abrams, Glee; More ..."
 url: "https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Brilliant TV and Film Characters with Disabilities ...
@@ -56,15 +56,15 @@ Do you think that we should see more disabled people on our screens and if so, h
 
 ## Related Posts
 
-- [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
 - [tv shows from the 2000s](https://movies.allwomenstalk.com/staple-american-shows-of-the-2000s/)
-- [best dysfunctional family tv shows](https://movies.allwomenstalk.com/of-the-most-dysfunctional-tv-couples/)
-- [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
-- [lie to me canceled](https://movies.allwomenstalk.com/tv-shows-that-were-canceled-way-before-their-time/)
-- [bones nigel murray actor](https://movies.allwomenstalk.com/hot-guys-on-bones-who-take-our-breath-away/)
-- [7 Best Fan Vidders on YouTube ...](https://celebs.allwomenstalk.com/best-fan-vidders-on-youtube/)
-- [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
 - [britains favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
+- [best dysfunctional family tv shows](https://movies.allwomenstalk.com/of-the-most-dysfunctional-tv-couples/)
+- [7 Best Fan Vidders on YouTube ...](https://celebs.allwomenstalk.com/best-fan-vidders-on-youtube/)
+- [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
+- [bones nigel murray actor](https://movies.allwomenstalk.com/hot-guys-on-bones-who-take-our-breath-away/)
+- [lie to me canceled](https://movies.allwomenstalk.com/tv-shows-that-were-canceled-way-before-their-time/)
+- [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
+- [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
 - [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)

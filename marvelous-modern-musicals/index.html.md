@@ -3,7 +3,7 @@ title: "8 Marvelous Modern Musicals ..."
 description: "Chicago; RENT; Dreamgirls; The Producers; Across the Universe; More ..."
 url: "https://movies.allwomenstalk.com/marvelous-modern-musicals/"
 category: "movies"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Marvelous Modern Musicals ...
@@ -48,15 +48,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20385680)
 
 ## Related Posts
 
-- [royalty movies romance](https://movies.allwomenstalk.com/amazing-movies-about-royalty/)
-- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
-- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
 - [fascinating movies](https://movies.allwomenstalk.com/fascinating-futuristic-films/)
+- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
+- [royalty movies romance](https://movies.allwomenstalk.com/amazing-movies-about-royalty/)
 - [brad pitt film list](https://movies.allwomenstalk.com/awesome-brad-pitt-movies/)
-- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
-- [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
 - [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
+- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
 - [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
