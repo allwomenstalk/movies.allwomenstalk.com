@@ -3,7 +3,7 @@ title: "7 Highest Grossing Films in History ..."
 description: "Avatar (2009); Titanic (1997); The Lord of the Rings: the Return of the King (2003); Pirates of the Caribbean: Dead Man’s Chest (2006); Toy Story 3 (2010); More ..."
 url: "https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Highest Grossing Films in History ...
@@ -45,15 +45,15 @@ Top image source: [filmofilia.com](https://www.filmofilia.com/wp-content/uploads
 ## Related Posts
 
 - [top romantic comedies](https://movies.allwomenstalk.com/top-romantic-comedies/)
-- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
-- [movies everyone must watch](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
-- [subtitled movies](https://movies.allwomenstalk.com/great-foreign-films-with-subtitles/)
 - [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
-- [liner movie](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
-- [romantic movies 2011](https://7fun.net/romantic-movies-of-2011/)
-- [steamy scenes movie](https://movies.allwomenstalk.com/steamiest-sex-scenes-in-hollywood/)
 - [9 Irrespressible Movies Hollywood Should Remake .....](https://movies.allwomenstalk.com/irrespressible-movies-hollywood-should-remake/)
+- [romantic movies 2011](https://7fun.net/romantic-movies-of-2011/)
+- [liner movie](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
 - [stellar movie](https://movies.allwomenstalk.com/stellar-movie-franchises/)
+- [steamy scenes movie](https://movies.allwomenstalk.com/steamiest-sex-scenes-in-hollywood/)
+- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
+- [subtitled movies](https://movies.allwomenstalk.com/great-foreign-films-with-subtitles/)
+- [movies everyone must watch](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

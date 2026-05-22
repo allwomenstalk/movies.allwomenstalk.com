@@ -3,7 +3,7 @@ title: "7 Actors Who Regret Their Roles ..."
 description: "James Franco; Bill Murray; Katherine Heigl; Halle Berry; Mark Wahlberg; More ..."
 url: "https://movies.allwomenstalk.com/actors-who-regret-their-roles/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Actors Who Regret Their Roles ...
@@ -42,16 +42,16 @@ Who knew there were so many? Of course there are probably loads more that didn't
 
 ## Related Posts
 
-- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
-- [actors who havent won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
-- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
 - [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
-- [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
 - [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
+- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
+- [actors who havent won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
+- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
+- [best celebrity interviews](https://celebs.allwomenstalk.com/best-celebrity-interviews-on-ellen/)
+- [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
 - [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
 - [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
-- [brendan fraser sexiest man alive](https://celebs.allwomenstalk.com/celebrities-who-are-fading-quickly/)
-- [javier bardem and jeffrey dean morgan meet](https://celebs.allwomenstalk.com/celebrity-couples-who-look-alike/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 

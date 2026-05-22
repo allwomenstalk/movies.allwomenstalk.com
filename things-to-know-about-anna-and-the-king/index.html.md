@@ -3,7 +3,7 @@ title: "7 Things to Know about Anna and the King ..."
 description: "Not a Romance; Not Just a Teacher; Western King; Anna’s past; Mongkut the Monk; More ..."
 url: "https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things to Know about Anna and the King ...
@@ -44,16 +44,16 @@ The story of Anna and the King is fascinating. While the movie was wonderful, th
 
 ## Related Posts
 
-- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
-- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
-- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
 - [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
-- [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
-- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
+- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
 - [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
+- [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
+- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
+- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 

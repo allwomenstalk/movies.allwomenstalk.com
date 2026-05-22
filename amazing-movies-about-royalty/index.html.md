@@ -3,7 +3,7 @@ title: "8 Amazing Movies about Royalty ..."
 description: "The King's Speech; Richard III; Man in the Iron Mask; 300; Cleopatra; More ..."
 url: "https://movies.allwomenstalk.com/amazing-movies-about-royalty/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Amazing Movies about Royalty ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/6559161)
 
 ## Related Posts
 
-- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
-- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
-- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
+- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
 - [brad pitt film list](https://movies.allwomenstalk.com/awesome-brad-pitt-movies/)
+- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
+- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
 - [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
-- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
-- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
 - [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
+- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

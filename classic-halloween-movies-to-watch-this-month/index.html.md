@@ -3,7 +3,7 @@ title: "9 Classic Halloween Movies to Enjoy Every Year ..."
 description: "Hocus Pocus; Casper; Beetlejuice; The Nightmare before Christmas; Corpse Bride; More ..."
 url: "https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Classic Halloween Movies to Enjoy Every Year ...
@@ -50,16 +50,16 @@ Well, there you have it. There are SO many other Halloween movies that are binge
 
 ## Related Posts
 
-- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
-- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
-- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
 - [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
-- [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
+- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
+- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
+- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
 - [harley quinn sminkning](https://makeup.allwomenstalk.com/halloween-makeup-tutorials-to-test-out-on-the-31st/)
-- [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
+- [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
 - [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
+- [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
 - [10 Classic Old Christmas Movies Youll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 - [Top 10 Scary Movies of All Time ...](https://7fun.net/top-10-scary-movies-of-all-time/)
 

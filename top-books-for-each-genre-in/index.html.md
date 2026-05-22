@@ -3,7 +3,7 @@ title: "10 Top Books for Each Genre in 2012 ..."
 description: "Fiction - the Casual Vacancy; Non Fiction - Quiet; Mystery/Thriller - Gone Girl; Young Adult - Insurgent; Humor - Let's Pretend This Never Happened; More ..."
 url: "https://movies.allwomenstalk.com/top-books-for-each-genre-in/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 10 Top Books for Each Genre in 2012 ...
@@ -54,16 +54,16 @@ There were tons of amazing books this year and I feel terrible for not getting t
 
 ## Related Posts
 
-- [self help books that actually help](https://health.allwomenstalk.com/best-self-help-books-that-actually-help/)
-- [7 Books to Read This Fall ...](https://lifestyle.allwomenstalk.com/books-to-read-this-fall/)
-- [7 Dating Books Thatll Rejuvenate Your Dates ...](https://love.allwomenstalk.com/dating-books-thatll-rejuvenate-your-dates/)
-- [10 Young Adult Books to Read ...](https://lifestyle.allwomenstalk.com/young-adult-books-to-read/)
-- [7 TV Shows Made from Books ...](https://movies.allwomenstalk.com/tv-shows-made-from-books/)
-- [9 Best Book Series That I Love ...](https://lifestyle.allwomenstalk.com/best-book-series-that-i-love/)
-- [7 Best Biography Books Youve Got to Read ...](https://lifestyle.allwomenstalk.com/best-biography-books-youve-got-to-read/)
 - [9 Best Books of 2012 ...](https://lifestyle.allwomenstalk.com/best-books-of/)
+- [7 Best Biography Books Youve Got to Read ...](https://lifestyle.allwomenstalk.com/best-biography-books-youve-got-to-read/)
 - [a prayer for owen meany quotes](https://lifestyle.allwomenstalk.com/ultimate-books-you-must-read/)
 - [loreal paris color riche le smoky avant azure](https://lifestyle.allwomenstalk.com/types-of-books-to-read-next/)
+- [self help books that actually help](https://health.allwomenstalk.com/best-self-help-books-that-actually-help/)
+- [9 Best Book Series That I Love ...](https://lifestyle.allwomenstalk.com/best-book-series-that-i-love/)
+- [7 Dating Books Thatll Rejuvenate Your Dates ...](https://love.allwomenstalk.com/dating-books-thatll-rejuvenate-your-dates/)
+- [7 Books to Read This Fall ...](https://lifestyle.allwomenstalk.com/books-to-read-this-fall/)
+- [7 TV Shows Made from Books ...](https://movies.allwomenstalk.com/tv-shows-made-from-books/)
+- [10 Young Adult Books to Read ...](https://lifestyle.allwomenstalk.com/young-adult-books-to-read/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [10 Best Childrens Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

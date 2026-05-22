@@ -3,7 +3,7 @@ title: "30 Movies Sure to Make You Cry ..."
 description: "The Notebook 💑; Titanic 🚣🏽; Ghost 👻; A Walk 👞 to Remember; My Girl 👦 👧; More ..."
 url: "https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 30 Movies Sure to Make You Cry ...
@@ -135,14 +135,14 @@ There's nothing like 😻 a good 👍 cry, especially when you've been feeling l
 ## Related Posts
 
 - [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
-- [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
-- [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
-- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
-- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
+- [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
+- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
+- [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
 - [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
 - [30 Best and Surprisingly Awesome Wedding Movies .....](https://wedding.allwomenstalk.com/best-and-surprisingly-awesome-wedding-movies/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)

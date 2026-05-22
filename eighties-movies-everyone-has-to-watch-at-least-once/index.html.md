@@ -3,7 +3,7 @@ title: "11 Eighties Movies Everyone Has to Watch at Least Once ..."
 description: "The Breakfast Club; Ferris Bueller’s Day off; Dirty Dancing; Heathers; Footloose; More ..."
 url: "https://movies.allwomenstalk.com/eighties-movies-everyone-has-to-watch-at-least-once/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 11 Eighties Movies Everyone Has to Watch at Least Once ...
@@ -80,16 +80,16 @@ Of course, these are just a few classic eighties movies. How many of these movie
 
 ## Related Posts
 
+- [7 Great Movies That Almost Didnt Make It to the Bi...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
 - [7 Broadway Shows That Should Be Movies ...](https://movies.allwomenstalk.com/broadway-shows-that-should-be-movies/)
 - [9 Brilliant Bad-but-Good Movies That Are Perfect f...](https://movies.allwomenstalk.com/brilliant-bad-but-good-movies-that-are-perfect-for-movie-night/)
-- [7 Movies Based on Historic Events We Should All Wa...](https://movies.allwomenstalk.com/movies-based-on-historic-events-we-should-all-watch/)
-- [7 Superhero Movies You Must Watch if You Havent Al...](https://movies.allwomenstalk.com/superhero-movies-you-must-watch-if-you-havent-already/)
-- [loreal paris le stylo eye amour](https://movies.allwomenstalk.com/movies-with-the-best-new-years-scenes/)
-- [7 High Action Movies to Enjoy with Your Guy ...](https://movies.allwomenstalk.com/high-action-movies-to-enjoy-with-your-guy/)
 - [9 Movies That Are Just as Good as the Book ...](https://bilbr.com/movies-that-are-just-as-good-as-the-book/)
-- [7 Great Movies That Almost Didnt Make It to the Bi...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
 - [7 Classic Black-and-White Films You Should Check o...](https://movies.allwomenstalk.com/classic-black-and-white-films-you-should-check-out/)
+- [7 High Action Movies to Enjoy with Your Guy ...](https://movies.allwomenstalk.com/high-action-movies-to-enjoy-with-your-guy/)
 - [amanda seyfried musicals](https://movies.allwomenstalk.com/amazing-musicals-i-wouldnt-mind-watching-over-and-over-again/)
+- [7 Movies Based on Historic Events We Should All Wa...](https://movies.allwomenstalk.com/movies-based-on-historic-events-we-should-all-watch/)
+- [loreal paris le stylo eye amour](https://movies.allwomenstalk.com/movies-with-the-best-new-years-scenes/)
+- [7 Superhero Movies You Must Watch if You Havent Al...](https://movies.allwomenstalk.com/superhero-movies-you-must-watch-if-you-havent-already/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)
 

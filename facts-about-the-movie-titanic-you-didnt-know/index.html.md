@@ -3,7 +3,7 @@ title: "10 Facts about the Movie Titanic You Didnt Know ..."
 description: "Matthew McConaughey to Play Jack; Gwyneth Paltrow to Play Rose; No Wetsuit for Kate Winslet; Pomeranian History; James Cameron Was the Real Artist; More ..."
 url: "https://movies.allwomenstalk.com/facts-about-the-movie-titanic-you-didnt-know/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 10 Facts about the Movie Titanic You Didnt Know ...
@@ -66,16 +66,16 @@ Top Image Source: [moviefone.com](https://goo.gl/xKfsPR)
 
 ## Related Posts
 
-- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
-- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
-- [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
 - [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
-- [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
+- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
 - [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
-- [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
-- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
 - [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
+- [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
+- [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
+- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
 - [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
+- [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
 - [5 Must See Scenes from the Movie ...](https://twilight.allwomenstalk.com/5-must-see-scenes-from-the-movie/)
 - [8 Best Tom Hanks Movies You Might Have Missed ...](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
 

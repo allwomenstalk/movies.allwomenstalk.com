@@ -3,7 +3,7 @@ title: "7 Memorable Prom Dresses in the Movies ..."
 description: "Andie Walsh – Pretty in Pink; Buffy Somers – Buffy the Vampire Slayer; Carrie White – Carrie; Hermione Granger – Harry Potter and the Goblet of Fire; Laney Boggs – She’s All That; More ..."
 url: "https://movies.allwomenstalk.com/memorable-prom-dresses-in-the-movies/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Memorable Prom Dresses in the Movies ...
@@ -50,16 +50,16 @@ m dresses may be the limit of where girls can take their own ideas but what woul
 
 ## Related Posts
 
-- [stylish coat dress](https://fashion.allwomenstalk.com/beautiful-coat-dresses-that-will-make-you-feel-like-a-royal/)
-- [stunning wedding dresses](https://wedding.allwomenstalk.com/stunning-wedding-gowns-that-will-take-your-breath-away/)
-- [frozen bride](https://wedding.allwomenstalk.com/disneys-frozen-wedding-gown-has-finally-arrived/)
-- [tracy reese dresses nordstrom](https://fashion.allwomenstalk.com/great-wrap-dresses-you-can-find-at-nordstrom/)
-- [night dress summer](https://fashion.allwomenstalk.com/pretty-night-dresses-for-hot-summer-nights/)
-- [popular homecoming dresses](https://teen.allwomenstalk.com/stunning-homecoming-dresses/)
 - [dress from indecent proposal](https://fashion.allwomenstalk.com/captivating-cut-out-dresses-you-can-pick-up-at-nordstrom/)
 - [dress for wide hips](https://wedding.allwomenstalk.com/wedding-dress-styles-that-are-absolutely-beautiful/)
-- [kimono lolita dress](https://fashion.allwomenstalk.com/adorable-lolita-dresses/)
 - [best dresses for fall](https://fashion.allwomenstalk.com/of-the-best-dresses-for-fall/)
+- [night dress summer](https://fashion.allwomenstalk.com/pretty-night-dresses-for-hot-summer-nights/)
+- [stylish coat dress](https://fashion.allwomenstalk.com/beautiful-coat-dresses-that-will-make-you-feel-like-a-royal/)
+- [stunning wedding dresses](https://wedding.allwomenstalk.com/stunning-wedding-gowns-that-will-take-your-breath-away/)
+- [popular homecoming dresses](https://teen.allwomenstalk.com/stunning-homecoming-dresses/)
+- [tracy reese dresses nordstrom](https://fashion.allwomenstalk.com/great-wrap-dresses-you-can-find-at-nordstrom/)
+- [kimono lolita dress](https://fashion.allwomenstalk.com/adorable-lolita-dresses/)
+- [frozen bride](https://wedding.allwomenstalk.com/disneys-frozen-wedding-gown-has-finally-arrived/)
 - [7 Slip Dresses ...](https://fashion.allwomenstalk.com/slip-dresses/)
 - [7 Jersey Dresses ...](https://fashion.allwomenstalk.com/jersey-dresses/)
 

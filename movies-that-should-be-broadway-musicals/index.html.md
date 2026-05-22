@@ -3,7 +3,7 @@ title: "8 Movies That Should Be Broadway Musicals ..."
 description: "Mean Girls; Slumdog Millionaire; Billy Madison; The Devil Wears Prada; South Park: Bigger, Longer, and Uncut; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Movies That Should Be Broadway Musicals ...
@@ -62,16 +62,16 @@ There has been a long-standing tradition of movies being turned into Broadway mu
 
 ## Related Posts
 
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
 - [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
 - [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
 - [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
-- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

@@ -3,7 +3,7 @@ title: "7 Marvelous Ed Norton Movies That Make Us Love Him ..."
 description: "American History X; Death to Smoochy; Fight Club; Moonrise Kingdom; Rounders; More ..."
 url: "https://movies.allwomenstalk.com/marvelous-ed-norton-movies-that-make-us-love-him/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Marvelous Ed Norton Movies That Make Us Love Him ...
@@ -56,15 +56,15 @@ Call me crazy, but I think Edward Norton is a bit of a sex symbol. I don't know 
 
 ## Related Posts
 
-- [9 Marvelous Movies Set in New York ...](https://bilbr.com/marvelous-movies-set-in-new-york/)
-- [7 Films to Get You in the Christmas Spirit ...](https://bilbr.com/films-to-get-you-in-the-christmas-spirit/)
 - [7 True Crime Documentaries to Add to Your Must-Wat...](https://movies.allwomenstalk.com/true-crime-documentaries-to-add-to-your-must-watch-list/)
-- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
-- [7 Real Life Whistleblowers Portrayed in the Movies...](https://movies.allwomenstalk.com/real-life-whistleblowers-portrayed-in-the-movies/)
-- [11 Absolutely Classic Movies That Originally Bombe...](https://bilbr.com/absolutely-classic-movies-that-originally-bombed/)
+- [7 Films to Get You in the Christmas Spirit ...](https://bilbr.com/films-to-get-you-in-the-christmas-spirit/)
 - [7 Upcoming Winter Movies to Look Forward to ...](https://bilbr.com/upcoming-winter-movies-to-look-forward-to/)
-- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
+- [11 Absolutely Classic Movies That Originally Bombe...](https://bilbr.com/absolutely-classic-movies-that-originally-bombed/)
 - [13 of the Most Anticipated Movies of 2014 ...](https://bilbr.com/of-the-most-anticipated-movies-of/)
+- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
+- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
+- [9 Marvelous Movies Set in New York ...](https://bilbr.com/marvelous-movies-set-in-new-york/)
+- [7 Real Life Whistleblowers Portrayed in the Movies...](https://movies.allwomenstalk.com/real-life-whistleblowers-portrayed-in-the-movies/)
 - [7 Festive Romantic Comedies You Need to Watch This...](https://movies.allwomenstalk.com/festive-romantic-comedies-you-need-to-watch-this-holiday-season/)
 - [10 Action Movies I Love and Why ...](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)

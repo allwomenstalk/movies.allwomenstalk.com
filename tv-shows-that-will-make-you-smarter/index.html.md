@@ -3,7 +3,7 @@ title: "Top TV Shows to Improve Your IQ ..."
 description: "QI; Mythbusters; Planet Earth; Redesign My Brain; Mad Men; More ..."
 url: "https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Top TV Shows to Improve Your IQ ...
@@ -56,16 +56,16 @@ Are you looking forward to watching some of these shows? I’ve seen each and ev
 
 ## Related Posts
 
-- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
-- [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
-- [ice bucket fails](https://funny.allwomenstalk.com/lets-watch-the-best-ever-ice-bucket-challenge-fails-shall-we/)
-- [which of celestinas biggest hits speaks to you the...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
-- [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
-- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
-- [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
-- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
-- [youtubers like bethany mota](https://movies.allwomenstalk.com/relatable-youtubers-you-must-add-to-your-subscription-box/)
 - [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
+- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
+- [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
+- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
+- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
+- [youtubers like bethany mota](https://movies.allwomenstalk.com/relatable-youtubers-you-must-add-to-your-subscription-box/)
+- [which of celestinas biggest hits speaks to you the...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
+- [ice bucket fails](https://funny.allwomenstalk.com/lets-watch-the-best-ever-ice-bucket-challenge-fails-shall-we/)
+- [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
+- [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
 - [7 Amazing Brain Training Apps to Try Today ...](https://apps.allwomenstalk.com/brain-training-apps/)
 - [Efficient Ways to Increase Your Emotional Intellig...](https://inspiration.allwomenstalk.com/very-efficient-ways-to-raise-your-emotional-intelligence/)
 

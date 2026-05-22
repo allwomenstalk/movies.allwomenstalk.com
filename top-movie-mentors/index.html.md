@@ -3,7 +3,7 @@ title: "8 Top Movie Mentors ..."
 description: "Yoda from Star Wars; Professor Charles Xavier from X-Men; Gordon Gecko from Wall Street; Mr. Miyagi from the Karate Kid (original); John Keating from Dead Poets Society; More ..."
 url: "https://movies.allwomenstalk.com/top-movie-mentors/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Top Movie Mentors ...
@@ -54,16 +54,16 @@ Do you agree with my list of movie mentors? Who would you have included? And Iâ€
 
 ## Related Posts
 
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
-- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
-- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 - [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
+- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 

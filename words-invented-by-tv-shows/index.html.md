@@ -3,7 +3,7 @@ title: "9 Words Invented by TV Shows ..."
 description: "Omnishambles; Muppet; Khaleesi; Platonish; Cromulent; More ..."
 url: "https://movies.allwomenstalk.com/words-invented-by-tv-shows/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Words Invented by TV Shows ...
@@ -68,16 +68,16 @@ Because of their overwhelming popularity, TV shows can easily influence the lang
 
 ## Related Posts
 
-- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
-- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
-- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
-- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
-- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
-- [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
-- [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
 - [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
-- [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
+- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
+- [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
 - [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
+- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
+- [pickup line espaol](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
+- [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
+- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
+- [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
+- [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 - [9 Interesting Facts about Mythology ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 

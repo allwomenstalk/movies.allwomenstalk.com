@@ -3,7 +3,7 @@ title: "9 Celebrities Open up about Filming Those Awkward Sex Scenes ..."
 description: "Shailene Woodley; Lena Dunham; Jeff Perry; Robert Pattinson; Mila Kunis; More ..."
 url: "https://movies.allwomenstalk.com/celebrities-open-up-about-filming-those-awkward-sex-scenes/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Celebrities Open up about Filming Those Awkward Sex Scenes ...
@@ -50,16 +50,16 @@ The next time you watch a sex scene, you can be pretty sure that those actors fe
 
 ## Related Posts
 
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
+- [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
 - [celebrities unicef](https://celebs.allwomenstalk.com/celebrities-share-makeup-free-selfies-for-new-unicef-campaign/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-5/)
 - [Celebs Share Voting Day Selfies to Encourage Fans ...](https://celebs.allwomenstalk.com/celebs-share-voting-day-selfies-to-encourage-fans-to-vote/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-3/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-5/)
+- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
+- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-2/)
 - [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-4/)
 - [tbt posts](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-3/)
-- [10 Celebrity Posts You Mightve Missed This Weekend...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-3/)
-- [10 Celebrity TBT Posts You Mightve Missed This Wee...](https://celebs.allwomenstalk.com/celebrity-tbt-posts-you-mightve-missed-this-week-2/)
-- [10 Celebrity TBT Photos You May Have Missed This W...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-2/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [7 Hottest Nude Movie Scenes ...](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
 

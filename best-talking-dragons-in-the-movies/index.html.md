@@ -3,7 +3,7 @@ title: "7 Best Talking Dragons in the Movies ..."
 description: "Falkor the Luck Dragon; Draco; Smaug; Elliot; Saphira; More ..."
 url: "https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Best Talking Dragons in the Movies ...
@@ -42,16 +42,16 @@ There are some amazing dragons in the movies – like the one the Potter kids es
 
 ## Related Posts
 
+- [the dhamma brothers trailer](https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/)
 - [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
+- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
 - [best dads in movies](https://movies.allwomenstalk.com/greatest-movie-dads-that-you-cant-help-but-love/)
+- [spoofing movies](https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/)
+- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
+- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
+- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
 - [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
 - [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
-- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
-- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
-- [spoofing movies](https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/)
-- [the dhamma brothers trailer](https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/)
-- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
-- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

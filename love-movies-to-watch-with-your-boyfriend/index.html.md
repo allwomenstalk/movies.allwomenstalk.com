@@ -3,7 +3,7 @@ title: "29 Love Movies to Watch with Your Boyfriend ..."
 description: "I Love You, Man; The Break-up; Couples Retreat; Date Night; Love & Other Drugs; More ..."
 url: "https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 29 Love Movies to Watch with Your Boyfriend ...
@@ -132,13 +132,13 @@ So girls, there is my top 29 love movies to watch with your boyfriend when the w
 
 - [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
 - [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
-- [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
 - [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
-- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
+- [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
 - [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
 - [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
+- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
 - [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [8 Comedies to Watch with Your Boyfriend ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)

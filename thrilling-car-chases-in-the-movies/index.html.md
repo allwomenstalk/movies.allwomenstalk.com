@@ -3,7 +3,7 @@ title: "7 Thrilling Car Chases in the Movies ..."
 description: "The Matrix Reloaded; Terminator 2: Judgment Day; Die Hard with a Vengeance; Thelma and Louise; Ted; More ..."
 url: "https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Thrilling Car Chases in the Movies ...
@@ -60,16 +60,16 @@ Which do you think should have got a mention?
 
 ## Related Posts
 
+- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
+- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
 - [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
 - [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
 

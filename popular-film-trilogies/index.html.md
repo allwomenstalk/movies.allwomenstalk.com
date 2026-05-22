@@ -3,7 +3,7 @@ title: "9 Popular Film Trilogies to Watch on a Rainy Day ..."
 description: "The Lord of the Rings Trilogy; The Dark Knight Trilogy; The Toy Story Trilogy; The Matrix Trilogy; Star Wars Episodes IV-VI; More ..."
 url: "https://movies.allwomenstalk.com/popular-film-trilogies/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Popular Film Trilogies to Watch on a Rainy Day ...
@@ -68,16 +68,16 @@ These are a few of the most popular film trilogies around. Which of these films 
 
 ## Related Posts
 
-- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
+- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
+- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
+- [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
 - [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
 - [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
 - [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
-- [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

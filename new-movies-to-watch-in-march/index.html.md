@@ -3,7 +3,7 @@ title: "New Movies to Watch in March 2018 ..."
 description: "A Wrinkle in Time - March 9; The Strangers: Prey at Night - March 9; Tomb Raider - March 16; Pacific Rim Uprising - March 23; Ready Player One - March 30; More ..."
 url: "https://movies.allwomenstalk.com/new-movies-to-watch-in-march/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # New Movies to Watch in March 2018 ...
@@ -36,14 +36,14 @@ So which film are you most excited about? Are there any you have no interest in 
 
 - [Movies to Look Forward  to in 2018 Part II ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/)
 - [Movies to Look Forward  to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
-- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
-- [20 Movies to Look Forward to Watching in 2019 ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-watching-in/)
 - [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
+- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
 - [best chick flicks](https://7fun.net/best-ever-chick-flicks-every-girl-should-see-at-least-once/)
+- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
+- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
 - [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
 - [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
-- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
-- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
+- [20 Movies to Look Forward to Watching in 2019 ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-watching-in/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 - [7 Awesome New Movies I Cant Wait to Come out ...](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 

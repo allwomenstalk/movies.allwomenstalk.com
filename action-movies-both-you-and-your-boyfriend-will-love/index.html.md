@@ -3,7 +3,7 @@ title: "7 Action Movies Both You and Your Boyfriend Will Love ..."
 description: "The a-Team; Red 2; Parker; Lawless; Warrior; More ..."
 url: "https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Action Movies Both You and Your Boyfriend Will Love ...
@@ -43,15 +43,15 @@ These action movies were all enjoyable to both my husband and I. What action mov
 ## Related Posts
 
 - [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
-- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
-- [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
 - [to make you feel my love movie](https://movies.allwomenstalk.com/romantic-films-thatll-make-you-feel-the-love/)
-- [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
-- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
 - [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
-- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
+- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
 - [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
+- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
+- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
+- [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
+- [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

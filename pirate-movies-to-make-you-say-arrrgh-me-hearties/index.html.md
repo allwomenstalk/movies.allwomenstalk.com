@@ -3,7 +3,7 @@ title: "7 Pirate Movies to Make You Say Arrrgh Me Hearties ..."
 description: "Blackbeard’s Ghost; Pirates of the Caribbean: the Curse of the Black Pearl; Treasure Island; The Crimson Pirate; Disney’s Peter Pan; More ..."
 url: "https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Pirate Movies to Make You Say Arrrgh Me Hearties ...
@@ -56,13 +56,13 @@ I think there’s something for everyone in pirate movies – all members of the
 
 ## Related Posts
 
+- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
 - [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
+- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
 - [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
 - [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
-- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
-- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
 - [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
 - [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)

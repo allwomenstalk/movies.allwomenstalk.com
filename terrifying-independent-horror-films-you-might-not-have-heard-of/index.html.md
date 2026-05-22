@@ -3,7 +3,7 @@ title: "7 Terrifying Independent Horror FIlms You Might Not Have Heard of ..."
 description: "Byzantium (2012); Wake Wood (2010); Citadel (2012); The Loved Ones (2009); Fritt Vilt (Cold Prey – 2006); More ..."
 url: "https://movies.allwomenstalk.com/terrifying-independent-horror-films-you-might-not-have-heard-of/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Terrifying Independent Horror FIlms You Might Not Have Heard of ...
@@ -42,16 +42,16 @@ Checking out independent horror films is a great way to get your horror fix if t
 
 ## Related Posts
 
+- [9 of the Greatest Ever Movie Love Stories ...](https://bilbr.com/of-the-greatest-ever-movie-love-stories/)
+- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
+- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
+- [13 of the Most Anticipated Movies of 2014 ...](https://bilbr.com/of-the-most-anticipated-movies-of/)
 - [7 Marvelous Ed Norton Movies That Make Us Love Him...](https://movies.allwomenstalk.com/marvelous-ed-norton-movies-that-make-us-love-him/)
+- [7 Items of Movie News Youre Going to Love ...](https://movies.allwomenstalk.com/items-of-movie-news-youre-going-to-love/)
+- [11 Absolutely Classic Movies That Originally Bombe...](https://bilbr.com/absolutely-classic-movies-that-originally-bombed/)
 - [movies to watch on vacation](https://movies.allwomenstalk.com/movies-not-to-watch-before-your-vacation/)
 - [7 True Crime Documentaries to Add to Your Must-Wat...](https://movies.allwomenstalk.com/true-crime-documentaries-to-add-to-your-must-watch-list/)
 - [7 Upcoming Winter Movies to Look Forward to ...](https://bilbr.com/upcoming-winter-movies-to-look-forward-to/)
-- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
-- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
-- [13 of the Most Anticipated Movies of 2014 ...](https://bilbr.com/of-the-most-anticipated-movies-of/)
-- [11 Absolutely Classic Movies That Originally Bombe...](https://bilbr.com/absolutely-classic-movies-that-originally-bombed/)
-- [7 Items of Movie News Youre Going to Love ...](https://movies.allwomenstalk.com/items-of-movie-news-youre-going-to-love/)
-- [9 of the Greatest Ever Movie Love Stories ...](https://bilbr.com/of-the-greatest-ever-movie-love-stories/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 

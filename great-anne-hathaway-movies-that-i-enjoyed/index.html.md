@@ -3,7 +3,7 @@ title: "7 Great Anne Hathaway Movies That I Enjoyed ..."
 description: "The Princess Diaries; One Day; Les Miserables; Ella Enchanted; The Devil Wears Prada; More ..."
 url: "https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Great Anne Hathaway Movies That I Enjoyed ...
@@ -56,16 +56,16 @@ Anne Hathaway is a very talented actress who has started in a varied collection 
 
 ## Related Posts
 
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
 - [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
-- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
 - [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
-- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
-- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
 - [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 - [7 of My Favorite Jane Austen Movies ...](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 

@@ -3,7 +3,7 @@ title: "7 Saturday Night Live Characters We Miss ..."
 description: "Opera Man/Cajun Man; The Blues Brothers; Stefon, Weekend Update; Craig and Arianna, Spartan Spirit; Drunk Uncle-Weekend Update; More ..."
 url: "https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Saturday Night Live Characters We Miss ...
@@ -50,14 +50,14 @@ I know I've missed several characters here, but there is only so much time in a 
 
 ## Related Posts
 
-- [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
-- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
 - [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
 - [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
-- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
 - [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
+- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
 - [michael che sister](https://movies.allwomenstalk.com/hilarious-sketch-comedy-shows-besides-snl/)
+- [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
 - [riche stylo sky](https://lifestyle.allwomenstalk.com/types-of-clouds-to-watch-when-gazing-at-the-sky/)
+- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
 - [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
 - [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)

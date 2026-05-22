@@ -3,7 +3,7 @@ title: "Top 10 Must-See Richard Curtis Movies ..."
 description: "Bridget Jones’s Diary (Writer); Notting Hill (Writer/Producer); Four Weddings and a Funeral (Writer/ Co-producer); Love Actually; The Boat That Rocked (Director/ Writer / Producer); More ..."
 url: "https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Top 10 Must\-See Richard Curtis Movies ...
@@ -56,16 +56,16 @@ Top Photo Credit: [pinterest.com](https://www.pinterest.com/pin/8908689884892664
 
 ## Related Posts
 
+- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
+- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
 - [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
-- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
 - [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
 - [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
 - [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
-- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
-- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
-- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
+- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 

@@ -3,7 +3,7 @@ title: "9 Devastatingly Disastrous Movie Remakes ..."
 description: "Psycho; Piranha; The Ladykillers; Cape Fear; Dinner for Schmucks; More ..."
 url: "https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Devastatingly Disastrous Movie Remakes ...
@@ -52,15 +52,15 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/13736271)
 
 ## Related Posts
 
-- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
 - [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
+- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
 - [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
 - [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
-- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
+- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
 - [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
-- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
+- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
 - [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
+- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
 - [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)

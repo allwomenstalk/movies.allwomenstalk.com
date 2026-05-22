@@ -3,7 +3,7 @@ title: "8 Age-Defying Archaeological Movies You Should Really Dig ..."
 description: "The Mummy; Stargate; Sahara; Lara Croft, Tomb Raider; Jurassic Park; More ..."
 url: "https://movies.allwomenstalk.com/age-defying-archaeological-movies-you-should-really-dig/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Age\-Defying Archaeological Movies You Should Really Dig ...
@@ -52,12 +52,12 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/11972590)
 - [Top 8 Crazy Christmas Comedies to See ...](https://7fun.net/top-crazy-christmas-comedies-to-see/)
 - [my favourite](https://movies.allwomenstalk.com/of-my-favorite-action-movies/)
 - [7 Incredible Cult Movies Not to Miss ...](https://movies.allwomenstalk.com/incredible-cult-movies-not-to-miss/)
-- [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
+- [funny sports movie](https://movies.allwomenstalk.com/super-funny-sports-movies/)
+- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
 - [Top 10 Biggest Box Office Hits of All Time ...](https://movies.allwomenstalk.com/top-biggest-box-office-hits-of-all-time/)
 - [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)
-- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
+- [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [What Are the Twilight Movies: 10 Things to Know ab...](https://movies.allwomenstalk.com/what-are-the-twilight-movies-10-things-to-know-about-twilight-saga/)
-- [funny sports movie](https://movies.allwomenstalk.com/super-funny-sports-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

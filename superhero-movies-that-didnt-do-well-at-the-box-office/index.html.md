@@ -3,7 +3,7 @@ title: "7 Superhero Movies That Didnt do Well at the Box Office ..."
 description: "Steel; Elektra; Green Lantern; Catwoman; Superman IV: the Quest for Peace; More ..."
 url: "https://movies.allwomenstalk.com/superhero-movies-that-didnt-do-well-at-the-box-office/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Superhero Movies That Didnt do Well at the Box Office ...
@@ -42,16 +42,16 @@ Any more Superhero movies that you know that failed terribly in the box office? 
 
 ## Related Posts
 
-- [7 Wonderful Movies about Food You Need to See ...](https://movies.allwomenstalk.com/wonderful-movies-about-food-you-need-to-see/)
-- [10 Amazing Movies That Never Won an Oscar ...](https://bilbr.com/amazing-movies-that-never-won-an-oscar/)
-- [women in sports movies](https://movies.allwomenstalk.com/sports-movies-about-women/)
+- [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
 - [Epic Fail: Sin City Sequel Flops at the Box Office...](https://movies.allwomenstalk.com/epic-fail-sin-city-sequel-flops-at-the-box-office/)
 - [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
-- [85 Original Movie Posters from then Til Now ...](https://bilbr.com/original-movie-posters-from-then-til-now/)
-- [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
-- [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
+- [7 Wonderful Movies about Food You Need to See ...](https://movies.allwomenstalk.com/wonderful-movies-about-food-you-need-to-see/)
 - [7 Exciting Movies to Watch out for in 2015 ...](https://movies.allwomenstalk.com/exciting-movies-to-watch-out-for-in/)
+- [women in sports movies](https://movies.allwomenstalk.com/sports-movies-about-women/)
+- [85 Original Movie Posters from then Til Now ...](https://bilbr.com/original-movie-posters-from-then-til-now/)
 - [7 Movies of 2015 That Are Already Stirring up Exci...](https://movies.allwomenstalk.com/movies-of-that-are-already-stirring-up-excitement/)
+- [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
+- [10 Amazing Movies That Never Won an Oscar ...](https://bilbr.com/amazing-movies-that-never-won-an-oscar/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

@@ -3,7 +3,7 @@ title: "OMG! Making a Murderer is Coming to Netflix and Heres Why You Need to Wa
 description: "We Get to Meet Steven Avery's New Defense Lawyer; We Get a Look at Brendan Dassey's Team, Too; Laura Ricciardi and Moira Demos Aren't Finished Yet 🎥; But Some People Wish They Were 😤; We'll Get to See How Steven's Handling the Aftermath; More ..."
 url: "https://movies.allwomenstalk.com/omg-making-a-murderer-is-coming-to-netflix-and-heres-why-you-need-to-watch-it/"
 category: "movies"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # OMG! Making a Murderer is Coming to Netflix and Heres Why You Need to Watch It ...
@@ -52,14 +52,14 @@ There's no release date yet, unfortunately, so that's the next piece of news to 
 
 - [Short Story : the German Lady ...](https://books.allwomenstalk.com/short-story-called-the-german-lady/)
 - [7 Insanely Awesome Shows to Fill the Void Left by ...](https://movies.allwomenstalk.com/insanely-awesome-shows-to-fill-the-void-left-by-game-of-thrones/)
-- [The Best of the MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
-- [Your Dark Side Will Flip over the New Goth Latte T...](https://food.allwomenstalk.com/your-dark-side-will-flip-over-the-new-goth-latte-taking-the-world-by-storm/)
 - [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
-- [...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
-- [9 Game of Thrones Deaths Were Still Not over ...](https://movies.allwomenstalk.com/game-of-thrones-deaths-we-are-still-not-over/)
 - [Short Story : the Rise and Fall  of Martha ...](https://books.allwomenstalk.com/short-story-called-the-rise-and-fall-of-martha/)
+- [Your Dark Side Will Flip over the New Goth Latte T...](https://food.allwomenstalk.com/your-dark-side-will-flip-over-the-new-goth-latte-taking-the-world-by-storm/)
+- [The Best of the MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
+- [...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
 - [Showbiz Story: the Time I Met Vince Gilligan ...](https://celebs.allwomenstalk.com/the-time-i-met-vince-gilligan/)
 - [Hot New TV Shows to Check out This Fall ...](https://movies.allwomenstalk.com/hot-new-tv-shows-to-check-out-this-fall/)
+- [9 Game of Thrones Deaths Were Still Not over ...](https://movies.allwomenstalk.com/game-of-thrones-deaths-we-are-still-not-over/)
 - [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
 - [Kevin Spacey: Its Gossip Bottom Line...](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
 
