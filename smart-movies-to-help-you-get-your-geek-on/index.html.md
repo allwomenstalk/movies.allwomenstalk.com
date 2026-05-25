@@ -3,7 +3,7 @@ title: "9 Smart Movies to Help You Get Your Geek on ..."
 description: "Hackers; War Games; Star Wars; Untraceable; Eagle Eye; More ..."
 url: "https://movies.allwomenstalk.com/smart-movies-to-help-you-get-your-geek-on/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Smart Movies to Help You Get Your Geek on ...
@@ -59,16 +59,16 @@ If you're a nerdy girl like me, you have your pick of movies that really make yo
 
 ## Related Posts
 
-- [7 Amazing K-Dramas You Must Watch ...](https://movies.allwomenstalk.com/amazing-k-dramas-you-must-watch/)
-- [7 Foreign Movies to Add to Your Movie Collection ....](https://movies.allwomenstalk.com/foreign-movies-to-add-to-your-movie-collection/)
-- [7 Netflix Originals to Watch out for ...](https://movies.allwomenstalk.com/netflix-originals-to-watch-out-for/)
-- [7 Movies That Are Now Ten Years Old - Can You Beli...](https://movies.allwomenstalk.com/movies-that-are-now-ten-years-old-can-you-believe-it/)
-- [7 Summer Blockbusters Worth Checking out This Year...](https://movies.allwomenstalk.com/summer-blockbusters-worth-checking-out-this-year/)
-- [7 Books Made into Movies That Youll Love ...](https://books.allwomenstalk.com/books-made-into-movies-that-youll-love/)
 - [7 Best Teen Dramas for Your Entertainment ...](https://teen.allwomenstalk.com/best-teen-dramas-for-your-entertainment/)
 - [movies based on shakespeare plots](https://movies.allwomenstalk.com/surprising-movies-based-on-shakespeares-plays/)
-- [7 Superhero Movies That Didnt do Well at the Box O...](https://movies.allwomenstalk.com/superhero-movies-that-didnt-do-well-at-the-box-office/)
+- [7 Amazing K-Dramas You Must Watch ...](https://movies.allwomenstalk.com/amazing-k-dramas-you-must-watch/)
 - [7 Best Cop Buddy Movies and TV Shows ...](https://7fun.net/best-cop-buddy-movies-and-tv-shows/)
+- [7 Superhero Movies That Didnt do Well at the Box O...](https://movies.allwomenstalk.com/superhero-movies-that-didnt-do-well-at-the-box-office/)
+- [7 Summer Blockbusters Worth Checking out This Year...](https://movies.allwomenstalk.com/summer-blockbusters-worth-checking-out-this-year/)
+- [7 Movies That Are Now Ten Years Old - Can You Beli...](https://movies.allwomenstalk.com/movies-that-are-now-ten-years-old-can-you-believe-it/)
+- [7 Netflix Originals to Watch out for ...](https://movies.allwomenstalk.com/netflix-originals-to-watch-out-for/)
+- [7 Books Made into Movies That Youll Love ...](https://books.allwomenstalk.com/books-made-into-movies-that-youll-love/)
+- [7 Foreign Movies to Add to Your Movie Collection ....](https://movies.allwomenstalk.com/foreign-movies-to-add-to-your-movie-collection/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 - [9 Inspiring Underdog Movies Youll Love ...](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
 

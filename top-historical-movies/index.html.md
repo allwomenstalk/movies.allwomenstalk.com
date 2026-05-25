@@ -3,7 +3,7 @@ title: "8 Top Historical Movies ..."
 description: "Gone with the Wind; Saving Private Ryan; Schindler's List; Ben-Hur; Spartacus; More ..."
 url: "https://movies.allwomenstalk.com/top-historical-movies/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Top Historical Movies ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20159047)
 
 ## Related Posts
 
-- [johnny depp films list](https://movies.allwomenstalk.com/top-johnny-depp-movies/)
 - [Top 8 Musicals of All Time ...](https://movies.allwomenstalk.com/top-musicals-of-all-time/)
-- [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [cop thrillers](https://movies.allwomenstalk.com/best-cop-movies-you-cant-resist/)
-- [best vintage christmas movies](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
-- [2011 famous movies](https://movies.allwomenstalk.com/best-movies-of-fall/)
+- [johnny depp films list](https://movies.allwomenstalk.com/top-johnny-depp-movies/)
+- [movies that are based on books](https://movies.allwomenstalk.com/movies-based-on-books/)
 - [What Are the Twilight Movies: 10 Things to Know ab...](https://movies.allwomenstalk.com/what-are-the-twilight-movies-10-things-to-know-about-twilight-saga/)
 - [8 Awesome Movie Directors Youll Love ...](https://movies.allwomenstalk.com/awesome-movie-directors-youll-love/)
-- [movies that are based on books](https://movies.allwomenstalk.com/movies-based-on-books/)
+- [best vintage christmas movies](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 - [watch new movies for free websites](https://movies.allwomenstalk.com/websites-where-you-can-watch-movies-online/)
+- [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
+- [2011 famous movies](https://movies.allwomenstalk.com/best-movies-of-fall/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 

@@ -3,7 +3,7 @@ title: "Movies on Netflix for Girls Bored of TV ..."
 description: "Strictly Ballroom; Beginners; Beyond the Lights; Tangerine; Seeking a Friend for the End of the World; More ..."
 url: "https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Movies on Netflix for Girls Bored of TV ...
@@ -80,16 +80,16 @@ A touching independent movie starring Katherine Heigl and Alexis Bledel as an en
 
 ## Related Posts
 
-- [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
 - [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
+- [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
 - [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
-- [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
-- [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
 - [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
-- [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
+- [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
+- [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
+- [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

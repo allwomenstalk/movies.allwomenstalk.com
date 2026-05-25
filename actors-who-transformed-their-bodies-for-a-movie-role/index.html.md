@@ -3,7 +3,7 @@ title: "Unbelievable Movie Transformations and the Actors Who Pulled Them off ..
 description: "Christian Bale; Matthew McConaughey; Tom Hanks; Charlize Theron; Natalie Portman; More ..."
 url: "https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Unbelievable Movie Transformations and the Actors Who Pulled Them off ...
@@ -44,7 +44,7 @@ For her role as an obsessive ballerina in 'Black Swan,' Portman lost 20 lbs on a
 
 ![Rooney Mara](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/zx/qs/keimtc3l_600x780.jpg)
 
-Mara's character in 'The Girl with the Dragon Tattoo' was anything but glamorous, and accordingly, the actress received several [facial piercings](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/), and had her hair chopped off and her eyebrows bleached.
+Mara's character in 'The Girl with the Dragon Tattoo' was anything but glamorous, and accordingly, the actress received several facial piercings, and had her hair chopped off and her eyebrows bleached.
 
 ## 7. 50 Cent
 
@@ -56,15 +56,15 @@ It's really impressive and also a bit scary to consider the things that actors w
 
 ## Related Posts
 
-- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
+- [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
+- [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
+- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
 - [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
-- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
-- [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
-- [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
-- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
+- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
+- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
 - [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)

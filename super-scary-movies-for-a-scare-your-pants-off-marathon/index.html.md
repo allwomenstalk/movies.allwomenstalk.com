@@ -3,7 +3,7 @@ title: "7 Super Scary Movies for a Scare Your Pants off Marathon ..."
 description: "The Exorcist; Nightmare on Elm Street; Scream; The Amityville Horror; Hostel; More ..."
 url: "https://movies.allwomenstalk.com/super-scary-movies-for-a-scare-your-pants-off-marathon/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Super Scary Movies for a Scare Your Pants off Marathon ...
@@ -49,16 +49,16 @@ You might never sleep again after your scary movie marathon, but it will be wort
 
 ## Related Posts
 
-- [jean reno medieval movie](https://movies.allwomenstalk.com/of-my-favorite-movies-starring-jean-reno/)
-- [lifetime movies about cheerleaders](https://movies.allwomenstalk.com/classic-lifetime-movies-that-every-girl-should-see-at-least-once-in-her-life/)
-- [movies that jennifer lawrence played in](https://movies.allwomenstalk.com/interesting-movies-featuring-jennifer-lawrence/)
-- [scary movie window scene](https://movies.allwomenstalk.com/creepiest-windows-in-film-that-will-scare-the-daylights-out-of-you/)
-- [characters in harry potter movies](https://movies.allwomenstalk.com/harry-potter-characters-that-should-have-been-in-the-movies/)
-- [movies for ladies night](https://movies.allwomenstalk.com/movies-to-watch-for-a-girls-night-in/)
 - [best anti heroes in movies](https://movies.allwomenstalk.com/electrifying-vigilante-movies-and-their-marvelous-anti-heroes/)
+- [lifetime movies about cheerleaders](https://movies.allwomenstalk.com/classic-lifetime-movies-that-every-girl-should-see-at-least-once-in-her-life/)
 - [witty characters](https://movies.allwomenstalk.com/funniest-movie-characters-we-all-adore-and-love/)
 - [julia roberts hot movies](https://movies.allwomenstalk.com/fabulous-julia-roberts-movies/)
+- [movies for ladies night](https://movies.allwomenstalk.com/movies-to-watch-for-a-girls-night-in/)
+- [movies that jennifer lawrence played in](https://movies.allwomenstalk.com/interesting-movies-featuring-jennifer-lawrence/)
+- [jean reno medieval movie](https://movies.allwomenstalk.com/of-my-favorite-movies-starring-jean-reno/)
 - [billy madiso](https://movies.allwomenstalk.com/movies-to-get-you-in-the-back-to-school-mood/)
+- [scary movie window scene](https://movies.allwomenstalk.com/creepiest-windows-in-film-that-will-scare-the-daylights-out-of-you/)
+- [characters in harry potter movies](https://movies.allwomenstalk.com/harry-potter-characters-that-should-have-been-in-the-movies/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
 

@@ -3,7 +3,7 @@ title: "9 80s Film Characters We Would Love to Be ..."
 description: "Sgt Lavell Jones (Police Academy); Josh Baskin (Big); Veronica Sawyer (Heathers); Uncle Buck (Uncle Buck); Any of the Ghostbusters (Ghostbusters); More ..."
 url: "https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 80s Film Characters We Would Love to Be ...
@@ -68,16 +68,16 @@ The 1980s had so many great films that have become classics that it's hard to pi
 
 ## Related Posts
 
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
 - [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
 - [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
+- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
 - [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
 - [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [8 Sexiest Movie Characters ...](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 

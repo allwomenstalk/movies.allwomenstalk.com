@@ -3,7 +3,7 @@ title: "7 Disney Movies Set in the UK ..."
 description: "Candleshoe (1977); 101 Dalmatians (1996); Brave (2012); The Sword in the Stone (1963); One of Our Dinosaurs is Missing (1975); More ..."
 url: "https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Disney Movies Set in the UK ...
@@ -49,16 +49,16 @@ So come let’s go fly a kite and then come back to applaud the genius entertain
 
 ## Related Posts
 
-- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
-- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
-- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
-- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
-- [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
-- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
-- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
 - [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
 - [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
+- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
+- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
+- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
+- [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
+- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
+- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
+- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

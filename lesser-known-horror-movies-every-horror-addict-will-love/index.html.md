@@ -3,7 +3,7 @@ title: "6 Lesser Known Horror Movies Every Horror Addict Will Love ..."
 description: "Annabelle 2; Conjuring 2; Friend Request; Don’t Breathe; Lights out; More ..."
 url: "https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 6 Lesser Known  Horror Movies Every Horror Addict Will Love ...
@@ -36,16 +36,16 @@ Matilda was worried about her boyfriend, who watched a mysterious videotape that
 
 ## Related Posts
 
-- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
 - [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
-- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
-- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
-- [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
-- [girl party movies](https://movies.allwomenstalk.com/best-chick-flicks-for-a-slumber-party/)
-- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
-- [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
 - [movies about hunting animals](https://movies.allwomenstalk.com/best-animal-movies-to-watch-with-your-kids/)
 - [2007 romantic movies](https://movies.allwomenstalk.com/romantic-movies-for-a-solo-night-in/)
+- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
+- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
+- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
+- [girl party movies](https://movies.allwomenstalk.com/best-chick-flicks-for-a-slumber-party/)
+- [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
+- [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
+- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
 - [5 More Awesome Vampire Movies ...](https://twilight.allwomenstalk.com/5-more-awesome-vampire-movies/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 

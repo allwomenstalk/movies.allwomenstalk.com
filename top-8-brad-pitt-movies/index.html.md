@@ -3,7 +3,7 @@ title: "Top 7 Brad Pitt Movies ..."
 description: "Meet Joe Black; Snatch; A River Runs through It; Legends of the Fall; Ocean’s Eleven; More ..."
 url: "https://movies.allwomenstalk.com/top-8-brad-pitt-movies/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Top 7 Brad Pitt Movies ...
@@ -67,14 +67,14 @@ Top Photo Credit: [The EFP](https://www.flickr.com/photos/28830122@N04/327737557
 
 - [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
 - [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
-- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
 - [nice movies to watch with your boyfriend](https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/)
-- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
-- [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
-- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
+- [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
+- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
 - [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
+- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 - [7 Highest Grossing Films in History ...](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
 

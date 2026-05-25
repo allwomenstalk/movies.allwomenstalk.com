@@ -3,7 +3,7 @@ title: "7 Awesome Old-School Vampire Flicks ..."
 description: "Vampire in Brooklyn; Fright Night; Shadow of the Vampire; The Lost Boys; From Dusk Till Dawn; More ..."
 url: "https://movies.allwomenstalk.com/awesome-old-school-vampire-flicks/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Awesome Old\-School Vampire Flicks ...
@@ -44,16 +44,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1731077978722494
 
 ## Related Posts
 
-- [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
-- [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
-- [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
-- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
-- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
-- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
-- [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
-- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
+- [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
+- [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
 - [movies set in paris](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
+- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
+- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
+- [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
+- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
+- [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
+- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Werewolf Movies ...](https://twilight.allwomenstalk.com/5-werewolf-movies/)
 

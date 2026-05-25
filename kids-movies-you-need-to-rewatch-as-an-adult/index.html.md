@@ -3,7 +3,7 @@ title: "11 Kids Movies You Need to Rewatch as an Adult ..."
 description: "Frozen; Puss in Boots; Shrek; Tangled; Up; More ..."
 url: "https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 11 Kids Movies You Need to Rewatch as an Adult ...
@@ -58,16 +58,16 @@ These are just some of the movies you can indulge in as an adult and they prove 
 
 ## Related Posts
 
+- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
 - [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [princesses in movies](https://movies.allwomenstalk.com/grab-a-bucket-of-popcorn-and-your-bucketlist-9-princess-movies-to-see-before-you-die/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
-- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
 - [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
 - [saddest rom coms](https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/)
+- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
 - [films for sleepovers](https://movies.allwomenstalk.com/so-bad-that-theyre-good-awful-movies-to-enjoy-at-your-next-sleepover/)
-- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
 - [11 Best Childrens Movies of 2009 ...](https://allwomenstalk.com/best-childrens-movies-of/)
 - [8 Cartoons Shows Adults Can Watch and like ...](https://allwomenstalk.com/8-cartoons-shows-adults-can-watch-and-like/)
 

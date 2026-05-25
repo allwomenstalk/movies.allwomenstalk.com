@@ -3,7 +3,7 @@ title: "7 Quirky Comedies on Netflix for Movie Night ..."
 description: "Frances Ha; GBF; Amelie; Penelope; Funny Face; More ..."
 url: "https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Quirky Comedies on Netflix for Movie Night ...
@@ -42,16 +42,16 @@ Every movie has a time and place - dramas, mysteries, thrillers - but sometimes 
 
 ## Related Posts
 
-- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
-- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
-- [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
-- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
-- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
 - [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
+- [films on disney plus uk](https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/)
+- [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
+- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
 - [jack black rock](https://movies.allwomenstalk.com/reasons-why-school-of-rock-is-the-best-jack-black-film-ever/)
+- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
 - [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
 - [film about a nanny](https://movies.allwomenstalk.com/movies-about-nannies/)
-- [films on disney plus uk](https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/)
+- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
+- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

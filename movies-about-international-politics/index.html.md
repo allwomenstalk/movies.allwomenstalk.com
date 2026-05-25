@@ -3,7 +3,7 @@ title: "7 Movies about International Politics ..."
 description: "Argo; Apocalypse Now; The Manchurian Candidate; Battle of Algiers; Children of Men; More ..."
 url: "https://movies.allwomenstalk.com/movies-about-international-politics/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Movies about International Politics ...
@@ -42,16 +42,16 @@ Although many movies about international politics may exaggerate or make humor o
 
 ## Related Posts
 
-- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
-- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
-- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
 - [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
-- [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
-- [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
-- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 - [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
 - [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
+- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
+- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
+- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
+- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

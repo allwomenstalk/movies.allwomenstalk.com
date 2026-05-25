@@ -3,7 +3,7 @@ title: "7 Excellent Adaptations by Andrew Davies ..."
 description: "Bridget Jones’s Diary; House of Cards; Northanger Abbey; Bleak House; Tipping the Velvet; More ..."
 url: "https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Excellent Adaptations by Andrew Davies ...
@@ -56,16 +56,16 @@ Andrew Davies has taken the classic works of the likes of Evelyn Waugh, William 
 
 ## Related Posts
 
-- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
-- [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
-- [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
-- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
-- [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
-- [high iq tv series](https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/)
 - [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
-- [which of celestinas biggest hits speaks to you the...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
-- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
 - [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
+- [high iq tv series](https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/)
+- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
+- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
+- [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
+- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
+- [which of celestinas biggest hits speaks to you the...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
+- [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
+- [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
 - [7 Best Book to Movie Adaptations ...](https://allwomenstalk.com/7-best-book-to-movie-adaptations/)
 - [7 Wonderful Shakespeare Movies ...](https://allwomenstalk.com/wonderful-shakespeare-movies/)
 

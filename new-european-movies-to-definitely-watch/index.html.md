@@ -3,7 +3,7 @@ title: "7 New European Movies to Definitely Watch ..."
 description: "Avalon; Suskind; Rust and Bone; Barbara; Doodslag; More ..."
 url: "https://movies.allwomenstalk.com/new-european-movies-to-definitely-watch/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 New European Movies to Definitely Watch ...
@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22806675)
 
 ## Related Posts
 
-- [movies to watch with group of friends](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
-- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
-- [summer movies 2012](https://movies.allwomenstalk.com/top-summer-movies-to-definitely-go-see/)
 - [inspiring films](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)
-- [blockbusters 2012](https://movies.allwomenstalk.com/most-anticipated-blockbusters-for-everyones-got-to-see/)
 - [audrey hepburn film list](https://movies.allwomenstalk.com/classic-audrey-hepburn-movies/)
 - [movies about the old south](https://movies.allwomenstalk.com/marvelous-movies-about-the-south/)
+- [summer movies 2012](https://movies.allwomenstalk.com/top-summer-movies-to-definitely-go-see/)
+- [movies to watch with group of friends](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
+- [funny detective movie](https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/)
+- [blockbusters 2012](https://movies.allwomenstalk.com/most-anticipated-blockbusters-for-everyones-got-to-see/)
+- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
 - [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
 - [richmond va theater](https://travel.allwomenstalk.com/great-american-movie-theaters/)
-- [funny detective movie](https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Great Places to Watch Movies ...](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
 

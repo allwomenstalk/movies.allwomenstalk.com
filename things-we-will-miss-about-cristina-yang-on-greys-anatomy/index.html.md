@@ -3,7 +3,7 @@ title: "7 Things We Will Miss about Cristina Yang on Greys Anatomy ..."
 description: "Her Sarcasm; Her Friendship with Meredith; Her One-liners; Her Medical Brilliance; Her Honesty; More ..."
 url: "https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Things We Will Miss about Cristina Yang on Greys Anatomy ...
@@ -42,16 +42,16 @@ I think we still have yet to process the fact that Cristina Yang is no longer pa
 
 ## Related Posts
 
-- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
-- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
-- [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
+- [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
 - [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
+- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
 - [tv shows like impractical jokers](https://funny.allwomenstalk.com/comical-tv-shows-to-watch-if-youre-looking-for-a-laugh/)
+- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
+- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
+- [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
+- [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
 - [all that spin offs](https://movies.allwomenstalk.com/spin-off-shows-that-are-pretty-amazing/)
 - [popular podcasts radiolab](https://movies.allwomenstalk.com/radiolab-podcasts-you-must-listen-to/)
-- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
-- [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
-- [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 - [5 Things I Love about the Twilight Series ...](https://twilight.allwomenstalk.com/5-things-i-love-about-the-twilight-series/)
 

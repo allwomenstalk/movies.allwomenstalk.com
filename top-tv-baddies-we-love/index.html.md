@@ -3,7 +3,7 @@ title: "7 Top TV Baddies We Love ..."
 description: "Moriarty; Victoria Grayson; Morgana Pendragon; Regina Mills/Evil Queen; Pam De Beaufort; More ..."
 url: "https://movies.allwomenstalk.com/top-tv-baddies-we-love/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Top TV Baddies We Love ...
@@ -42,16 +42,16 @@ There are so many characters that can be considered baddies and it is not hard f
 
 ## Related Posts
 
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
 - [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
 - [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
-- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [7 of My Favorite Bridezillas from TV ...](https://wedding.allwomenstalk.com/7-of-my-favorite-bridezillas-from-tv/)
 - [10 Celebrities We Love to Hate ...](https://allwomenstalk.com/top-8-most-loved-celebrities/)
 

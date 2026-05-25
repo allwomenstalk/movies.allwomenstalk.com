@@ -3,7 +3,7 @@ title: "8 Marvelous Modern Musicals ..."
 description: "Chicago; RENT; Dreamgirls; The Producers; Across the Universe; More ..."
 url: "https://movies.allwomenstalk.com/marvelous-modern-musicals/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Marvelous Modern Musicals ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20385680)
 
 ## Related Posts
 
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
 - [fascinating movies](https://movies.allwomenstalk.com/fascinating-futuristic-films/)
 - [royalty movies romance](https://movies.allwomenstalk.com/amazing-movies-about-royalty/)
-- [brad pitt film list](https://movies.allwomenstalk.com/awesome-brad-pitt-movies/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
-- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
-- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
 - [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
-- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
+- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [brad pitt film list](https://movies.allwomenstalk.com/awesome-brad-pitt-movies/)
+- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
 - [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
-- [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
+- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
 

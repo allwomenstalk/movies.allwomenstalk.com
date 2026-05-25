@@ -3,7 +3,7 @@ title: "10 Awesome Movies That Are Coming to & Leaving Netflix in January ..."
 description: "101 Dalmatians; Mean Girls; Cast Away; Shall We Dance?; Bad Boys 2; More ..."
 url: "https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 10 Awesome Movies That Are Coming to & Leaving Netflix in January ...
@@ -84,16 +84,16 @@ Which movies are you happy to see as new additions to Netflix? Which movies are 
 
 ## Related Posts
 
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 

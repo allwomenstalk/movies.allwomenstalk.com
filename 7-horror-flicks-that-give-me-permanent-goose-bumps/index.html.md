@@ -3,7 +3,7 @@ title: "7 Horror Flicks That Give Me Permanent Goose Bumps ..."
 description: "The Blair Witch Project; Scream; The Silence of the Lambs; The Shining; The Texas Chainsaw Massacre; More ..."
 url: "https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Horror Flicks That Give Me Permanent Goose Bumps ...
@@ -64,15 +64,15 @@ Some of the movies mentioned here were released in the 70’s and it is quite po
 ## Related Posts
 
 - [great place to watch a movie](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
-- [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
-- [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
-- [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
-- [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
-- [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
-- [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [best movie kisses](https://movies.allwomenstalk.com/best-movie-kisses/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [documentaries like jesus camp](https://movies.allwomenstalk.com/to-impactful-and-insightful-documentaries/)
+- [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
+- [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
+- [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
+- [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
+- [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
+- [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
 

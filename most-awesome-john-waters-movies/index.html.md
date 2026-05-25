@@ -3,7 +3,7 @@ title: "7 Most Awesome John Waters Movies ..."
 description: "Serial Mom; Polyester; A Dirty Shame; Female Trouble; Cecil B Demented; More ..."
 url: "https://movies.allwomenstalk.com/most-awesome-john-waters-movies/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Most Awesome John Waters Movies ...
@@ -42,16 +42,16 @@ So whether your tastes run to gross-out movies or something that pokes fun at ma
 
 ## Related Posts
 
-- [7 Recent Movies to Rent to Prevent Boredom ...](https://movies.allwomenstalk.com/recent-movies-to-rent-this-winter-to-prevent-boredom/)
-- [watch mr kruegers christmas](https://movies.allwomenstalk.com/christmas-movies-to-watch-with-your-children/)
-- [honest trailers](https://movies.allwomenstalk.com/honest-movie-trailers-thatll-have-you-on-the-ground-laughing/)
 - [7 Movies to Satisfy Your Wanderlust ...](https://movies.allwomenstalk.com/movies-to-satisfy-your-wanderlust/)
-- [7 Fantastic Movies about Dance ...](https://movies.allwomenstalk.com/fantastic-movies-about-dance/)
-- [Last Call These 65 Movies  Shows Will Disappear fr...](https://movies.allwomenstalk.com/last-call-these-movies-shows-will-disappear-from-netflix-on-new-years-day/)
-- [7 Classic Movies to Pull Style Inspiration from .....](https://movies.allwomenstalk.com/classic-movies-to-pull-style-inspiration-from/)
 - [The Best Movies to Watch after a Breakup ...](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup-2/)
+- [7 Classic Movies to Pull Style Inspiration from .....](https://movies.allwomenstalk.com/classic-movies-to-pull-style-inspiration-from/)
+- [watch mr kruegers christmas](https://movies.allwomenstalk.com/christmas-movies-to-watch-with-your-children/)
 - [15 Movies to Look Forward to in 2015 ...](https://bilbr.com/movies-to-look-forward-to-in/)
+- [honest trailers](https://movies.allwomenstalk.com/honest-movie-trailers-thatll-have-you-on-the-ground-laughing/)
+- [7 Fantastic Movies about Dance ...](https://movies.allwomenstalk.com/fantastic-movies-about-dance/)
 - [7 Horror Films You Should Not Watch Alone ...](https://7fun.net/horror-films-you-should-not-watch-alone/)
+- [Last Call These 65 Movies  Shows Will Disappear fr...](https://movies.allwomenstalk.com/last-call-these-movies-shows-will-disappear-from-netflix-on-new-years-day/)
+- [7 Recent Movies to Rent to Prevent Boredom ...](https://movies.allwomenstalk.com/recent-movies-to-rent-this-winter-to-prevent-boredom/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

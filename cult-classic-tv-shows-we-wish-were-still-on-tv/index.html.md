@@ -3,7 +3,7 @@ title: "We Wish These Cult Classics Were Still on TV ..."
 description: "Happy Endings; BFF; Freaks and Geeks; Smash; The Carrie Diaries; More ..."
 url: "https://movies.allwomenstalk.com/cult-classic-tv-shows-we-wish-were-still-on-tv/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # We Wish These Cult Classics Were Still on TV ...
@@ -42,16 +42,16 @@ What shows are you upset got canceled? Let me know in the comments!
 
 ## Related Posts
 
-- [The Jurassic World Trailer is Everything You Could...](https://movies.allwomenstalk.com/the-jurassic-world-trailer-is-everything-you-couldve-hoped-for/)
-- [dan in real life thanksgiving](https://movies.allwomenstalk.com/portrayals-of-thanksgiving-in-the-movies-and-on-tv/)
-- [Stand up for Human Rights Day ...](https://lifestyle.allwomenstalk.com/stand-up-for-human-rights-day/)
-- [THIS is How You Break the Internet - Watch Beyonce...](https://music.allwomenstalk.com/this-is-how-you-break-the-internet-watch-beyonces-new-homemade-music-video/)
-- [female baby cartoon characters](https://parenting.allwomenstalk.com/adorable-baby-girl-gets-really-emotional-while-watching-a-cartoon/)
-- [The Amazing Spider-Dad Surprises His Sick Son in H...](https://inspiration.allwomenstalk.com/the-amazing-spiderdad-surprises-his-sick-son-in-heart-warming-video/)
-- [Twins Separated at Birth Reunite Thanks to Social ...](https://lifestyle.allwomenstalk.com/twins-separated-at-birth-reunite-thanks-to-social-media/)
 - [LOL - Watch Benedict Cumberbatch Impersonate 11 Ce...](https://funny.allwomenstalk.com/lol-watch-benedict-cumberbatch-impersonate-celebs-in-just-one-minute/)
-- [loreal paris maximalist eyeshadow blinged and](https://wedding.allwomenstalk.com/aw-these-ring-cam-proposals-will-give-you-major-feels/)
+- [Twins Separated at Birth Reunite Thanks to Social ...](https://lifestyle.allwomenstalk.com/twins-separated-at-birth-reunite-thanks-to-social-media/)
 - [The Force Has Been Awakened in New Star Wars Trail...](https://movies.allwomenstalk.com/the-force-has-been-awakened-in-new-star-wars-trailer/)
+- [The Jurassic World Trailer is Everything You Could...](https://movies.allwomenstalk.com/the-jurassic-world-trailer-is-everything-you-couldve-hoped-for/)
+- [female baby cartoon characters](https://parenting.allwomenstalk.com/adorable-baby-girl-gets-really-emotional-while-watching-a-cartoon/)
+- [Stand up for Human Rights Day ...](https://lifestyle.allwomenstalk.com/stand-up-for-human-rights-day/)
+- [loreal paris maximalist eyeshadow blinged and](https://wedding.allwomenstalk.com/aw-these-ring-cam-proposals-will-give-you-major-feels/)
+- [dan in real life thanksgiving](https://movies.allwomenstalk.com/portrayals-of-thanksgiving-in-the-movies-and-on-tv/)
+- [THIS is How You Break the Internet - Watch Beyonce...](https://music.allwomenstalk.com/this-is-how-you-break-the-internet-watch-beyonces-new-homemade-music-video/)
+- [The Amazing Spider-Dad Surprises His Sick Son in H...](https://inspiration.allwomenstalk.com/the-amazing-spiderdad-surprises-his-sick-son-in-heart-warming-video/)
 - [7 Amazing Television Heroines from the 90s ...](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
 - [7 Disney Shows from the Early 2000s That We Cant F...](https://movies.allwomenstalk.com/disney-shows-from-the-early-2000s-that-we-cant-forget/)
 

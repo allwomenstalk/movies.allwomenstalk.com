@@ -3,7 +3,7 @@ title: "7 Must-Watch Indie Films for the Weekend ..."
 description: "Wild Target, 2009; Hanna, 2011; Zombieland, 2009; Don Jon, 2013; The House Bunny, 2008; More ..."
 url: "https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Must\-Watch Indie Films for the Weekend ...
@@ -42,16 +42,16 @@ There’s nothing quite like watching a movie that you’ve never heard of, and 
 
 ## Related Posts
 
-- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
-- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
-- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
-- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
 - [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
-- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
 - [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
+- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
 - [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
+- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
+- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

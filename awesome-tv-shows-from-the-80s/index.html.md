@@ -3,7 +3,7 @@ title: "8 Awesome TV Shows from the 80s ..."
 description: "The Facts of Life; Cheers; Family Ties; The Cosby Show; Miami Vice; More ..."
 url: "https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Awesome TV Shows from the 80s ...
@@ -62,16 +62,16 @@ Did you watch any of these TV shows from the 80’s? Did I forget any of your fa
 
 ## Related Posts
 
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
 - [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
 - [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
-- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
 - [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
+- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

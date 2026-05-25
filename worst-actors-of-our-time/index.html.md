@@ -3,7 +3,7 @@ title: "9 Worst Actors of Our Time ..."
 description: "Hayden Christensen; Sylvester Stallone; Paul Walker; Nicolas Cage; Vin Diesel; More ..."
 url: "https://movies.allwomenstalk.com/worst-actors-of-our-time/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Worst Actors of Our Time ...
@@ -53,16 +53,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/16758376)
 
 ## Related Posts
 
-- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
 - [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
-- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
-- [celebrities favorite snacks](https://celebs.allwomenstalk.com/celebrity-snack-cravings/)
 - [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
+- [celebrities favorite snacks](https://celebs.allwomenstalk.com/celebrity-snack-cravings/)
+- [best mugshots ever](https://celebs.allwomenstalk.com/top-celebrity-mug-shots/)
 - [disney fairytale weddings divorce](https://wedding.allwomenstalk.com/celeb-brides-youd-love-to-see-walk-down-the-aisle/)
+- [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
 - [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
 - [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
+- [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
 - [7 Best James Bond Actors ...](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 

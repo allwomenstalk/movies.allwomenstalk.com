@@ -3,7 +3,7 @@ title: "7 Cheesy Holiday Movies to Get You Excited for Xmas ..."
 description: "12 Men of Christmas; Holiday Engagement❄️; Holiday in Handcuffs; Just in Time for Christmas🎄; Matchmaker Santa; More ..."
 url: "https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Cheesy Holiday Movies to Get You Excited  for Xmas ...
@@ -42,16 +42,16 @@ These are just a few of the many cheesy (and cute) Christmas movies that are alw
 
 ## Related Posts
 
-- [what movies need a sequel](https://movies.allwomenstalk.com/movies-that-need-a-sequel/)
-- [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
-- [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
-- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
-- [top 5 love movies](https://love.allwomenstalk.com/things-that-happen-in-romantic-movies-we-wish-were-real/)
-- [loreal riche stylo smoky eternal sunshine](https://movies.allwomenstalk.com/iconic-movie-relationships-that-taught-us-all-about-love/)
 - [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
+- [loreal riche stylo smoky eternal sunshine](https://movies.allwomenstalk.com/iconic-movie-relationships-that-taught-us-all-about-love/)
 - [horror movie addict](https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/)
-- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
+- [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
 - [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
+- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
+- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
+- [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
+- [what movies need a sequel](https://movies.allwomenstalk.com/movies-that-need-a-sequel/)
+- [top 5 love movies](https://love.allwomenstalk.com/things-that-happen-in-romantic-movies-we-wish-were-real/)
 - [8 Touching Holiday Movies You Cant Miss ...](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
 - [10 Classic Old Christmas Movies Youll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 

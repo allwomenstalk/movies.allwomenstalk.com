@@ -3,7 +3,7 @@ title: "9 Movies That Became a TV Series ..."
 description: "Clueless; Buffy the Vampire Slayer; Honey I Shrunk the Kids; Fargo; The Terminator/the Sarah Connor Chronicles; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-became-a-tv-series/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Movies That Became a TV Series ...
@@ -50,16 +50,16 @@ So ladies, what are your favorite movies that became TV series and which do you 
 
 ## Related Posts
 
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
-- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
-- [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
 - [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
+- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 

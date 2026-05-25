@@ -3,7 +3,7 @@ title: "The Best Movies to See in Summer 2018 ..."
 description: "Ocean's 8; Incredibles 2; Jurassic World: Fallen Kingdom; The First Purge; The Equalizer 2; More ..."
 url: "https://movies.allwomenstalk.com/summer-movies/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The Best Movies to See in Summer 2018 ...
@@ -49,16 +49,16 @@ Which other movies are you dying to see this summer?
 
 ## Related Posts
 
-- [movies to put you in the fall mood](https://movies.allwomenstalk.com/movies-to-get-you-in-the-mood-for-fall/)
 - [christmas horro films](https://movies.allwomenstalk.com/your-guide-to-christmas-horror-movies/)
 - [romance movies to watch on netflix](https://movies.allwomenstalk.com/best-romance-movies-on-netflix/)
-- [christmas movies that arent christmas movies](https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/)
 - [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
-- [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
-- [netflix sitcoms](https://movies.allwomenstalk.com/funniest-sitcoms-to-watch-on-netflix/)
+- [christmas movies that arent christmas movies](https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/)
+- [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
+- [movies to put you in the fall mood](https://movies.allwomenstalk.com/movies-to-get-you-in-the-mood-for-fall/)
 - [6movies](https://movies.allwomenstalk.com/movies-you-should-definitely-watch/)
 - [Perfect Stay in Date Night Movies ...](https://movies.allwomenstalk.com/perfect-stay-in-date-night-movies/)
-- [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
+- [netflix sitcoms](https://movies.allwomenstalk.com/funniest-sitcoms-to-watch-on-netflix/)
+- [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 - [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
 

@@ -3,7 +3,7 @@ title: "Queen Bees from Movies and TV You Cant Help but Love ..."
 description: "Cher (Clueless); The Heathers (Heathers); The Plastics (Mean Girls); The Ashleys (Recess); Kate Sanders (Lizzie McGuire); More ..."
 url: "https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Queen Bees from Movies and TV You Cant Help but Love ...
@@ -68,16 +68,16 @@ Which Queen Bee would you be?
 
 ## Related Posts
 
-- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
-- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
-- [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
-- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
-- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
-- [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
-- [what does nicole riot face tattoo say](https://beauty.allwomenstalk.com/these-feminist-tattoos-will-make-you-proud-to-be-a-woman/)
 - [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
-- [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
+- [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
 - [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
+- [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
+- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
+- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
+- [what does nicole riot face tattoo say](https://beauty.allwomenstalk.com/these-feminist-tattoos-will-make-you-proud-to-be-a-woman/)
+- [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
+- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
+- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

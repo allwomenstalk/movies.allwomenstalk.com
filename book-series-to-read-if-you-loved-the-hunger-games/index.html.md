@@ -3,7 +3,7 @@ title: "13 Book Series to Read if You Loved the Hunger Games ..."
 description: "The Divergent Series; The Uglies Series; The Matched Series; The Delirium Series; The Giver Series; More ..."
 url: "https://movies.allwomenstalk.com/book-series-to-read-if-you-loved-the-hunger-games/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 13 Book Series to Read if You Loved the Hunger Games ...
@@ -94,16 +94,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [best british cookbooks](https://food.allwomenstalk.com/autumn-cookbooks-you-must-read/)
-- [reasons to read a book](https://lifestyle.allwomenstalk.com/reasons-to-read-a-book/)
-- [sci fi coffee table books](https://lifestyle.allwomenstalk.com/must-have-coffee-table-books/)
-- [best homeopathy books](https://health.allwomenstalk.com/best-homeopathic-books/)
-- [fiction novels for adults](https://lifestyle.allwomenstalk.com/young-adult-fiction-novels-to-keep-your-mind-off-school/)
-- [top ten kids books](https://parenting.allwomenstalk.com/best-childrens-books/)
-- [books that inspire you](https://travel.allwomenstalk.com/books-that-will-inspire-you-to-travel/)
 - [kay scarpetta movies](https://lifestyle.allwomenstalk.com/reasons-to-read-the-kay-scarpetta-book-series/)
+- [fiction novels for adults](https://lifestyle.allwomenstalk.com/young-adult-fiction-novels-to-keep-your-mind-off-school/)
 - [non-fiction lgbt](https://lifestyle.allwomenstalk.com/interesting-non-fiction-lgbt-reads/)
+- [best homeopathy books](https://health.allwomenstalk.com/best-homeopathic-books/)
+- [books that inspire you](https://travel.allwomenstalk.com/books-that-will-inspire-you-to-travel/)
+- [reasons to read a book](https://lifestyle.allwomenstalk.com/reasons-to-read-a-book/)
+- [best british cookbooks](https://food.allwomenstalk.com/autumn-cookbooks-you-must-read/)
 - [crescent city flynn](https://lifestyle.allwomenstalk.com/great-lesser-known-library-services/)
+- [sci fi coffee table books](https://lifestyle.allwomenstalk.com/must-have-coffee-table-books/)
+- [top ten kids books](https://parenting.allwomenstalk.com/best-childrens-books/)
 - [8 Great Book Series for Tweens ...](https://allwomenstalk.com/8-great-book-series-for-tweens/)
 - [7 Book Series I Love ...](https://allwomenstalk.com/7-book-series-i-love/)
 

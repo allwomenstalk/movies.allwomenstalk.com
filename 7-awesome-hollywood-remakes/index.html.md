@@ -3,7 +3,7 @@ title: "7 Awesome Hollywood Remakes ..."
 description: "The Magnificent Seven; Scarface; The Man Who Knew Too Much; Cape Fear; The Departed; More ..."
 url: "https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/"
 category: "movies"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Awesome Hollywood Remakes ...
@@ -44,16 +44,16 @@ Top image source: _bestgamewallpapers.com_
 
 ## Related Posts
 
-- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
-- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
-- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
-- [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
-- [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
-- [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
+- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
+- [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
+- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
+- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
+- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 
