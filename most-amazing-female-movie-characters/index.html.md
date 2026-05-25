@@ -42,16 +42,16 @@ There have always been great female characters in the movies, even though men te
 
 ## Related Posts
 
-- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
-- [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
-- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
-- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
-- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
-- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
-- [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
+- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
+- [actresses american](https://movies.allwomenstalk.com/actresses-who-inspire-us-to-be-different/)
 - [thoughts on feminism](https://lifestyle.allwomenstalk.com/thoughts-about-feminism-that-are-perfectly-fine/)
 - [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
+- [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
+- [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
+- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
+- [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
+- [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

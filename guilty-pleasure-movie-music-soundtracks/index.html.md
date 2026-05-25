@@ -46,16 +46,16 @@ Music can play a big part in setting the scene and sometimes a movie just isn’
 
 ## Related Posts
 
-- [stuffed animals fighting music video](https://movies.allwomenstalk.com/trippy-music-videos/)
 - [love song 2013](https://love.allwomenstalk.com/love-songs-to-listen-to-for/)
+- [fun songs to dance](https://lifestyle.allwomenstalk.com/fun-songs-to-dance-to/)
+- [famous musician couples](https://music.allwomenstalk.com/musical-power-couples/)
+- [best country road trip songs](https://lifestyle.allwomenstalk.com/best-road-trip-songs/)
+- [stuffed animals fighting music video](https://movies.allwomenstalk.com/trippy-music-videos/)
+- [road trip summer songs](https://travel.allwomenstalk.com/travel-songs-for-your-summer-playlist/)
+- [songs for teenage](https://lifestyle.allwomenstalk.com/classic-rock-songs-that-every-teen-should-know/)
 - [songs to bang to](https://love.allwomenstalk.com/worst-songs-to-have-sex-to/)
 - [best edm all time](https://music.allwomenstalk.com/best-edm-songs/)
 - [songs with around in the title](https://travel.allwomenstalk.com/songs-with-countries-in-the-title/)
-- [fun songs to dance](https://lifestyle.allwomenstalk.com/fun-songs-to-dance-to/)
-- [road trip summer songs](https://travel.allwomenstalk.com/travel-songs-for-your-summer-playlist/)
-- [famous musician couples](https://music.allwomenstalk.com/musical-power-couples/)
-- [best country road trip songs](https://lifestyle.allwomenstalk.com/best-road-trip-songs/)
-- [songs for teenage](https://lifestyle.allwomenstalk.com/classic-rock-songs-that-every-teen-should-know/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 

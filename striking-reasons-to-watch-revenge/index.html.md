@@ -56,15 +56,15 @@ Sunday nights have never looked better. Which romance story are you rooting for?
 
 ## Related Posts
 
+- [7 Reasons to Get Excited for Pitch Perfect 2 ...](https://movies.allwomenstalk.com/reasons-to-get-excited-for-pitch-perfect-2/)
 - [7 Reasons Why Google Glass is Amazing ...](https://gadgets.allwomenstalk.com/reasons-why-google-glass-is-amazing/)
 - [leslie knope personality type](https://celebs.allwomenstalk.com/reasons-why-leslie-knope-is-a-great-role-model/)
-- [reasons to go to barcelona](https://travel.allwomenstalk.com/wonderful-reasons-to-love-barcelona/)
-- [loreal riche le eye garnet](https://travel.allwomenstalk.com/positive-things-to-love-about-the-midwest/)
-- [dr .oz](https://celebs.allwomenstalk.com/understandable-reasons-why-we-love-dr-oz/)
 - [mila kunis personality type](https://celebs.allwomenstalk.com/reasons-ashton-kutcher-and-mila-kunis-are-the-perfect-couple/)
-- [7 Reasons to Be Excited about ABCs Resurrection .....](https://movies.allwomenstalk.com/reasons-to-be-excited-about-abcs-resurrection/)
+- [dr .oz](https://celebs.allwomenstalk.com/understandable-reasons-why-we-love-dr-oz/)
 - [7 Reasons Why Emma Stone is BFF Material ...](https://celebs.allwomenstalk.com/reasons-why-emma-stone-is-bff-material/)
-- [7 Reasons to Get Excited for Pitch Perfect 2 ...](https://movies.allwomenstalk.com/reasons-to-get-excited-for-pitch-perfect-2/)
+- [loreal riche le eye garnet](https://travel.allwomenstalk.com/positive-things-to-love-about-the-midwest/)
+- [reasons to go to barcelona](https://travel.allwomenstalk.com/wonderful-reasons-to-love-barcelona/)
+- [7 Reasons to Be Excited about ABCs Resurrection .....](https://movies.allwomenstalk.com/reasons-to-be-excited-about-abcs-resurrection/)
 - [7 Fantastic Reasons to Love Shailene Woodley ...](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-shailene-woodley/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 - [7 Reasons to Watch the Game of Thrones ...](https://movies.allwomenstalk.com/reasons-to-watch-the-game-of-thrones/)

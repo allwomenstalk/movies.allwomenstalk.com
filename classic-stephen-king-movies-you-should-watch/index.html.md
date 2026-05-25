@@ -56,16 +56,16 @@ This short list of classic movies adapted from Stephen King novels is really jus
 
 ## Related Posts
 
-- [7 Summer Blockbusters Worth Checking out This Year...](https://movies.allwomenstalk.com/summer-blockbusters-worth-checking-out-this-year/)
-- [7 Awesome Movies in Theatres to Check out This Mon...](https://movies.allwomenstalk.com/awesome-movies-in-theatres-to-check-out-this-month/)
-- [7 Best Cop Buddy Movies and TV Shows ...](https://7fun.net/best-cop-buddy-movies-and-tv-shows/)
 - [7 Recent Book-to-Movie Adaptations You Dont Want t...](https://movies.allwomenstalk.com/recent-book-to-movie-adaptions-you-dont-want-to-miss/)
-- [7 Foreign Movies to Add to Your Movie Collection ....](https://movies.allwomenstalk.com/foreign-movies-to-add-to-your-movie-collection/)
-- [7 Best Teen Dramas for Your Entertainment ...](https://teen.allwomenstalk.com/best-teen-dramas-for-your-entertainment/)
-- [7 Awesome Movies to Watch This Summer ...](https://movies.allwomenstalk.com/awesome-movies-to-watch-this-summer/)
-- [7 Amazing K-Dramas You Must Watch ...](https://movies.allwomenstalk.com/amazing-k-dramas-you-must-watch/)
-- [movies based on shakespeare plots](https://movies.allwomenstalk.com/surprising-movies-based-on-shakespeares-plays/)
 - [9 Smart Movies to Help You Get Your Geek on ...](https://movies.allwomenstalk.com/smart-movies-to-help-you-get-your-geek-on/)
+- [movies based on shakespeare plots](https://movies.allwomenstalk.com/surprising-movies-based-on-shakespeares-plays/)
+- [7 Foreign Movies to Add to Your Movie Collection ....](https://movies.allwomenstalk.com/foreign-movies-to-add-to-your-movie-collection/)
+- [7 Amazing K-Dramas You Must Watch ...](https://movies.allwomenstalk.com/amazing-k-dramas-you-must-watch/)
+- [7 Awesome Movies to Watch This Summer ...](https://movies.allwomenstalk.com/awesome-movies-to-watch-this-summer/)
+- [7 Best Cop Buddy Movies and TV Shows ...](https://7fun.net/best-cop-buddy-movies-and-tv-shows/)
+- [7 Awesome Movies in Theatres to Check out This Mon...](https://movies.allwomenstalk.com/awesome-movies-in-theatres-to-check-out-this-month/)
+- [7 Best Teen Dramas for Your Entertainment ...](https://teen.allwomenstalk.com/best-teen-dramas-for-your-entertainment/)
+- [7 Summer Blockbusters Worth Checking out This Year...](https://movies.allwomenstalk.com/summer-blockbusters-worth-checking-out-this-year/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 

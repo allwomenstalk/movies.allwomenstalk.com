@@ -42,16 +42,16 @@ Talk to me, ladies. What is it you are most looking forward to in the Fifty Shad
 
 ## Related Posts
 
-- [7 Awesome Reasons to Get on Team Miley ...](https://celebs.allwomenstalk.com/awesome-reasons-to-get-on-team-miley/)
-- [7 Reasons to Be Excited about the Kimye Engagement...](https://celebs.allwomenstalk.com/reasons-to-be-excited-about-the-kimye-engagement/)
+- [girls hbo](https://movies.allwomenstalk.com/awesome-reasons-to-watch-hbos-girls/)
 - [7 Reasons to Start Watching Hart of Dixie ...](https://movies.allwomenstalk.com/reasons-to-start-watching-hart-of-dixie/)
 - [7 Striking Reasons to Watch Revenge ...](https://movies.allwomenstalk.com/striking-reasons-to-watch-revenge/)
+- [7 Awesome Reasons to Get on Team Miley ...](https://celebs.allwomenstalk.com/awesome-reasons-to-get-on-team-miley/)
+- [9 Reasons to Start Watching the Mindy Project ...](https://7fun.net/reasons-to-start-watching-the-mindy-project/)
 - [7 Reasons to Watch and Love Freaks and Geeks ...](https://7fun.net/reasons-to-watch-and-love-freaks-and-geeks/)
-- [girls hbo](https://movies.allwomenstalk.com/awesome-reasons-to-watch-hbos-girls/)
+- [7 Reasons to Be Excited about the Kimye Engagement...](https://celebs.allwomenstalk.com/reasons-to-be-excited-about-the-kimye-engagement/)
+- [7 Wonderful Reasons to Love Lauren Conrad ...](https://celebs.allwomenstalk.com/wonderful-reasons-to-love-lauren-conrad/)
 - [7 Reasons to Be Excited for the Entourage Film ...](https://movies.allwomenstalk.com/reasons-to-be-excited-for-the-entourage-film/)
 - [7 Reasons to Love Cara Delevingne ...](https://celebs.allwomenstalk.com/reasons-to-love-cara-delevingne/)
-- [7 Wonderful Reasons to Love Lauren Conrad ...](https://celebs.allwomenstalk.com/wonderful-reasons-to-love-lauren-conrad/)
-- [9 Reasons to Start Watching the Mindy Project ...](https://7fun.net/reasons-to-start-watching-the-mindy-project/)
 - [5 Reasons Why I Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-twilight/)
 - [5 Reasons Why I Love Werewolves ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-werewolves/)
 

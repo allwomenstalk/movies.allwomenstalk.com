@@ -44,16 +44,16 @@ Time and time again, these flaws are seen across tons of chick flicks. It is alw
 
 ## Related Posts
 
-- [family road trip movie](https://travel.allwomenstalk.com/movie-road-trips-you-can-take-in-real-life/)
-- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
-- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
 - [make you think movies](https://movies.allwomenstalk.com/incredible-movies-about-war-that-make-you-think/)
-- [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
-- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
-- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
-- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
+- [family road trip movie](https://travel.allwomenstalk.com/movie-road-trips-you-can-take-in-real-life/)
 - [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
+- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
+- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
+- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
+- [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
+- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

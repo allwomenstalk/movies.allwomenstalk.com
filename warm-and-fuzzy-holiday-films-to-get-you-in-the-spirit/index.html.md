@@ -56,16 +56,16 @@ Sometimes a good holiday film will get you in the spirit when all else fails. So
 
 ## Related Posts
 
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
-- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
-- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
-- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
-- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
-- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
+- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
+- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
+- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [8 Touching Holiday Movies You Cant Miss ...](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
 - [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
 

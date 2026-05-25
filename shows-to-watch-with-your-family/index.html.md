@@ -42,16 +42,16 @@ It’s strange that there are three cartoons on this list, but don’t worry, th
 
 ## Related Posts
 
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
-- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
+- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
 - [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
 - [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
+- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
+- [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
 - [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
-- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [Top 7 Shows on TV That Educate Your Child ...](https://allwomenstalk.com/top-7-shows-on-tv-that-educate-your-child/)
 - [8 Ideas for Family Night ...](https://allwomenstalk.com/8-ideas-for-family-night/)
 

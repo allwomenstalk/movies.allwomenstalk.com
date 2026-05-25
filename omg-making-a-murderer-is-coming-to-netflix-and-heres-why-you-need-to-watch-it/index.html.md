@@ -50,16 +50,16 @@ There's no release date yet, unfortunately, so that's the next piece of news to 
 
 ## Related Posts
 
-- [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
-- [Hot New TV Shows to Check out This Fall ...](https://movies.allwomenstalk.com/hot-new-tv-shows-to-check-out-this-fall/)
-- [Showbiz Story: the Time I Met Vince Gilligan ...](https://celebs.allwomenstalk.com/the-time-i-met-vince-gilligan/)
-- [7 Insanely Awesome Shows to Fill the Void Left by ...](https://movies.allwomenstalk.com/insanely-awesome-shows-to-fill-the-void-left-by-game-of-thrones/)
-- [Short Story : the German Lady ...](https://books.allwomenstalk.com/short-story-called-the-german-lady/)
-- [Short Story : the Rise and Fall  of Martha ...](https://books.allwomenstalk.com/short-story-called-the-rise-and-fall-of-martha/)
-- [Your Dark Side Will Flip over the New Goth Latte T...](https://food.allwomenstalk.com/your-dark-side-will-flip-over-the-new-goth-latte-taking-the-world-by-storm/)
-- [The Best of the MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
-- [...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
 - [9 Game of Thrones Deaths Were Still Not over ...](https://movies.allwomenstalk.com/game-of-thrones-deaths-we-are-still-not-over/)
+- [Hot New TV Shows to Check out This Fall ...](https://movies.allwomenstalk.com/hot-new-tv-shows-to-check-out-this-fall/)
+- [This is Why We All Need to Vote for Those Who Are ...](https://lifestyle.allwomenstalk.com/this-is-why-we-all-need-to-vote-for-those-who-are-18-but-hesitant-about-elections/)
+- [Short Story : the German Lady ...](https://books.allwomenstalk.com/short-story-called-the-german-lady/)
+- [Showbiz Story: the Time I Met Vince Gilligan ...](https://celebs.allwomenstalk.com/the-time-i-met-vince-gilligan/)
+- [Short Story : the Rise and Fall  of Martha ...](https://books.allwomenstalk.com/short-story-called-the-rise-and-fall-of-martha/)
+- [...](https://inspiration.allwomenstalk.com/amazing-self-care-tips-for-girls-who-need-to-focus-on-them-once-in-awhile/)
+- [The Best of the MannequinChallenge so Far ...](https://funny.allwomenstalk.com/the-best-of-the-mannequinchallenge-so-far/)
+- [7 Insanely Awesome Shows to Fill the Void Left by ...](https://movies.allwomenstalk.com/insanely-awesome-shows-to-fill-the-void-left-by-game-of-thrones/)
+- [Your Dark Side Will Flip over the New Goth Latte T...](https://food.allwomenstalk.com/your-dark-side-will-flip-over-the-new-goth-latte-taking-the-world-by-storm/)
 - [Michael Moore Plays Hero to WikiLeaks Cofounder...](https://celebs.allwomenstalk.com/michael-moore-plays-hero-to-wikileaks-cofounder/)
 - [Kevin Spacey: Its Gossip Bottom Line...](https://celebs.allwomenstalk.com/kevin-spacey-its-gossip-bottom-line/)
 

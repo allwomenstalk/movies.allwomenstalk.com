@@ -17,15 +17,15 @@ Since it didn't take two hours to announce the winner, the night was jam packed 
 
 ## Related Posts
 
-- [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
-- [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
-- [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
 - [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
 - [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
-- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
 - [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
-- [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
 - [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
+- [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
+- [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
+- [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
+- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
 - [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
 - [And the Winner of American Idol 9 is ...](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
 - [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)

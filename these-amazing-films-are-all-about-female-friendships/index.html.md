@@ -47,15 +47,15 @@ There are so many movies that celebrate female friendship, though. What are your
 ## Related Posts
 
 - [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
-- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
-- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
-- [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
-- [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
 - [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
+- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
+- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
+- [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
 - [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
 - [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
+- [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
 - [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
-- [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
+- [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

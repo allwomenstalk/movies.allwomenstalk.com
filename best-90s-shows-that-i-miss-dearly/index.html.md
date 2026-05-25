@@ -56,16 +56,16 @@ These are my favorite 90s shows which I miss dearly and that take me back to my 
 
 ## Related Posts
 
-- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
-- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
-- [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
-- [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
 - [funny frozen](https://funny.allwomenstalk.com/funny-videos-inspired-by-disneys-frozen/)
+- [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
+- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
+- [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
+- [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
+- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
+- [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
 - [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
 - [kids dog cartoons](https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/)
-- [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
 - [steve buscemi makeup](https://movies.allwomenstalk.com/career-defining-steve-buscemi-perfomances/)
-- [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

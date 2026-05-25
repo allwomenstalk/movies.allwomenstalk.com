@@ -44,16 +44,16 @@ Top Photo Credit: [Cineando](https://www.flickr.com/photos/cineando/3728564593/)
 
 ## Related Posts
 
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
+- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
+- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
-- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
-- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
-- [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
-- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [adopted people](https://celebs.allwomenstalk.com/10-famous-people-who-were-adopted/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

@@ -56,16 +56,16 @@ Did you recognize these luminaries of cinema and TV as coming from Scandinavia? 
 
 ## Related Posts
 
-- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
 - [julia roberts jon bon jovi](https://celebs.allwomenstalk.com/celebrities-who-are-terrible-to-work-with/)
-- [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
-- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
-- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
-- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
-- [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
-- [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
-- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
 - [mickey mouse club mouseketeers list](https://celebs.allwomenstalk.com/former-disney-mouseketeers-who-now-made-names-for-themselves/)
+- [images of celebrities](https://celebs.allwomenstalk.com/stunning-celebrity-black-white-photos/)
+- [does zac efron have a sister](https://celebs.allwomenstalk.com/celebrities-with-attractive-siblings/)
+- [celebs board](https://celebs.allwomenstalk.com/celebrity-pinterest-boards-youll-want-to-follow/)
+- [90s celebrities](https://celebs.allwomenstalk.com/celebrities-who-were-in-90s-commercials/)
+- [surprising celebrity couples](https://celebs.allwomenstalk.com/celebrity-couples-that-you-never-knew-about/)
+- [instagram melinda shankar](https://celebs.allwomenstalk.com/degrassi-celebrities-to-follow-on-instagram/)
+- [celebrities suffering from anxiety](https://celebs.allwomenstalk.com/celebrities-with-anxiety-disorders/)
+- [famous actress in bikini](https://celebs.allwomenstalk.com/celebrities-bikini-ready-bodies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [Our Recent Blockbuster Picks ...](https://allwomenstalk.com/our-recent-blockbuster-picks/)
 

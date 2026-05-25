@@ -42,16 +42,16 @@ These are only some of the reasons why “Burn Notice” is awesome. When it com
 
 ## Related Posts
 
-- [growing up in the 90s](https://lifestyle.allwomenstalk.com/reasons-why-it-was-awesome-growing-up-in-the-90s/)
-- [where to watch downtown abbey](https://movies.allwomenstalk.com/reasons-to-watch-downton-abbey-and-love-it/)
-- [ross and joey napping](https://movies.allwomenstalk.com/reasons-why-friends-was-the-best-show-ever-made/)
-- [cillian murphy naomi harris](https://celebs.allwomenstalk.com/reasons-why-you-should-know-naomie-harris/)
-- [skyler kisses hank](https://movies.allwomenstalk.com/awesome-reasons-to-love-breaking-bad/)
-- [7 Reasons Why Ellen Degeneres is Awesome ...](https://celebs.allwomenstalk.com/reasons-why-ellen-degeneres-is-awesome/)
 - [future steampunk](https://fashion.allwomenstalk.com/awesome-reasons-to-love-steampunk/)
-- [love is so powerful](https://love.allwomenstalk.com/reasons-why-first-love-is-so-powerful/)
-- [true red heads](https://hair.allwomenstalk.com/reasons-why-redheads-have-the-most-fun-of-all/)
+- [ross and joey napping](https://movies.allwomenstalk.com/reasons-why-friends-was-the-best-show-ever-made/)
+- [where to watch downtown abbey](https://movies.allwomenstalk.com/reasons-to-watch-downton-abbey-and-love-it/)
 - [do you think it is important to read the book befo...](https://movies.allwomenstalk.com/reasons-to-read-the-book-before-watching-the-movie/)
+- [skyler kisses hank](https://movies.allwomenstalk.com/awesome-reasons-to-love-breaking-bad/)
+- [growing up in the 90s](https://lifestyle.allwomenstalk.com/reasons-why-it-was-awesome-growing-up-in-the-90s/)
+- [love is so powerful](https://love.allwomenstalk.com/reasons-why-first-love-is-so-powerful/)
+- [7 Reasons Why Ellen Degeneres is Awesome ...](https://celebs.allwomenstalk.com/reasons-why-ellen-degeneres-is-awesome/)
+- [cillian murphy naomi harris](https://celebs.allwomenstalk.com/reasons-why-you-should-know-naomie-harris/)
+- [true red heads](https://hair.allwomenstalk.com/reasons-why-redheads-have-the-most-fun-of-all/)
 - [8 Reasons I Love CSI: Miami ...](https://allwomenstalk.com/8-reasons-i-love-csi-miami/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 

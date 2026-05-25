@@ -35,15 +35,15 @@ So which film are you most excited about? Are there any you have no interest in 
 ## Related Posts
 
 - [Movies to Look Forward  to in 2018 Part II ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/)
-- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
-- [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
 - [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
-- [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
-- [20 Movies to Look Forward to Watching in 2019 ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-watching-in/)
-- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
-- [best chick flicks](https://7fun.net/best-ever-chick-flicks-every-girl-should-see-at-least-once/)
-- [Movies to Look Forward  to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
+- [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
 - [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
+- [best chick flicks](https://7fun.net/best-ever-chick-flicks-every-girl-should-see-at-least-once/)
+- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
+- [20 Movies to Look Forward to Watching in 2019 ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-watching-in/)
+- [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
+- [Movies to Look Forward  to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
+- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 - [7 Awesome New Movies I Cant Wait to Come out ...](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 

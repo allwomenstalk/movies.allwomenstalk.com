@@ -56,16 +56,16 @@ That sums up the list for adorable TV couples you wish dated in real life! There
 
 ## Related Posts
 
-- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
-- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
-- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
+- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
 - [famous singers from american idol](https://music.allwomenstalk.com/very-successful-artists-that-came-from-american-idol/)
-- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
+- [celebrities on dancing with the stars](https://celebs.allwomenstalk.com/celebrities-who-should-be-on-dancing-with-the-stars/)
+- [what celebrities changed their names](https://celebs.allwomenstalk.com/celebrities-who-changed-their-name-for-fame/)
 - [celebrity couples who met on set](https://celebs.allwomenstalk.com/celebrity-couples-who-met-on-a-movie-set/)
 - [celebrity beach wedding](https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/)
-- [lucy pinder toppless](https://celebs.allwomenstalk.com/good-hearted-celebrities-who-took-adopted-children-under-their-wings/)
-- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
-- [was zachary gordon actually singing](https://celebs.allwomenstalk.com/talented-celebs-you-didnt-know-could-sing/)
+- [strange looking celebrities](https://celebs.allwomenstalk.com/strange-celebrity-looks-that-shouldnt-work-but-kind-of-did/)
+- [pink celebrities](https://fashion.allwomenstalk.com/celebrities-totally-rocking-the-hot-pink-trend/)
 - [7 Celebrity Dream Couples ...](https://allwomenstalk.com/7-celebrity-dream-couples/)
 - [7 Movie Characters Id Love to Date ...](https://allwomenstalk.com/7-movie-characters-id-love-to-date/)
 

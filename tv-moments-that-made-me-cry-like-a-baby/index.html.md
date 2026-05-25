@@ -84,14 +84,14 @@ This article was written in collaboration with editor Vladlena Lee.
 
 ## Related Posts
 
-- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
 - [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
+- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
 - [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
-- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
+- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
 - [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
 - [7 Shocking Moments on This Seasons Biggest Loser ....](https://weightloss.allwomenstalk.com/shocking-moments-on-this-seasons-biggest-loser/)

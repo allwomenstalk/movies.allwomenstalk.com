@@ -42,16 +42,16 @@ Doctor Who is chock full of even more lessons, but these are the ones I think ar
 
 ## Related Posts
 
-- [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
-- [hello dolly movie soundtrack](https://movies.allwomenstalk.com/things-i-learned-from-hello-dolly/)
-- [is it bad to be brutally honest](https://lifestyle.allwomenstalk.com/times-its-okay-to-be-brutally-honest/)
-- [childish things people do](https://lifestyle.allwomenstalk.com/childish-things-to-never-give-up-or-stop-loving/)
 - [dont judge a book by its cover netflix](https://movies.allwomenstalk.com/things-i-learned-from-mean-girls/)
-- [what treatments is emily getting pll](https://movies.allwomenstalk.com/life-lessons-from-pretty-little-liars/)
-- [which foundation shade is best for wheatish skin](https://makeup.allwomenstalk.com/most-common-foundation-mistakes/)
-- [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
 - [list of distractions in life](https://health.allwomenstalk.com/major-distractions-in-your-life/)
+- [hello dolly movie soundtrack](https://movies.allwomenstalk.com/things-i-learned-from-hello-dolly/)
+- [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
 - [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
+- [what treatments is emily getting pll](https://movies.allwomenstalk.com/life-lessons-from-pretty-little-liars/)
+- [childish things people do](https://lifestyle.allwomenstalk.com/childish-things-to-never-give-up-or-stop-loving/)
+- [is it bad to be brutally honest](https://lifestyle.allwomenstalk.com/times-its-okay-to-be-brutally-honest/)
+- [which foundation shade is best for wheatish skin](https://makeup.allwomenstalk.com/most-common-foundation-mistakes/)
+- [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
 - [8 Things Ive Learned from Greys Anatomy ...](https://movies.allwomenstalk.com/things-ive-learned-from-greys-anatomy/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)
 

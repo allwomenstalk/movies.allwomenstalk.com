@@ -54,16 +54,16 @@ Were you surprised by any of these facts?
 
 ## Related Posts
 
+- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
+- [myths about vikings](https://lifestyle.allwomenstalk.com/myths-about-the-vikings-debunked/)
+- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
+- [food industry secrets](https://food.allwomenstalk.com/shocking-secrets-of-the-fast-food-industry/)
+- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
+- [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
 - [frozen 3d movie](https://movies.allwomenstalk.com/little-known-facts-about-disneys-frozen/)
 - [strange facts about dolphins](https://lifestyle.allwomenstalk.com/facts-about-dolphins-you-probably-didnt-know/)
-- [myths about vikings](https://lifestyle.allwomenstalk.com/myths-about-the-vikings-debunked/)
-- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
-- [food industry secrets](https://food.allwomenstalk.com/shocking-secrets-of-the-fast-food-industry/)
-- [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
-- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
-- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
-- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
 - [5 Facts on Scooby Doo ...](https://twilight.allwomenstalk.com/5-facts-on-scooby-doo/)
 - [10 Things You Didnt Know about Elizabeth Taylor .....](https://celebs.allwomenstalk.com/10-things-you-didnt-know-about-elizabeth-taylor/)
 

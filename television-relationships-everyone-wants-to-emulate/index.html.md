@@ -42,16 +42,16 @@ Who’s your favorite television relationship? My all-time favorite will always 
 
 ## Related Posts
 
-- [2014s Top Guilty Pleasure Reality Shows ...](https://movies.allwomenstalk.com/reality-shows-worth-checking-out/)
-- [7 Great War Poets Whose Work We Should Celebrate T...](https://books.allwomenstalk.com/great-war-poets-whose-work-we-should-celebrate-this-year/)
-- [7 Landmarks in the Outstanding Career of Richard A...](https://bilbr.com/landmarks-in-the-outstanding-career-of-richard-attenborough/)
-- [7 Awesome New Shows to Check out This Fall ...](https://movies.allwomenstalk.com/awesome-new-shows-to-check-out-this-fall/)
-- [If I Stay Divides Audiences Big Time ...](https://movies.allwomenstalk.com/if-i-stay-divides-audiences-big-time/)
-- [tv shows like continuum](https://movies.allwomenstalk.com/reasons-to-bingewatch-continuum-on-netflix/)
-- [7 Unfortunate Goofs from Politicians ...](https://funny.allwomenstalk.com/unfortunate-goofs-from-politicians/)
 - [7 Ways to Prepare for the Final Season of Sons of ...](https://movies.allwomenstalk.com/ways-to-prepare-for-the-final-season-of-sons-of-anarchy/)
-- [Entertaining Tags to Watch  on YouTube ...](https://apps.allwomenstalk.com/most-exciting-tags-to-watch-on-youtube/)
+- [2014s Top Guilty Pleasure Reality Shows ...](https://movies.allwomenstalk.com/reality-shows-worth-checking-out/)
+- [If I Stay Divides Audiences Big Time ...](https://movies.allwomenstalk.com/if-i-stay-divides-audiences-big-time/)
+- [7 Awesome New Shows to Check out This Fall ...](https://movies.allwomenstalk.com/awesome-new-shows-to-check-out-this-fall/)
+- [7 Unfortunate Goofs from Politicians ...](https://funny.allwomenstalk.com/unfortunate-goofs-from-politicians/)
+- [7 Great War Poets Whose Work We Should Celebrate T...](https://books.allwomenstalk.com/great-war-poets-whose-work-we-should-celebrate-this-year/)
 - [paris palette maximalist eyeshadow primped and pre...](https://movies.allwomenstalk.com/game-of-thrones-retro-gaming-edition/)
+- [7 Landmarks in the Outstanding Career of Richard A...](https://bilbr.com/landmarks-in-the-outstanding-career-of-richard-attenborough/)
+- [Entertaining Tags to Watch  on YouTube ...](https://apps.allwomenstalk.com/most-exciting-tags-to-watch-on-youtube/)
+- [tv shows like continuum](https://movies.allwomenstalk.com/reasons-to-bingewatch-continuum-on-netflix/)
 - [7 Celeb Hook Ups and Break Ups ...](https://allwomenstalk.com/7-celeb-hook-ups-and-break-ups/)
 - [7 Movie Characters Id Love to Date ...](https://allwomenstalk.com/7-movie-characters-id-love-to-date/)
 

@@ -56,16 +56,16 @@ That sums up my favorite TV moms! They’re all special in their own way. Sure, 
 
 ## Related Posts
 
-- [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
-- [angelinia jolie](https://celebs.allwomenstalk.com/iconic-actresses-we-love-to-watch-on-the-big-screen/)
-- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
-- [red dress blair waldorf](https://movies.allwomenstalk.com/kick-ass-female-characters-that-are-truly-inspiring/)
 - [be the woman you would look up to](https://inspiration.allwomenstalk.com/powerful-women-to-look-up-to/)
+- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
 - [princess movie characters](https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/)
 - [is geena davis nice](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
-- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
 - [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
+- [angelinia jolie](https://celebs.allwomenstalk.com/iconic-actresses-we-love-to-watch-on-the-big-screen/)
+- [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
+- [red dress blair waldorf](https://movies.allwomenstalk.com/kick-ass-female-characters-that-are-truly-inspiring/)
 - [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
+- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [8 Favorite TV Moms ...](https://allwomenstalk.com/top-8-favorite-tv-moms/)
 

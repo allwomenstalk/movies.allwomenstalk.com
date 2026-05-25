@@ -42,16 +42,16 @@ There you have it! Gossip Girl will forever be on my list of favorite TV shows. 
 
 ## Related Posts
 
-- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
 - [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
+- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
+- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
 - [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
 - [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
-- [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
-- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
-- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
-- [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
 - [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
 - [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
+- [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
+- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
+- [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
 - [7 Best Celebrity Gossip Websites ...](https://celebs.allwomenstalk.com/best-celebrity-gossip-websites/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 

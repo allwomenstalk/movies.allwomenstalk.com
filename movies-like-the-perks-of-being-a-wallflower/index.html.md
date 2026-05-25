@@ -54,16 +54,16 @@ These are great coming-of-age comedy-dramas that will teach you important life l
 
 ## Related Posts
 
+- [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
+- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
+- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
+- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
+- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
+- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
 - [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
 - [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
-- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
-- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
-- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
-- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
-- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
 - [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
-- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
-- [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
 - [10 Classic High School Movies to Watch with Friend...](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
 - [7 Funny College Movies All Students Should Watch ....](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 

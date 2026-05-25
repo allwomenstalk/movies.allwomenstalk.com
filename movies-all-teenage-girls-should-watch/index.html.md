@@ -43,15 +43,15 @@ These are all movies that I loved to indulge in as a teenager, and many of which
 ## Related Posts
 
 - [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
-- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
-- [new years eve movie online](https://movies.allwomenstalk.com/fun-movies-to-watch-this-new-years-eve/)
-- [wish i could](https://movies.allwomenstalk.com/exciting-movies-you-wish-could-happen-in-real-life/)
-- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
-- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
 - [best romantic action movies](https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
+- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
+- [new years eve movie online](https://movies.allwomenstalk.com/fun-movies-to-watch-this-new-years-eve/)
+- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
 - [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
 - [is moon embracing the sun worth watching](https://movies.allwomenstalk.com/popular-korean-dramas-youll-have-a-blast-watching/)
+- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
+- [wish i could](https://movies.allwomenstalk.com/exciting-movies-you-wish-could-happen-in-real-life/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

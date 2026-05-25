@@ -56,16 +56,16 @@ What’s your favorite off-screen relationship? There are so many amazing friend
 
 ## Related Posts
 
-- [21 Celebrity Couples Who Got Married in Secret ...](https://wedding.allwomenstalk.com/celebrity-couples-who-got-married-in-secret/)
-- [Celebs That Should Inspire You in All Areas of Lif...](https://celebs.allwomenstalk.com/celebs-that-should-inspire-you-in-all-areas-of-life/)
 - [Kardashian Christmases Throughout the Years ...](https://celebs.allwomenstalk.com/kardashian-christmases-throughout-the-years/)
+- [11 Celebrity Reactions about the Deadly Paris Atta...](https://celebs.allwomenstalk.com/celebrity-reactions-about-the-deadly-paris-attacks-prayforparis/)
+- [21 Celebrity Couples Who Got Married in Secret ...](https://wedding.allwomenstalk.com/celebrity-couples-who-got-married-in-secret/)
 - [valerie bertinelli boston marathon](https://running.allwomenstalk.com/celebs-thatll-inspire-you-to-start-running/)
-- [fav couples](https://celebs.allwomenstalk.com/how-of-our-fav-celeb-celebrity-couples-met/)
-- [tobey maguire las vegas parano](https://movies.allwomenstalk.com/unexpected-cameos-from-your-favorite-celebrities/)
 - [You Have to See How These Celebs Party during the ...](https://celebs.allwomenstalk.com/you-have-to-see-how-these-celebs-party-during-the-holidays/)
 - [You Wont Believe the Secret Identity of Your 27 Fa...](https://celebs.allwomenstalk.com/you-wont-believe-the-secret-identity-of-your-fav-celebrities/)
-- [11 Celebrity Reactions about the Deadly Paris Atta...](https://celebs.allwomenstalk.com/celebrity-reactions-about-the-deadly-paris-attacks-prayforparis/)
+- [Celebs That Should Inspire You in All Areas of Lif...](https://celebs.allwomenstalk.com/celebs-that-should-inspire-you-in-all-areas-of-life/)
 - [Best Celeb Couples of All Time Are ...](https://celebs.allwomenstalk.com/best-celeb-couples-of-all-time-are/)
+- [tobey maguire las vegas parano](https://movies.allwomenstalk.com/unexpected-cameos-from-your-favorite-celebrities/)
+- [fav couples](https://celebs.allwomenstalk.com/how-of-our-fav-celeb-celebrity-couples-met/)
 - [Top 10 Most Adorable Movie Couples ...](https://allwomenstalk.com/top-10-most-adorable-movie-couples/)
 - [9 Adorable Celebs That Should Be Together ...](https://celebs.allwomenstalk.com/adorable-celebs-that-should-be-together/)
 

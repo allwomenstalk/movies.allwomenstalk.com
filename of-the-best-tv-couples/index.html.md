@@ -54,16 +54,16 @@ The best TV couples are the ones that make us laugh, cry, and get angry, happy, 
 
 ## Related Posts
 
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
+- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
 - [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
 - [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
 - [The Top 10 Leading Men of All Time ...](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
 

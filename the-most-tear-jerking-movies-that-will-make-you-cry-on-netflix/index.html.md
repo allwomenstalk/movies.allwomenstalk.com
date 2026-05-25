@@ -49,16 +49,16 @@ Netflix is known for taking away awesome movies and shows, so if one or all of t
 
 ## Related Posts
 
-- [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
-- [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
 - [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
-- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
 - [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
-- [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
+- [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
 - [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
 - [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
+- [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
+- [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
 - [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
-- [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
+- [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
+- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
 - [21 Tearjerking Romantic Movies Perfect for Valenti...](https://allwomenstalk.com/10-romantic-movies-to-cry-over-this-valentines/)
 - [10 Movies That Make Me Cry ...](https://allwomenstalk.com/10-movies-that-make-me-cry/)
 

@@ -42,16 +42,16 @@ Which of these documentaries will you be checking out first? Let us know in the 
 
 ## Related Posts
 
-- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
+- [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
+- [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
+- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
 - [outlet.naiston glorious](https://movies.allwomenstalk.com/movies-thatll-give-you-the-perfect-outlet-for-your-pms-outbursts/)
 - [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
-- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
-- [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
-- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
 - [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
-- [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
-- [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
 - [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
+- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
+- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
+- [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 

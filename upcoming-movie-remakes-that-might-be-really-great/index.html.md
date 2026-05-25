@@ -75,16 +75,16 @@ A lot of upcoming movie remakes do look really fantastic, but there are others â
 
 ## Related Posts
 
+- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
 - [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
-- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
-- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
-- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
+- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 

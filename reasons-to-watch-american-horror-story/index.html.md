@@ -42,16 +42,16 @@ American Horror Story is a quality television series that has a lot of potential
 
 ## Related Posts
 
-- [bella thorne seventeen magazine](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-bella-thorne/)
 - [is mila kunis a scientologist](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mila-kunis/)
-- [alex y sierra](https://celebs.allwomenstalk.com/awesome-reasons-to-love-alex-sierra/)
 - [hayden panettiere no makeup](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-hayden-panettiere/)
-- [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
-- [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
+- [dating a dancer](https://love.allwomenstalk.com/pretty-convincing-reasons-to-date-a-dancer/)
 - [why do i love eggs so much](https://food.allwomenstalk.com/delicious-reasons-to-love-eggs/)
 - [summary of game of thrones](https://movies.allwomenstalk.com/reasons-why-we-love-game-of-thrones-so-much/)
-- [dating a dancer](https://love.allwomenstalk.com/pretty-convincing-reasons-to-date-a-dancer/)
+- [alex y sierra](https://celebs.allwomenstalk.com/awesome-reasons-to-love-alex-sierra/)
+- [bella thorne seventeen magazine](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-bella-thorne/)
+- [melissa joan hart and joey lawrence](https://movies.allwomenstalk.com/reasons-to-love-melissa-and-joey/)
 - [where can u watch maleficent](https://movies.allwomenstalk.com/reasons-to-watch-maleficent-right-away/)
+- [kendall jenner age 18](https://celebs.allwomenstalk.com/reasons-why-kendall-jenner-is-the-next-big-thing/)
 - [5 Reasons to Watch New Moon ...](https://twilight.allwomenstalk.com/5-reasons-to-watch-new-moon/)
 - [7 Reasons to Watch Harry Potter Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-harry-potter-movies/)
 

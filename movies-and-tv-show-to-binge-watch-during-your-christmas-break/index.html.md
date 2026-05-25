@@ -42,15 +42,15 @@ Which movies and TV shows are you watching during your Christmas break? Give us 
 
 ## Related Posts
 
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
-- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
 - [8 Workouts to do While Watching TV ...](https://fitness.allwomenstalk.com/workouts-to-do-while-watching-tv/)
 - [7 Reasons to Work out While on Vacation ...](https://fitness.allwomenstalk.com/reasons-to-workout-while-on-vacation/)

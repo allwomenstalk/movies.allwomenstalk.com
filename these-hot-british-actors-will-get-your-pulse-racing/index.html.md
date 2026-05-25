@@ -130,16 +130,16 @@ Bad pun: he's not a four. He's a ten!
 
 ## Related Posts
 
-- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
+- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
+- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
 - [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
 - [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
-- [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
-- [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
-- [how old is gabby union](https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/)
-- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
 - [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
+- [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
+- [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
+- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
 - [18 Blonde Actresses We All Know and Love ...](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 - [9 Gorgeous Bald Actors ...](https://allwomenstalk.com/9-gorgeous-bald-actors/)
 

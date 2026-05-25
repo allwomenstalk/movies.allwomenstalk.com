@@ -76,16 +76,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
 - [audrey hepburn film list](https://movies.allwomenstalk.com/classic-audrey-hepburn-movies/)
-- [movies to watch with group of friends](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
-- [movies about the old south](https://movies.allwomenstalk.com/marvelous-movies-about-the-south/)
 - [summer movies 2012](https://movies.allwomenstalk.com/top-summer-movies-to-definitely-go-see/)
-- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
-- [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
 - [richmond va theater](https://travel.allwomenstalk.com/great-american-movie-theaters/)
-- [funny detective movie](https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/)
+- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
+- [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
 - [blockbusters 2012](https://movies.allwomenstalk.com/most-anticipated-blockbusters-for-everyones-got-to-see/)
+- [funny detective movie](https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/)
+- [movies to watch with group of friends](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
+- [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
+- [movies about the old south](https://movies.allwomenstalk.com/marvelous-movies-about-the-south/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 - [9 Inspiring Underdog Movies Youll Love ...](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
 

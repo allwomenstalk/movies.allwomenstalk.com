@@ -80,16 +80,16 @@ Now you know some little known facts about James Bond movies that most people do
 
 ## Related Posts
 
-- [Disgusting Things You Didnt Know about Your Booty ...](https://health.allwomenstalk.com/disgusting-things-you-didnt-know-about-your-booty/)
-- [who eats salmon](https://food.allwomenstalk.com/awesome-facts-everyone-who-eats-salmon-needs-to-know/)
+- [infographics about environment](https://lifestyle.allwomenstalk.com/infographics-to-help-you-understand-environmental-issues/)
+- [facts about christmas cookies](https://food.allwomenstalk.com/facts-about-christmas-cookies-you-never-knew/)
 - [site:allwomenstalk.com](https://lifestyle.allwomenstalk.com/cool-things-that-you-definitely-didnt-learn-in-school/)
 - [fun facts about proteins](https://diet.allwomenstalk.com/did-you-know-this-about-protein/)
-- [infographics about environment](https://lifestyle.allwomenstalk.com/infographics-to-help-you-understand-environmental-issues/)
 - [blazing saddles paddle ball gif](https://health.allwomenstalk.com/who-knew-these-awesome-facts-about-breasts/)
+- [who eats salmon](https://food.allwomenstalk.com/awesome-facts-everyone-who-eats-salmon-needs-to-know/)
 - [cosas que pasan en el mundo y no sabemos](https://lifestyle.allwomenstalk.com/huge-things-you-didnt-know-were-happening-in-the-world/)
-- [red head and anesthesia](https://hair.allwomenstalk.com/a-few-interesting-facts-about-redheads/)
+- [Disgusting Things You Didnt Know about Your Booty ...](https://health.allwomenstalk.com/disgusting-things-you-didnt-know-about-your-booty/)
 - [facts to blow your mind](https://lifestyle.allwomenstalk.com/facts-thatll-blow-your-mind/)
-- [facts about christmas cookies](https://food.allwomenstalk.com/facts-about-christmas-cookies-you-never-knew/)
+- [red head and anesthesia](https://hair.allwomenstalk.com/a-few-interesting-facts-about-redheads/)
 - [7 Unique Facts about Diamonds You Did Not Know ...](https://jewelry.allwomenstalk.com/unique-facts-about-diamonds-you-did-not-know/)
 - [10 Little Known Facts about 911 ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-911/)
 

@@ -42,16 +42,16 @@ I love talking about great TV friendships! They’re all so amazing for their ow
 
 ## Related Posts
 
-- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
 - [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
-- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
 - [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
+- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
 - [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
+- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Most Popular Television Shows ...](https://allwomenstalk.com/7-most-popular-television-shows/)
 

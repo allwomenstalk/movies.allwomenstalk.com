@@ -57,15 +57,15 @@ What’s your favorite Julia Roberts movie? Mine is Steel Magnolias) And what do
 ## Related Posts
 
 - [the look of love in a mans eyes](https://love.allwomenstalk.com/things-you-should-feel-when-you-look-into-your-lovers-eyes/)
-- [romantic intimacy](https://love.allwomenstalk.com/get-an-insight-into-intimacy-with-these-romantic-photos/)
-- [spoil him](https://love.allwomenstalk.com/ways-to-spoil-your-boyfriend/)
 - [couple. poses](https://love.allwomenstalk.com/the-cutest-couple-poses-to-use-on-instagram/)
-- [meaning of reaffirm](https://love.allwomenstalk.com/ways-to-reaffirm-your-love/)
 - [to more memories with you](https://love.allwomenstalk.com/types-of-memories-you-should-make-with-your-boyfriend/)
-- [disney proposals](https://love.allwomenstalk.com/the-most-romantic-disney-proposals-of-all-time/)
+- [spoil him](https://love.allwomenstalk.com/ways-to-spoil-your-boyfriend/)
 - [fun date ideas for guys](https://love.allwomenstalk.com/man-approved-date-ideas/)
-- [list of romantic gestures](https://love.allwomenstalk.com/romantic-gestures-to-put-on-your-to-do-list/)
 - [romantic fall date ideas](https://love.allwomenstalk.com/the-most-romantic-dates-you-could-go-on-during-fall/)
+- [disney proposals](https://love.allwomenstalk.com/the-most-romantic-disney-proposals-of-all-time/)
+- [romantic intimacy](https://love.allwomenstalk.com/get-an-insight-into-intimacy-with-these-romantic-photos/)
+- [list of romantic gestures](https://love.allwomenstalk.com/romantic-gestures-to-put-on-your-to-do-list/)
+- [meaning of reaffirm](https://love.allwomenstalk.com/ways-to-reaffirm-your-love/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [7 Best Romantic Movie Scenes ...](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
 

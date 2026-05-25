@@ -56,16 +56,16 @@ Well, there you have it! These are just seven out of many reasons why you should
 
 ## Related Posts
 
-- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
-- [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
 - [is zendaya nice](https://celebs.allwomenstalk.com/awesome-reasons-to-love-zendaya/)
+- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
+- [awkward. show](https://movies.allwomenstalk.com/reasons-to-love-awkward-and-add-it-to-your-favorites/)
+- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
+- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
+- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
+- [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
 - [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
 - [opening act fall out boy](https://music.allwomenstalk.com/reasons-to-be-excited-for-fall-out-boys-upcoming-tour/)
-- [guilt free tv](https://movies.allwomenstalk.com/reasons-to-watch-reality-tv-without-feeling-guilty/)
-- [mindy rock of love](https://celebs.allwomenstalk.com/awesome-reasons-to-love-mindy-kaling/)
-- [lucy hale with glasses](https://celebs.allwomenstalk.com/reasons-why-lucy-hale-is-bff-material/)
-- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
-- [long distance friendships](https://lifestyle.allwomenstalk.com/awesome-reasons-long-distance-friendships-rock/)
+- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
 - [7 Reasons to Watch Merlin Series ...](https://movies.allwomenstalk.com/reasons-to-watch-merlin-series/)
 - [10 Reasons Why I Love True Blood ...](https://allwomenstalk.com/10-reasons-why-i-love-true-blood/)
 

@@ -56,14 +56,14 @@ So that’s my short list of movies to watch after a breakup. I’m sure you’v
 
 ## Related Posts
 
-- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
-- [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
-- [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
-- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
 - [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
-- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
+- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
+- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
+- [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
 - [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
 - [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
+- [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
+- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
 - [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
 - [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
 - [15 Inspiring Movies That Will Lift Your Spirits .....](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)

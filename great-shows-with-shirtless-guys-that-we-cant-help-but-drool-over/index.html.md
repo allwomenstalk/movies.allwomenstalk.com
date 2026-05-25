@@ -56,16 +56,16 @@ Making men remove their shirts is a cheap trick to draw in female viewers, but i
 
 ## Related Posts
 
-- [california eating orange in bathtub](https://funny.allwomenstalk.com/of-americas-strangest-laws/)
-- [dj roomba parks and rec](https://movies.allwomenstalk.com/parks-and-rec-characters-weve-all-identified-with/)
-- [late cartoon](https://movies.allwomenstalk.com/late-great-cartoons-and-why-we-miss-them/)
-- [hollywood acting dynasty of kirk and michael](https://movies.allwomenstalk.com/great-acting-dynasties-and-families/)
-- [michelle phan angelina jolie makeup](https://beauty.allwomenstalk.com/incredible-transformations-on-youtube/)
-- [snl cajun man](https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/)
 - [how tall was anne boleyn](https://movies.allwomenstalk.com/pieces-of-popular-culture-inspired-by-anne-boleyn/)
-- [segment ideas for talk show](https://funny.allwomenstalk.com/hilarious-segments-from-the-ellen-degeneres-show/)
-- [underdogs girlfriend](https://movies.allwomenstalk.com/most-charming-underdogs-on-tv/)
+- [late cartoon](https://movies.allwomenstalk.com/late-great-cartoons-and-why-we-miss-them/)
+- [california eating orange in bathtub](https://funny.allwomenstalk.com/of-americas-strangest-laws/)
+- [michelle phan angelina jolie makeup](https://beauty.allwomenstalk.com/incredible-transformations-on-youtube/)
 - [ross funny](https://movies.allwomenstalk.com/of-ross-gellers-best-moments-from-the-f-r-i-e-n-d-s-series/)
+- [hollywood acting dynasty of kirk and michael](https://movies.allwomenstalk.com/great-acting-dynasties-and-families/)
+- [dj roomba parks and rec](https://movies.allwomenstalk.com/parks-and-rec-characters-weve-all-identified-with/)
+- [segment ideas for talk show](https://funny.allwomenstalk.com/hilarious-segments-from-the-ellen-degeneres-show/)
+- [snl cajun man](https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/)
+- [underdogs girlfriend](https://movies.allwomenstalk.com/most-charming-underdogs-on-tv/)
 - [10 Hottest Men in Hollywood ...](https://celebs.allwomenstalk.com/hottest-men-in-hollywood/)
 - [7 Amazing Celebrity Beach Bodies ...](https://allwomenstalk.com/7-amazing-celebrity-beach-bodies/)
 

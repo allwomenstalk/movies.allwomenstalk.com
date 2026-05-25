@@ -56,16 +56,16 @@ These are my favorite on-screen couples. Which are yours?
 
 ## Related Posts
 
-- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
 - [shirley valentine on netflix](https://movies.allwomenstalk.com/underrated-british-movies-that-deserve-some-serious-credit/)
+- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
+- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
 - [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
-- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
-- [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
+- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
 - [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
-- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
 - [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
-- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
 - [7 Hottest on-Screen Heroes of All Times ...](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 - [Top 7 Romantic Comedies ...](https://movies.allwomenstalk.com/top-romantic-comedies/)
 

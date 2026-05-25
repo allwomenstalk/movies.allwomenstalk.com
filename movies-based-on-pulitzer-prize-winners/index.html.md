@@ -138,16 +138,16 @@ How many have you seen? And how many of the books/plays have you read. Are you p
 
 ## Related Posts
 
-- [horror movies you shouldnt watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [films about being single](https://love.allwomenstalk.com/the-best-movies-about-being-single/)
-- [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
 - [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
-- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
 - [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
+- [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
+- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
 - [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
 - [disney movie old](https://movies.allwomenstalk.com/old-disney-movies-you-should-watch-before-you-die/)
 - [most secual movies](https://movies.allwomenstalk.com/the-most-sexually-charged-movies-of-all-time/)
-- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
+- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
+- [horror movies you shouldnt watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
 - [8 Movies Based on Books ...](https://movies.allwomenstalk.com/movies-based-on-books/)
 

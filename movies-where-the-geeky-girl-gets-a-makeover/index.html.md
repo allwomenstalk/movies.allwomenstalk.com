@@ -70,16 +70,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
+- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 - [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
 - [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
-- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
+- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
 - [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
-- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
-- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 - [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
+- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
 - [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
+- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
 

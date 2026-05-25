@@ -51,15 +51,15 @@ People in horror movies have obviously never watched a horror movie before. Mayb
 ## Related Posts
 
 - [how to deal with a bully at school](https://teen.allwomenstalk.com/types-of-people-to-avoid-in-high-school/)
-- [relationship no nos](https://love.allwomenstalk.com/online-dating-no-nos-to-stop-doing-right-now/)
-- [why do i feel like im losing everyone](https://teen.allwomenstalk.com/worst-types-of-friends-you-shouldnt-keep-in-your-life/)
-- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
-- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
 - [inland taipan antidote](https://lifestyle.allwomenstalk.com/venomous-snakes-you-need-to-avoid/)
 - [the real reason your teenager is ignoring you the ...](https://parenting.allwomenstalk.com/things-your-teen-will-do-that-you-should-probably-ignore/)
-- [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
-- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
 - [deadly creatures](https://travel.allwomenstalk.com/deadly-creatures-youre-going-to-want-to-avoid/)
+- [relationship no nos](https://love.allwomenstalk.com/online-dating-no-nos-to-stop-doing-right-now/)
+- [potato and onion storage](https://food.allwomenstalk.com/produce-items-you-shouldnt-keep-in-the-fridge/)
+- [why do i feel like im losing everyone](https://teen.allwomenstalk.com/worst-types-of-friends-you-shouldnt-keep-in-your-life/)
+- [personality turn offs](https://love.allwomenstalk.com/traits-that-are-turn-offs-for-any-gender/)
+- [never pay retail for college](https://money.allwomenstalk.com/things-you-should-never-pay-full-price-for-2/)
+- [things to avoid in an essay](https://teen.allwomenstalk.com/things-to-avoid-when-writing-an-essay/)
 - [5 Moves Not to Make around Vampires](https://twilight.allwomenstalk.com/5-moves-not-to-make-around-vampires/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 

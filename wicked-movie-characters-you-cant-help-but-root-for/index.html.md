@@ -42,16 +42,16 @@ So if you also love the bad guys in movies, here's some more for you to root for
 
 ## Related Posts
 
+- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
+- [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
+- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
+- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
+- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
+- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
 - [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
 - [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
-- [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
-- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
-- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
-- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
 - [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
-- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
-- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
 

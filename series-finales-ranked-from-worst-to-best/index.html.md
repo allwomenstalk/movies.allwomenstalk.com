@@ -42,16 +42,16 @@ What are your favorite and least favorite series finales? These are just a few o
 
 ## Related Posts
 
-- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
-- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
-- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
-- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
-- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
 - [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
 - [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
+- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
 - [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
-- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
+- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
+- [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
 - [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
+- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
+- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
+- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

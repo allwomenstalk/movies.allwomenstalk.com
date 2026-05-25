@@ -42,16 +42,16 @@ I can definitely wear out all of these films, then watch them all over again any
 
 ## Related Posts
 
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
-- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
-- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
 - [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
+- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
+- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
+- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 

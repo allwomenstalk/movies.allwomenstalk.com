@@ -42,16 +42,16 @@ What do you think of Rosamund Pike?
 
 ## Related Posts
 
-- [better than your boyfriend](https://funny.allwomenstalk.com/reasons-netflix-is-better-than-a-boyfriend/)
-- [beautiful biracial girls](https://inspiration.allwomenstalk.com/readerknows-this-is-why-its-beautiful-to-be-a-biracial-child/)
-- [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
-- [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
-- [the cutest couple in the world](https://celebs.allwomenstalk.com/this-is-why-chip-and-joanna-are-the-cutest-couple-around/)
 - [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
-- [best ayn rand book](https://books.allwomenstalk.com/reasons-to-love-ayn-rand/)
+- [better than your boyfriend](https://funny.allwomenstalk.com/reasons-netflix-is-better-than-a-boyfriend/)
+- [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
 - [monica frizzy hair episode](https://movies.allwomenstalk.com/reasons-why-f-r-i-e-n-d-s-is-still-an-awesome-t-v-show/)
-- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
+- [best ayn rand book](https://books.allwomenstalk.com/reasons-to-love-ayn-rand/)
+- [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
 - [chandler dance gif](https://lifestyle.allwomenstalk.com/why-its-oh-so-easy-to-relate-to-chandler-bing/)
+- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
+- [the cutest couple in the world](https://celebs.allwomenstalk.com/this-is-why-chip-and-joanna-are-the-cutest-couple-around/)
+- [beautiful biracial girls](https://inspiration.allwomenstalk.com/readerknows-this-is-why-its-beautiful-to-be-a-biracial-child/)
 - [5 Reasons Girls Love Robert Pattinson ...](https://twilight.allwomenstalk.com/5-reasons-girls-love-robert-pattinson/)
 - [7 Reasons the Kings Speech Should Sweep the Oscars...](https://movies.allwomenstalk.com/7-reasons-the-kings-speech-should-sweep-the-oscars/)
 

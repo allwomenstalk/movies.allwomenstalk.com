@@ -44,16 +44,16 @@ Top Photo Credit: _Dude With Camera_
 
 ## Related Posts
 
-- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
-- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
-- [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
-- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
-- [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
-- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
-- [random list of movies](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
-- [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
+- [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
+- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
+- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
+- [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
+- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
 - [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
+- [random list of movies](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
+- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
+- [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
 - [7 of My Favorite Chick-Flick Movies ...](https://allwomenstalk.com/7-of-my-favorite-chick-flick-movies/)
 - [7 Ideas for a Girls Night in ...](https://allwomenstalk.com/7-ideas-for-a-girls-night-in/)
 

@@ -70,16 +70,16 @@ I haven't yet seen The King's Speech, but I can't wait. I know it's going to be 
 
 ## Related Posts
 
+- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
+- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
+- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
+- [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
+- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 - [random list of movies](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
-- [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 - [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
-- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
-- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
-- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
 - [what food to buy for a movie night](https://movies.allwomenstalk.com/best-snacks-for-movie-night-with-the-girls/)
-- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

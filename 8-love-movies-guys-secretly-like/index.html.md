@@ -48,16 +48,16 @@ Top Photo Credit: [Pineapples101](https://www.flickr.com/photos/pineapples101/43
 
 ## Related Posts
 
-- [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
-- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
 - [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
-- [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
-- [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
-- [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
+- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
+- [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
 - [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
+- [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
+- [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
+- [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

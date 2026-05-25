@@ -42,16 +42,16 @@ It is really unfortunate that spinoffs don’t always work out the same way the 
 
 ## Related Posts
 
-- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
 - [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
 - [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 - [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

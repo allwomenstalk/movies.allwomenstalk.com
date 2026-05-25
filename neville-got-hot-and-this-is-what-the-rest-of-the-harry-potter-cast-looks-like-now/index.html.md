@@ -76,16 +76,16 @@ Thank you, internet, for always entertaining me when I'm bored, for having just 
 
 ## Related Posts
 
-- [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
-- [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
-- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
 - [emma watson gpa](https://celebs.allwomenstalk.com/beauty-brains-celebrities-that-went-back-to-school/)
+- [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
+- [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
+- [celebrity couple goals](https://celebs.allwomenstalk.com/celebrity-couples-that-should-be-your-relationshipgoals/)
+- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
+- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
 - [gay love stories movie](https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/)
 - [fame vs celebrity](https://celebs.allwomenstalk.com/why-we-all-need-to-stop-envying-celebrities/)
-- [big bang top hair](https://music.allwomenstalk.com/kpop-stars-who-rocked-their-hair-color/)
-- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
-- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
+- [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [Emma Watsons Red Carpet Looks for Harry Potter ...](https://celebs.allwomenstalk.com/emma-watsons-red-carpet-looks-for-harry-potter/)
 

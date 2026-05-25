@@ -56,16 +56,16 @@ The Harry Potter cast is comprised of many talented actors whose personal lives 
 
 ## Related Posts
 
-- [pros and cons of eating chia seeds](https://food.allwomenstalk.com/amazing-facts-about-chia-seeds-that-will-surely-impress-you/)
-- [cool facts about jk rowling](https://celebs.allwomenstalk.com/fun-facts-about-j-k-rowling-that-will-make-you-love-her-even-more/)
-- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
-- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
-- [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
 - [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
+- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
 - [facts about extroverts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-extroverts/)
-- [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
+- [cool facts about jk rowling](https://celebs.allwomenstalk.com/fun-facts-about-j-k-rowling-that-will-make-you-love-her-even-more/)
+- [pros and cons of eating chia seeds](https://food.allwomenstalk.com/amazing-facts-about-chia-seeds-that-will-surely-impress-you/)
 - [11 fun facts about tulips](https://travel.allwomenstalk.com/facts-about-disney-parks-that-you-probably-didnt-know/)
+- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
 - [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
+- [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
+- [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
 - [7 Best James Bond Actors ...](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [7 Minor Harry Potter Characters ...](https://movies.allwomenstalk.com/minor-harry-potter-characters/)
 

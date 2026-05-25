@@ -174,16 +174,16 @@ What movies are yours and your moms go-to when you want to bond?
 
 ## Related Posts
 
-- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
-- [best mother movies](https://movies.allwomenstalk.com/movies-you-should-watch-with-your-mama-on-mothers-day/)
-- [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
-- [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
-- [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
-- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
 - [breakup movies to watch](https://movies.allwomenstalk.com/the-best-breakup-movies-of-all-time-for-girls-who-love-a-good-cry/)
+- [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
+- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
+- [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
+- [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
+- [best mother movies](https://movies.allwomenstalk.com/movies-you-should-watch-with-your-mama-on-mothers-day/)
 - [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
 - [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
-- [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
+- [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
+- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
 - [21 Tearjerking Romantic Movies Perfect for Valenti...](https://allwomenstalk.com/10-romantic-movies-to-cry-over-this-valentines/)
 - [7 Onscreen Moms We Love ...](https://allwomenstalk.com/7-onscreen-moms-we-love/)
 

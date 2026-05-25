@@ -42,16 +42,16 @@ There you have it! Undeclared really is an awesome show. What do you love most a
 
 ## Related Posts
 
-- [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
-- [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
-- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
 - [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
-- [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
-- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
-- [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
-- [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
+- [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
 - [psych show](https://movies.allwomenstalk.com/reasons-you-should-be-binge-watching-psych/)
+- [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
 - [the carrie diaries season 2 episode 7](https://movies.allwomenstalk.com/reasons-to-watch-the-carrie-diaries-regardless-of-your-age/)
+- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
+- [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
+- [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
+- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
 - [5 Reasons to Watch New Moon ...](https://twilight.allwomenstalk.com/5-reasons-to-watch-new-moon/)
 - [7 Reasons to Watch the Game of Thrones ...](https://movies.allwomenstalk.com/reasons-to-watch-the-game-of-thrones/)
 

@@ -42,16 +42,16 @@ Goodness, there are some fantastic musicals out there. This list spans the decad
 
 ## Related Posts
 
-- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
 - [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
-- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
-- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
 - [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
 - [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
+- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
 - [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
-- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
 - [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
+- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
+- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
 

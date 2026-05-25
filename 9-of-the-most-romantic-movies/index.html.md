@@ -70,16 +70,16 @@ I think romantic movies are intensely personal. By that I mean that every indivi
 
 ## Related Posts
 
-- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
-- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
-- [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
-- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
-- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
-- [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
-- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
-- [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
+- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
 - [loreal le stylo smoky always pearly pink](https://movies.allwomenstalk.com/best-sports-movies-ever-made/)
+- [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
+- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
+- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
+- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
+- [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
+- [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
+- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 

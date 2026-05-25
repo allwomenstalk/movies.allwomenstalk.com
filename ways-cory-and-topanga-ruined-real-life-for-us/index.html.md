@@ -68,16 +68,16 @@ Don’t you just love Cory and Topanga? What’s your favorite Cory and Topanga 
 
 ## Related Posts
 
-- [watch truly strange](https://fitness.allwomenstalk.com/strange-olympic-sports-that-are-actually-fun-to-watch/)
-- [how to be like barney stinson](https://love.allwomenstalk.com/effective-barney-stinson-flirting-moves-to-steal/)
-- [saturday night live best of](https://movies.allwomenstalk.com/best-recurring-sketches-on-saturday-night-live/)
-- [promise phan](https://makeup.allwomenstalk.com/disney-makeup-transformations-that-are-simply-amazing/)
-- [greys anatomy graduation speech](https://movies.allwomenstalk.com/most-memorable-speeches-from-greys-anatomy/)
-- [top 10 buffy episodes](https://movies.allwomenstalk.com/best-episodes-of-buffy-the-vampire-slayer-that-youve-got-to-see/)
-- [brad pitt buddhist](https://travel.allwomenstalk.com/days-in-tibet-because-we-dont-have-7-years-like-brad-pitt/)
-- [best fantasy shows on tv](https://movies.allwomenstalk.com/great-fantasy-shows-for-young-adults/)
-- [brady bunch clothing](https://movies.allwomenstalk.com/ways-the-brady-bunch-changed-the-world/)
 - [what is the most controversial tv show](https://movies.allwomenstalk.com/most-controversial-tv-moments/)
+- [best fantasy shows on tv](https://movies.allwomenstalk.com/great-fantasy-shows-for-young-adults/)
+- [greys anatomy graduation speech](https://movies.allwomenstalk.com/most-memorable-speeches-from-greys-anatomy/)
+- [brady bunch clothing](https://movies.allwomenstalk.com/ways-the-brady-bunch-changed-the-world/)
+- [how to be like barney stinson](https://love.allwomenstalk.com/effective-barney-stinson-flirting-moves-to-steal/)
+- [watch truly strange](https://fitness.allwomenstalk.com/strange-olympic-sports-that-are-actually-fun-to-watch/)
+- [promise phan](https://makeup.allwomenstalk.com/disney-makeup-transformations-that-are-simply-amazing/)
+- [brad pitt buddhist](https://travel.allwomenstalk.com/days-in-tibet-because-we-dont-have-7-years-like-brad-pitt/)
+- [top 10 buffy episodes](https://movies.allwomenstalk.com/best-episodes-of-buffy-the-vampire-slayer-that-youve-got-to-see/)
+- [saturday night live best of](https://movies.allwomenstalk.com/best-recurring-sketches-on-saturday-night-live/)
 - [7 Ways Reality TV Ruins Relationships ...](https://love.allwomenstalk.com/ways-reality-tv-ruins-relationships/)
 - [7 Ways MTV is Killing the Video Star ...](https://allwomenstalk.com/7-ways-mtv-is-killing-the-video-star/)
 

@@ -63,16 +63,16 @@ If your summer consists of staycations and mini-breaks from the hustle and bustl
 
 ## Related Posts
 
-- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
-- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
+- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
 - [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
 - [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
-- [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
-- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
-- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
 - [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
 - [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
 - [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
+- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
+- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
+- [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
+- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 - [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
 

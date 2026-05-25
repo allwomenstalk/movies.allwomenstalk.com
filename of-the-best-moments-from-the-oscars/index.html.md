@@ -42,16 +42,16 @@ Well, there you have it! These were just seven out of many epic moments from the
 
 ## Related Posts
 
-- [9 Celebrities with Great Red Carpet Style ...](https://celebs.allwomenstalk.com/celebrities-with-great-red-carpet-style/)
-- [Country Music Awards 2014 Recap: Red Carpet Arriva...](https://fashion.allwomenstalk.com/country-music-awards-recap-red-carpet-arrivals-winners/)
-- [Relive the Best Red Carpet Fashion from the Hollyw...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-hollywood-film-awards/)
-- [AmfAR LA Inspiration Gala 2014: Best Dressed Celeb...](https://fashion.allwomenstalk.com/amfar-la-inspiration-gala-best-dressed-celebs/)
-- [MTV EMAs Recap: List of Winners  Red Carpet Fashio...](https://fashion.allwomenstalk.com/mtv-emas-recap-list-of-winners-red-carpet-fashion/)
-- [Throwing Shade on the Alleged Shade at the VMAs .....](https://celebs.allwomenstalk.com/throwing-shade-on-the-alleged-shade-at-the-vmas/)
-- [7 Celebrities Wearing a Topknot - Who Wore It Best](https://hair.allwomenstalk.com/celebrities-wearing-a-topknot-who-wore-it-best/)
-- [Love It or Hate It: Lena Dunhams Emmy Look ...](https://celebs.allwomenstalk.com/love-it-or-hate-it-lena-dunhams-emmy-look/)
-- [The Hunger Games: Mockingjay Premiere - What the S...](https://fashion.allwomenstalk.com/the-hunger-games-mockingjay-premiere-what-the-stars-wore-in-london/)
 - [7 Best Beauty Highlights from the Oscars in 2014 ....](https://beauty.allwomenstalk.com/best-beauty-highlights-from-the-oscars-in/)
+- [7 Celebrities Wearing a Topknot - Who Wore It Best](https://hair.allwomenstalk.com/celebrities-wearing-a-topknot-who-wore-it-best/)
+- [Throwing Shade on the Alleged Shade at the VMAs .....](https://celebs.allwomenstalk.com/throwing-shade-on-the-alleged-shade-at-the-vmas/)
+- [9 Celebrities with Great Red Carpet Style ...](https://celebs.allwomenstalk.com/celebrities-with-great-red-carpet-style/)
+- [MTV EMAs Recap: List of Winners  Red Carpet Fashio...](https://fashion.allwomenstalk.com/mtv-emas-recap-list-of-winners-red-carpet-fashion/)
+- [Love It or Hate It: Lena Dunhams Emmy Look ...](https://celebs.allwomenstalk.com/love-it-or-hate-it-lena-dunhams-emmy-look/)
+- [Relive the Best Red Carpet Fashion from the Hollyw...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-hollywood-film-awards/)
+- [The Hunger Games: Mockingjay Premiere - What the S...](https://fashion.allwomenstalk.com/the-hunger-games-mockingjay-premiere-what-the-stars-wore-in-london/)
+- [Country Music Awards 2014 Recap: Red Carpet Arriva...](https://fashion.allwomenstalk.com/country-music-awards-recap-red-carpet-arrivals-winners/)
+- [AmfAR LA Inspiration Gala 2014: Best Dressed Celeb...](https://fashion.allwomenstalk.com/amfar-la-inspiration-gala-best-dressed-celebs/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 

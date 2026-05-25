@@ -42,16 +42,16 @@ Now that I think about it, I love game shows. I guess I was wrong in saying that
 
 ## Related Posts
 
-- [7 Heartbreaking TV Relationships ...](https://movies.allwomenstalk.com/heartbreaking-tv-relationships/)
-- [7 TV Shows I Wish I Had Watched ...](https://movies.allwomenstalk.com/tv-shows-i-wish-i-had-watched/)
-- [7 TV Characters Id Love to Have in My Life ...](https://movies.allwomenstalk.com/tv-characters-id-love-to-have-in-my-life/)
-- [Top 8 Shows for Teens ...](https://lifestyle.allwomenstalk.com/top-shows-for-teens/)
-- [7 of the Best Series Finales ...](https://7fun.net/of-the-best-series-finales/)
-- [7 Hilarious Hoaxes That Will Keep You Guessing ...](https://7fun.net/hilarious-hoaxes-that-will-keep-you-guessing/)
-- [loreal paris color riche stylo smoky bottomless](https://movies.allwomenstalk.com/memorable-tv-catchphrases/)
 - [7 TV Shows That Everyone Should Be Watching ...](https://movies.allwomenstalk.com/tv-shows-that-everyone-should-be-watching/)
-- [7 Great Competition Shows ...](https://movies.allwomenstalk.com/great-competition-shows/)
+- [7 TV Shows I Wish I Had Watched ...](https://movies.allwomenstalk.com/tv-shows-i-wish-i-had-watched/)
 - [loreal paris la petite timeless spark](https://lifestyle.allwomenstalk.com/must-see-tv-programmes/)
+- [7 of the Best Series Finales ...](https://7fun.net/of-the-best-series-finales/)
+- [7 Heartbreaking TV Relationships ...](https://movies.allwomenstalk.com/heartbreaking-tv-relationships/)
+- [7 Hilarious Hoaxes That Will Keep You Guessing ...](https://7fun.net/hilarious-hoaxes-that-will-keep-you-guessing/)
+- [7 Great Competition Shows ...](https://movies.allwomenstalk.com/great-competition-shows/)
+- [7 TV Characters Id Love to Have in My Life ...](https://movies.allwomenstalk.com/tv-characters-id-love-to-have-in-my-life/)
+- [loreal paris color riche stylo smoky bottomless](https://movies.allwomenstalk.com/memorable-tv-catchphrases/)
+- [Top 8 Shows for Teens ...](https://lifestyle.allwomenstalk.com/top-shows-for-teens/)
 - [7 Travel Channel Shows I Inexplicably Love ...](https://travel.allwomenstalk.com/7-travel-channel-shows-i-inexplicably-love/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 

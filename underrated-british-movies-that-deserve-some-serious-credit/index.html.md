@@ -42,16 +42,16 @@ There were one or two other films I wanted to feature in this list. Twin Town is
 
 ## Related Posts
 
+- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
+- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
+- [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
 - [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
+- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
 - [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
 - [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
-- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
 - [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
-- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
-- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
-- [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
-- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
 - [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
+- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

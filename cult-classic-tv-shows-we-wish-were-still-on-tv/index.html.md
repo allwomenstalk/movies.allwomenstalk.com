@@ -42,15 +42,15 @@ What shows are you upset got canceled? Let me know in the comments!
 
 ## Related Posts
 
-- [LOL - Watch Benedict Cumberbatch Impersonate 11 Ce...](https://funny.allwomenstalk.com/lol-watch-benedict-cumberbatch-impersonate-celebs-in-just-one-minute/)
-- [Twins Separated at Birth Reunite Thanks to Social ...](https://lifestyle.allwomenstalk.com/twins-separated-at-birth-reunite-thanks-to-social-media/)
-- [The Force Has Been Awakened in New Star Wars Trail...](https://movies.allwomenstalk.com/the-force-has-been-awakened-in-new-star-wars-trailer/)
-- [The Jurassic World Trailer is Everything You Could...](https://movies.allwomenstalk.com/the-jurassic-world-trailer-is-everything-you-couldve-hoped-for/)
+- [THIS is How You Break the Internet - Watch Beyonce...](https://music.allwomenstalk.com/this-is-how-you-break-the-internet-watch-beyonces-new-homemade-music-video/)
 - [female baby cartoon characters](https://parenting.allwomenstalk.com/adorable-baby-girl-gets-really-emotional-while-watching-a-cartoon/)
+- [The Force Has Been Awakened in New Star Wars Trail...](https://movies.allwomenstalk.com/the-force-has-been-awakened-in-new-star-wars-trailer/)
 - [Stand up for Human Rights Day ...](https://lifestyle.allwomenstalk.com/stand-up-for-human-rights-day/)
+- [The Jurassic World Trailer is Everything You Could...](https://movies.allwomenstalk.com/the-jurassic-world-trailer-is-everything-you-couldve-hoped-for/)
+- [Twins Separated at Birth Reunite Thanks to Social ...](https://lifestyle.allwomenstalk.com/twins-separated-at-birth-reunite-thanks-to-social-media/)
 - [loreal paris maximalist eyeshadow blinged and](https://wedding.allwomenstalk.com/aw-these-ring-cam-proposals-will-give-you-major-feels/)
 - [dan in real life thanksgiving](https://movies.allwomenstalk.com/portrayals-of-thanksgiving-in-the-movies-and-on-tv/)
-- [THIS is How You Break the Internet - Watch Beyonce...](https://music.allwomenstalk.com/this-is-how-you-break-the-internet-watch-beyonces-new-homemade-music-video/)
+- [LOL - Watch Benedict Cumberbatch Impersonate 11 Ce...](https://funny.allwomenstalk.com/lol-watch-benedict-cumberbatch-impersonate-celebs-in-just-one-minute/)
 - [The Amazing Spider-Dad Surprises His Sick Son in H...](https://inspiration.allwomenstalk.com/the-amazing-spiderdad-surprises-his-sick-son-in-heart-warming-video/)
 - [7 Amazing Television Heroines from the 90s ...](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
 - [7 Disney Shows from the Early 2000s That We Cant F...](https://movies.allwomenstalk.com/disney-shows-from-the-early-2000s-that-we-cant-forget/)

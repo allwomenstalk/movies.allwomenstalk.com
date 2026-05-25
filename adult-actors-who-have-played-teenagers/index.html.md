@@ -68,16 +68,16 @@ What other adults who’ve played teenagers can you think of?
 
 ## Related Posts
 
-- [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
-- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
-- [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
-- [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
-- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
-- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
 - [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
+- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
 - [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
+- [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
+- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
+- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
+- [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - [Hollywood Baby Secrets ...](https://allwomenstalk.com/hollywood-baby-secrets/)
 

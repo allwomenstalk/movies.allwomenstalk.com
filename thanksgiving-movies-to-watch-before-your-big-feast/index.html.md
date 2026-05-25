@@ -42,16 +42,16 @@ Which one of these movies is your favorite?
 
 ## Related Posts
 
+- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
+- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
+- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
+- [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
+- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
 - [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
 - [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
-- [its true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
-- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
-- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
-- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
 - [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
-- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
-- [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
 - [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
+- [its true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
 - [11 Memorable and Tasty Food Scenes in a Movie ...](https://movies.allwomenstalk.com/memorable-and-tasty-food-scenes-in-a-movie/)
 - [Special Thanks This Thanksgiving ...](https://allwomenstalk.com/3-29/)
 

@@ -68,16 +68,16 @@ I’m pretty sure none of you have ever had to deal with roommates this bad but 
 
 ## Related Posts
 
-- [i want to live alone but cant afford it](https://lifestyle.allwomenstalk.com/sharing-tips-for-ladies-who-cant-afford-to-live-alone/)
 - [when you fall asleep first at the sleepover](https://love.allwomenstalk.com/etiquette-for-sleeping-at-your-boyfriends-house/)
 - [what to bring to sleepover at boyfriends](https://love.allwomenstalk.com/dont-forget-these-essentials-when-you-sleep-over-his-house/)
+- [i want to live alone but cant afford it](https://lifestyle.allwomenstalk.com/sharing-tips-for-ladies-who-cant-afford-to-live-alone/)
+- [get off on the right foot](https://teen.allwomenstalk.com/how-to-get-off-on-the-right-foot-with-your-roommate/)
+- [decorating first apartment](https://diy.allwomenstalk.com/real-world-101-how-to-decorate-your-first-apartment/)
+- [roommate with benefits choices](https://teen.allwomenstalk.com/ways-to-get-off-to-a-good-start-with-your-roommate/)
+- [how to celebrate moving in together](https://love.allwomenstalk.com/know-the-pros-and-cons-of-moving-in-together-before-you-take-that-leap/)
+- [dark secrets.com](https://lifestyle.allwomenstalk.com/deep-dark-secrets-you-share-with-your-roommate/)
 - [how to get an apartment](https://money.allwomenstalk.com/how-to-turn-your-apartment-into-a-money-making-machine/)
 - [things to do with your boyfriend at his house](https://love.allwomenstalk.com/necessities-to-leave-in-your-boyfriends-bathroom/)
-- [decorating first apartment](https://diy.allwomenstalk.com/real-world-101-how-to-decorate-your-first-apartment/)
-- [get off on the right foot](https://teen.allwomenstalk.com/how-to-get-off-on-the-right-foot-with-your-roommate/)
-- [roommate with benefits choices](https://teen.allwomenstalk.com/ways-to-get-off-to-a-good-start-with-your-roommate/)
-- [dark secrets.com](https://lifestyle.allwomenstalk.com/deep-dark-secrets-you-share-with-your-roommate/)
-- [how to celebrate moving in together](https://love.allwomenstalk.com/know-the-pros-and-cons-of-moving-in-together-before-you-take-that-leap/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 

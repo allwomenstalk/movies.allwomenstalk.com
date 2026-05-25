@@ -63,16 +63,16 @@ I hope you enjoyed this list of awesome animal-based movies as well. There are s
 
 ## Related Posts
 
-- [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
-- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
-- [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
-- [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
-- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 - [movie sequels better than original](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
+- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
+- [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
+- [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
+- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
+- [kevin smith best movies](https://movies.allwomenstalk.com/kevin-smith-movies-i-love/)
+- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
+- [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 - [dermot mulroony](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
 - [what food to buy for a movie night](https://movies.allwomenstalk.com/best-snacks-for-movie-night-with-the-girls/)
-- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
-- [kevin smith best movies](https://movies.allwomenstalk.com/kevin-smith-movies-i-love/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 

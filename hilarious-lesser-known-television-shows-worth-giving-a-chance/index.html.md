@@ -42,16 +42,16 @@ What’s a lesser-known sitcom I should be watching? Do you watch any of these? 
 
 ## Related Posts
 
-- [7 Great War Poets Whose Work We Should Celebrate T...](https://books.allwomenstalk.com/great-war-poets-whose-work-we-should-celebrate-this-year/)
-- [7 Landmarks in the Outstanding Career of Richard A...](https://bilbr.com/landmarks-in-the-outstanding-career-of-richard-attenborough/)
-- [If I Stay Divides Audiences Big Time ...](https://movies.allwomenstalk.com/if-i-stay-divides-audiences-big-time/)
-- [7 Unfortunate Goofs from Politicians ...](https://funny.allwomenstalk.com/unfortunate-goofs-from-politicians/)
 - [tv shows like continuum](https://movies.allwomenstalk.com/reasons-to-bingewatch-continuum-on-netflix/)
-- [Entertaining Tags to Watch  on YouTube ...](https://apps.allwomenstalk.com/most-exciting-tags-to-watch-on-youtube/)
-- [7 Television Relationships Everyone Wants to Emula...](https://movies.allwomenstalk.com/television-relationships-everyone-wants-to-emulate/)
+- [7 Great War Poets Whose Work We Should Celebrate T...](https://books.allwomenstalk.com/great-war-poets-whose-work-we-should-celebrate-this-year/)
+- [If I Stay Divides Audiences Big Time ...](https://movies.allwomenstalk.com/if-i-stay-divides-audiences-big-time/)
 - [7 Awesome New Shows to Check out This Fall ...](https://movies.allwomenstalk.com/awesome-new-shows-to-check-out-this-fall/)
-- [paris palette maximalist eyeshadow primped and pre...](https://movies.allwomenstalk.com/game-of-thrones-retro-gaming-edition/)
+- [Entertaining Tags to Watch  on YouTube ...](https://apps.allwomenstalk.com/most-exciting-tags-to-watch-on-youtube/)
 - [7 Ways to Prepare for the Final Season of Sons of ...](https://movies.allwomenstalk.com/ways-to-prepare-for-the-final-season-of-sons-of-anarchy/)
+- [paris palette maximalist eyeshadow primped and pre...](https://movies.allwomenstalk.com/game-of-thrones-retro-gaming-edition/)
+- [7 Landmarks in the Outstanding Career of Richard A...](https://bilbr.com/landmarks-in-the-outstanding-career-of-richard-attenborough/)
+- [7 Television Relationships Everyone Wants to Emula...](https://movies.allwomenstalk.com/television-relationships-everyone-wants-to-emulate/)
+- [7 Unfortunate Goofs from Politicians ...](https://funny.allwomenstalk.com/unfortunate-goofs-from-politicians/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Old TV Shows Worth Watching Again ...](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 

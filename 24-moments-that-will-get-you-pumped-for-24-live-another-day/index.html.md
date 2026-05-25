@@ -42,16 +42,16 @@ Looking through collections of 24 moments, it is so clear everyone has their per
 
 ## Related Posts
 
-- [neil patrick harris twitter](https://funny.allwomenstalk.com/hysterical-tweets-from-neil-patrick-harris/)
-- [celebrities in cars getting coffee](https://movies.allwomenstalk.com/must-see-interviews-on-comedians-in-cars-getting-coffee/)
-- [tv shows with cristina yang](https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/)
-- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
+- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
+- [cute fictional couples](https://movies.allwomenstalk.com/cutest-tv-couples-that-give-us-goosebumps/)
 - [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
 - [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
+- [neil patrick harris twitter](https://funny.allwomenstalk.com/hysterical-tweets-from-neil-patrick-harris/)
 - [most famous assassinations](https://celebs.allwomenstalk.com/most-famous-assassinations-in-history/)
-- [cute fictional couples](https://movies.allwomenstalk.com/cutest-tv-couples-that-give-us-goosebumps/)
+- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
+- [tv shows with cristina yang](https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/)
 - [sci fi villain](https://movies.allwomenstalk.com/best-science-fiction-villains/)
-- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
+- [celebrities in cars getting coffee](https://movies.allwomenstalk.com/must-see-interviews-on-comedians-in-cars-getting-coffee/)
 - [8 Instant Pick Me-ups That Will Put a Smile on You...](https://allwomenstalk.com/8-instant-pick-me-ups-that-will-put-a-smile-on-your-face/)
 - [7 Ways to Stay Alive in a Horror Movie ...](https://allwomenstalk.com/7-ways-to-stay-alive-in-a-horror-movie/)
 

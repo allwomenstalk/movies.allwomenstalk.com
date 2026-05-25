@@ -42,16 +42,16 @@ These are just a few modern movies that have borrowed from the works of William 
 
 ## Related Posts
 
-- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
 - [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
-- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
-- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
 - [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
 - [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
+- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
 - [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
+- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
+- [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
+- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 of My Favorite Jane Austen Movies ...](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 

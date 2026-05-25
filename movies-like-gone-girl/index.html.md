@@ -62,16 +62,16 @@ These are amazing movies like the Gone Girl with brilliant plots that will give 
 
 ## Related Posts
 
-- [movie like perks of being a wallflower](https://movies.allwomenstalk.com/movies-like-the-perks-of-being-a-wallflower/)
 - [movies like the favourite](https://movies.allwomenstalk.com/movies-like-the-proposal/)
 - [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
-- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
-- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
-- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
+- [movie like perks of being a wallflower](https://movies.allwomenstalk.com/movies-like-the-perks-of-being-a-wallflower/)
 - [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
 - [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
-- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
+- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
+- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
+- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
 - [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 - [8 Beautiful Movies Youll Enjoy ...](https://movies.allwomenstalk.com/beautiful-movies-youll-enjoy/)
 

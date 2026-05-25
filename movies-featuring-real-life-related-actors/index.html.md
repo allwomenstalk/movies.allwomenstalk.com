@@ -56,16 +56,16 @@ What other movies featuring real-life related actors do you enjoy/recommend?
 
 ## Related Posts
 
-- [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
-- [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
-- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
-- [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
-- [minimalist movie](https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/)
-- [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
-- [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
-- [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
-- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
 - [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
+- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
+- [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
+- [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
+- [minimalist movie](https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/)
+- [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
+- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
+- [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
+- [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
+- [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 

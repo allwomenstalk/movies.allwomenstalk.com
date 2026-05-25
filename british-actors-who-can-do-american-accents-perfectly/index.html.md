@@ -68,16 +68,16 @@ This article was written in collaboration with editor Vladlena Lee.
 
 ## Related Posts
 
-- [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
-- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
-- [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
-- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
+- [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
 - [jesse johnson shirtless](https://celebs.allwomenstalk.com/hottest-sons-of-celebrities-that-you-need-to-know-about/)
-- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
 - [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
+- [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
+- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [18 Blonde Actresses We All Know and Love ...](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
 - [9 Actors Who Cant Actually Act ...](https://allwomenstalk.com/9-actors-who-cant-actually-act/)
 

@@ -42,16 +42,16 @@ Well, there you have it! These are just 7 out of many epic TV bromances. I know 
 
 ## Related Posts
 
-- [good things to watch on yourube](https://lifestyle.allwomenstalk.com/must-watch-youtube-videos-for-when-youre-bored/)
-- [why did topanga break up with cory](https://movies.allwomenstalk.com/ways-cory-and-topanga-ruined-real-life-for-us/)
-- [steve buscemi makeup](https://movies.allwomenstalk.com/career-defining-steve-buscemi-perfomances/)
-- [watch truly strange](https://fitness.allwomenstalk.com/strange-olympic-sports-that-are-actually-fun-to-watch/)
-- [promise phan](https://makeup.allwomenstalk.com/disney-makeup-transformations-that-are-simply-amazing/)
+- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
 - [what movie is playing on syfy right now](https://movies.allwomenstalk.com/syfy-shows-you-need-to-be-watching/)
-- [funny frozen](https://funny.allwomenstalk.com/funny-videos-inspired-by-disneys-frozen/)
+- [watch truly strange](https://fitness.allwomenstalk.com/strange-olympic-sports-that-are-actually-fun-to-watch/)
 - [kids dog cartoons](https://movies.allwomenstalk.com/tolerable-kids-cartoons-to-dvr-right-now/)
 - [best fantasy shows on tv](https://movies.allwomenstalk.com/great-fantasy-shows-for-young-adults/)
-- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
+- [steve buscemi makeup](https://movies.allwomenstalk.com/career-defining-steve-buscemi-perfomances/)
+- [funny frozen](https://funny.allwomenstalk.com/funny-videos-inspired-by-disneys-frozen/)
+- [why did topanga break up with cory](https://movies.allwomenstalk.com/ways-cory-and-topanga-ruined-real-life-for-us/)
+- [good things to watch on yourube](https://lifestyle.allwomenstalk.com/must-watch-youtube-videos-for-when-youre-bored/)
+- [promise phan](https://makeup.allwomenstalk.com/disney-makeup-transformations-that-are-simply-amazing/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [8 Best Movie Bromances ...](https://movies.allwomenstalk.com/best-movie-bromances/)
 

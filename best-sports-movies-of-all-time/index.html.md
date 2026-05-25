@@ -84,16 +84,16 @@ There are hundreds of other sports movies out there. Do you think any others des
 
 ## Related Posts
 
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
+- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
 - [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
 - [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
-- [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
 - [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
-- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
+- [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
 - [10 Best Action Movies of 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 

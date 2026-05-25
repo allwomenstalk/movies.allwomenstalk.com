@@ -42,15 +42,15 @@ Some people find it hard to watch “old” movies but movies from the 80s are d
 
 ## Related Posts
 
-- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
-- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
 - [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
-- [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
-- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
 - [shirley valentine on netflix](https://movies.allwomenstalk.com/underrated-british-movies-that-deserve-some-serious-credit/)
-- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
 - [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
+- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
+- [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
+- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
+- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
+- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
 - [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)

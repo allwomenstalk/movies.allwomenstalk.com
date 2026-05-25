@@ -42,16 +42,16 @@ Choosing just 7 horror films of the '90s was a tough decision for me, as many of
 
 ## Related Posts
 
-- [good horror movie marathons](https://movies.allwomenstalk.com/super-scary-movies-for-a-halloween-movie-marathon/)
-- [action 2014 movies](https://movies.allwomenstalk.com/new-action-movies-for/)
-- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
-- [best egypt mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-egypt-the-empire-and-egyptian-mythology/)
-- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
-- [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
-- [9 New Disney Movies I Cant Wait to See ...](https://movies.allwomenstalk.com/new-disney-movies-i-cant-wait-to-see/)
-- [twilight stephenie meyer cameo](https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/)
-- [pixar easter eggs for next movie](https://movies.allwomenstalk.com/great-pixar-movie-easter-eggs-you-probably-havent-noticed/)
 - [channing tatum movies romantic](https://movies.allwomenstalk.com/best-channing-tatum-movie-roles-that-are-hard-not-to-love/)
+- [good horror movie marathons](https://movies.allwomenstalk.com/super-scary-movies-for-a-halloween-movie-marathon/)
+- [twilight stephenie meyer cameo](https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/)
+- [action 2014 movies](https://movies.allwomenstalk.com/new-action-movies-for/)
+- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
+- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
+- [pixar easter eggs for next movie](https://movies.allwomenstalk.com/great-pixar-movie-easter-eggs-you-probably-havent-noticed/)
+- [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
+- [best egypt mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-egypt-the-empire-and-egyptian-mythology/)
+- [9 New Disney Movies I Cant Wait to See ...](https://movies.allwomenstalk.com/new-disney-movies-i-cant-wait-to-see/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
 

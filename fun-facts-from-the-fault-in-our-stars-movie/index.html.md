@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many awesome fun facts from
 
 ## Related Posts
 
+- [simon cowell style](https://celebs.allwomenstalk.com/things-to-know-about-simon-cowell/)
+- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
+- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
+- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
+- [amazing facts about hair](https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/)
+- [movies for film buffs](https://movies.allwomenstalk.com/interesting-movie-facts-that-movie-buffs-dont-know/)
+- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
 - [where was the mighty quinn filmed](https://movies.allwomenstalk.com/surprising-things-you-didnt-know-about-pretty-woman/)
 - [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
-- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
-- [movies for film buffs](https://movies.allwomenstalk.com/interesting-movie-facts-that-movie-buffs-dont-know/)
-- [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
-- [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
-- [amazing facts about hair](https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/)
-- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
-- [simon cowell style](https://celebs.allwomenstalk.com/things-to-know-about-simon-cowell/)
-- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 

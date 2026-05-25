@@ -54,16 +54,16 @@ I know for a fact that there are a lot that I missed! There are so many amazing 
 
 ## Related Posts
 
-- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
-- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
+- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
+- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [12 Hottest Actors from TV Shows ...](https://celebs.allwomenstalk.com/hottest-actors-from-tv-shows/)
 

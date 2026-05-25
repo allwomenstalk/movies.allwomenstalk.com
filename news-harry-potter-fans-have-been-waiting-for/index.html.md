@@ -50,14 +50,14 @@ I know nothing will replace the Boy Wizard in our hearts, but I love that we can
 
 ## Related Posts
 
+- [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
+- [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
 - [most dangerous dictators in history](https://lifestyle.allwomenstalk.com/of-historys-deadliest-dictators-you-never-heard-of/)
 - [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
-- [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
 - [greg smith genius wife](https://lifestyle.allwomenstalk.com/child-geniuses-who-could-give-einstein-a-run-for-his-money/)
-- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
-- [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
-- [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
 - [scary military projects](https://lifestyle.allwomenstalk.com/strange-military-experiments-that-never-happened/)
+- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
+- [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
 - [humans of new york santa](https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/)
 - [weird science experiments in history](https://lifestyle.allwomenstalk.com/weird-experiments-even-wes-craven-wouldnt-have-thought-of/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)

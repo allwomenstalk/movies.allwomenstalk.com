@@ -68,16 +68,16 @@ Muriel’s Wedding is probably my favorite – which is your pick?
 
 ## Related Posts
 
-- [angled cut](https://hair.allwomenstalk.com/married-to-the-bob-variations-on-the-classic-cut/)
-- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
-- [wedding pictures gone wrong](https://wedding.allwomenstalk.com/wedding-mishaps-you-dont-want-to-happen/)
-- [nontraditional wedding ideas](https://wedding.allwomenstalk.com/nontraditional-wedding-ideas-to-make-your-big-day-a-hit/)
 - [site:allwomenstalk.com](https://wedding.allwomenstalk.com/dream-weddings-every-little-girl-wants/)
-- [creative ways to ask your best friend to prom](https://wedding.allwomenstalk.com/fun-ways-to-ask-your-besties-to-be-your-bridesmaids/)
-- [wedding shower at work](https://wedding.allwomenstalk.com/how-to-make-your-bridal-shower-special/)
 - [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
-- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [wedding shower at work](https://wedding.allwomenstalk.com/how-to-make-your-bridal-shower-special/)
 - [wedding cakes without icing](https://wedding.allwomenstalk.com/naked-cakes-to-inspire-your-future-wedding-cake/)
+- [nontraditional wedding ideas](https://wedding.allwomenstalk.com/nontraditional-wedding-ideas-to-make-your-big-day-a-hit/)
+- [angled cut](https://hair.allwomenstalk.com/married-to-the-bob-variations-on-the-classic-cut/)
+- [creative ways to ask your best friend to prom](https://wedding.allwomenstalk.com/fun-ways-to-ask-your-besties-to-be-your-bridesmaids/)
+- [wedding pictures gone wrong](https://wedding.allwomenstalk.com/wedding-mishaps-you-dont-want-to-happen/)
+- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
 - [5 Movies about Love Weddings  Marriage I Cant Wait...](https://wedding.allwomenstalk.com/movies-about-love-weddings-marriage-i-cant-wait-to-see/)
 - [30 Best and Surprisingly Awesome Wedding Movies .....](https://wedding.allwomenstalk.com/best-and-surprisingly-awesome-wedding-movies/)
 

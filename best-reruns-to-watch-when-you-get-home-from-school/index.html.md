@@ -42,16 +42,16 @@ I don’t go to school anymore, but now I want to watch all of these shows anywa
 
 ## Related Posts
 
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
 - [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
-- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
+- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
 - [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
+- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
+- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
+- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
 - [My 7 Favourite Cartoons ...](https://movies.allwomenstalk.com/my-favourite-cartoons/)
 - [Top 7 after School Activities to Take Part in ...](https://allwomenstalk.com/top-7-after-school-activities-to-take-part-in/)
 

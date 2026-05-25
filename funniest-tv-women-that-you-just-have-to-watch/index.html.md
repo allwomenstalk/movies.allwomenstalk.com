@@ -56,16 +56,16 @@ Now that we've covered the funniest women currently on TV, let's take a moment t
 
 ## Related Posts
 
-- [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
-- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
-- [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
-- [princess movie characters](https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/)
-- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
-- [7 Kick-Ass Celebrities Who Support Womens Rights ....](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
 - [supermodels on trampoline](https://celebs.allwomenstalk.com/amazing-supermodels-i-want-to-be-friends-with/)
-- [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
-- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
 - [glamorous jobs that pay well](https://lifestyle.allwomenstalk.com/glamorous-careers-wed-all-kill-to-have/)
+- [margareta av anjou](https://celebs.allwomenstalk.com/controversial-queens-we-still-talk-about-today/)
+- [7 Kick-Ass Celebrities Who Support Womens Rights ....](https://celebs.allwomenstalk.com/kick-ass-celebrities-who-support-womens-rights/)
+- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
+- [best fashion magazine subscriptions](https://lifestyle.allwomenstalk.com/most-fabulous-lifestyle-magazines-for-women/)
+- [tv shows with strong female leads](https://movies.allwomenstalk.com/strong-female-characters-on-tv-who-are-truly-inspiring/)
+- [princess movie characters](https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/)
+- [vera farmiga sister actress](https://celebs.allwomenstalk.com/underrated-actresses-who-deserve-more-attention/)
+- [best tv moms of all time](https://movies.allwomenstalk.com/of-the-best-tv-moms-that-you-wish-were-yours/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 - [8 Powerful Women Characters on TV ...](https://allwomenstalk.com/8-powerful-women-characters-on-tv/)
 

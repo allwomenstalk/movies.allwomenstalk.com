@@ -52,16 +52,16 @@ What’s your most relatable Friends moment? I don’t think I could pick just o
 
 ## Related Posts
 
-- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
-- [disney movie conspiracy theory](https://movies.allwomenstalk.com/craziest-disney-conspiracy-theories/)
-- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
-- [jimmy fallon and benedict cumberbatch](https://funny.allwomenstalk.com/funny-videos-of-benedict-cumberbatch/)
-- [bizarre state laws](https://lifestyle.allwomenstalk.com/bizarre-state-laws-that-are-still-on-the-books/)
-- [carnival ride names](https://lifestyle.allwomenstalk.com/classic-carnival-rides-we-cant-get-enough-of/)
-- [loreal color riche le stylo smoky with a twist](https://lifestyle.allwomenstalk.com/unexpected-stories-behind-famous-logos/)
-- [funny problems to have](https://funny.allwomenstalk.com/most-hilarious-first-world-problems/)
-- [kellyandryan com recipes](https://movies.allwomenstalk.com/classic-tv-couples-from-the-office/)
 - [what is the most hated day](https://funny.allwomenstalk.com/of-the-worst-days-in-a-month/)
+- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
+- [loreal color riche le stylo smoky with a twist](https://lifestyle.allwomenstalk.com/unexpected-stories-behind-famous-logos/)
+- [jimmy fallon and benedict cumberbatch](https://funny.allwomenstalk.com/funny-videos-of-benedict-cumberbatch/)
+- [kellyandryan com recipes](https://movies.allwomenstalk.com/classic-tv-couples-from-the-office/)
+- [disney movie conspiracy theory](https://movies.allwomenstalk.com/craziest-disney-conspiracy-theories/)
+- [carnival ride names](https://lifestyle.allwomenstalk.com/classic-carnival-rides-we-cant-get-enough-of/)
+- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
+- [bizarre state laws](https://lifestyle.allwomenstalk.com/bizarre-state-laws-that-are-still-on-the-books/)
+- [funny problems to have](https://funny.allwomenstalk.com/most-hilarious-first-world-problems/)
 - [7 Times I Feel Im a Bad Parent ...](https://parenting.allwomenstalk.com/7-times-i-feel-im-a-bad-parent/)
 - [7 Times to Intervene in a Friends Life ...](https://allwomenstalk.com/7-times-to-intervene-in-a-friends-life/)
 

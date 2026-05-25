@@ -54,16 +54,16 @@ Time to spill. What’s the show you sink into when you want to escape the nasty
 
 ## Related Posts
 
-- [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
 - [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
-- [how to cheer someone up after a bad day](https://inspiration.allwomenstalk.com/ways-to-cheer-up-on-a-bad-day/)
-- [successful digital detox](https://health.allwomenstalk.com/tips-for-success-when-doing-a-digital-detox/)
-- [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
-- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
-- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
-- [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
 - [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
+- [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
+- [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
 - [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
+- [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
+- [successful digital detox](https://health.allwomenstalk.com/tips-for-success-when-doing-a-digital-detox/)
+- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
+- [how to cheer someone up after a bad day](https://inspiration.allwomenstalk.com/ways-to-cheer-up-on-a-bad-day/)
+- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 - [Easy Stress-Busting Tips to Set You Free ...](https://allwomenstalk.com/easy-stress-busting-tips-to-set-you-free/)
 

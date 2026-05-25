@@ -42,16 +42,16 @@ What was your favorite '90s sitcom? Which show do you need to see make a revival
 
 ## Related Posts
 
-- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
 - [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
-- [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
 - [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
 - [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
 - [american stereotypes in europe](https://travel.allwomenstalk.com/stereotypes-of-americans-held-by-other-countries/)
-- [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
+- [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
 - [wales myths and legends](https://lifestyle.allwomenstalk.com/welsh-myths-and-legends-to-rival-hollywood/)
-- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
+- [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
 - [sarah hughes skater wedding](https://celebs.allwomenstalk.com/great-olympic-ice-skaters-from-past-olympics/)
+- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
+- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
 - [7 Old TV Shows Worth Watching Again ...](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 - [7 Funniest Television Shows of All Time ...](https://allwomenstalk.com/7-funniest-television-shows-of-all-times/)
 

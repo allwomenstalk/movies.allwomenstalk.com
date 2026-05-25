@@ -56,14 +56,14 @@ These are just a few of many actresses who are inspirational role models. They s
 
 ## Related Posts
 
-- [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
 - [love majewski](https://movies.allwomenstalk.com/outrageous-women-from-vh1s-mob-wives/)
 - [funniest girl in the world](https://movies.allwomenstalk.com/funniest-women-on-tv-who-never-get-old/)
-- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
-- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
 - [inspirational movies for women](https://movies.allwomenstalk.com/biolographical-movies-about-inspiring-women/)
-- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
+- [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
 - [spunk movie](https://movies.allwomenstalk.com/female-movie-characters-with-spunk/)
+- [queens beyond beauty](https://beauty.allwomenstalk.com/women-who-went-beyond-being-beauty-queens/)
+- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
+- [iconic pin up girl](https://celebs.allwomenstalk.com/classic-hollywood-pin-up-girls-that-we-adore/)
 - [thoughts on feminism](https://lifestyle.allwomenstalk.com/thoughts-about-feminism-that-are-perfectly-fine/)
 - [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)

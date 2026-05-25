@@ -52,16 +52,16 @@ Having the movies be such a huge part of my life, these fun facts made me smile.
 
 ## Related Posts
 
-- [mythical creatures that heal](https://books.allwomenstalk.com/awesome-mythical-creatures-you-should-know-about/)
-- [fun facts electricity](https://lifestyle.allwomenstalk.com/basic-but-interesting-facts-about-electricity/)
 - [fun facts about fashion designers](https://fashion.allwomenstalk.com/fun-facts-about-jean-paul-gaultier-i-bet-you-didnt-know/)
-- [best looking minerals](https://lifestyle.allwomenstalk.com/most-beautiful-minerals-and-unique-facts-related-to-them/)
 - [fun fact about almonds](https://food.allwomenstalk.com/interesting-facts-about-almonds-i-bet-you-didnt-know-yet/)
-- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
-- [facts about borneo](https://travel.allwomenstalk.com/fun-facts-about-borneo/)
-- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
-- [statistics about cheating](https://love.allwomenstalk.com/cheating-stats-thatll-blow-your-mind/)
 - [what is the weirdest national holiday](https://lifestyle.allwomenstalk.com/strange-national-holidays-you-never-knew-existed/)
+- [statistics about cheating](https://love.allwomenstalk.com/cheating-stats-thatll-blow-your-mind/)
+- [best looking minerals](https://lifestyle.allwomenstalk.com/most-beautiful-minerals-and-unique-facts-related-to-them/)
+- [what are considered green leafy vegetables](https://food.allwomenstalk.com/awesome-facts-about-leafy-greens-that-you-should-know/)
+- [how much is a white truffle](https://food.allwomenstalk.com/white-truffle-facts-that-you-should-know/)
+- [fun facts electricity](https://lifestyle.allwomenstalk.com/basic-but-interesting-facts-about-electricity/)
+- [mythical creatures that heal](https://books.allwomenstalk.com/awesome-mythical-creatures-you-should-know-about/)
+- [facts about borneo](https://travel.allwomenstalk.com/fun-facts-about-borneo/)
 - [12 Wickedly Wizardly Places Where Harry Potter Was...](https://travel.allwomenstalk.com/wickedly-wizardly-places-where-harry-potter-was-filmed/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 

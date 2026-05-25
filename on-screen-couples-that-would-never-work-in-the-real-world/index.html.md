@@ -116,16 +116,16 @@ And speaking of picks (kind of), who are yours? Any on-screen couples you know w
 
 ## Related Posts
 
-- [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
-- [beyonce twitter search](https://music.allwomenstalk.com/twitter-reactions-to-lemonade-every-beyonce-fan-must-see/)
-- [talk shows nyc](https://travel.allwomenstalk.com/tv-shows-you-can-see-for-free-live-in-nyc/)
-- [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
-- [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
 - [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
+- [lacrosse stick tattoos](https://beauty.allwomenstalk.com/adorable-tattoos-walt-disney-would-love/)
+- [beyonce twitter search](https://music.allwomenstalk.com/twitter-reactions-to-lemonade-every-beyonce-fan-must-see/)
+- [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
+- [talk shows nyc](https://travel.allwomenstalk.com/tv-shows-you-can-see-for-free-live-in-nyc/)
 - [most dramatic reality shows](https://movies.allwomenstalk.com/of-the-best-trashy-yet-entertaining-tv-shows-to-watch/)
 - [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
-- [lacrosse stick tattoos](https://beauty.allwomenstalk.com/adorable-tattoos-walt-disney-would-love/)
 - [rapunzels makeup](https://makeup.allwomenstalk.com/i-wish-i-had-this-guys-disney-princess-skills/)
+- [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
+- [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
 - [7 Celebrity Dream Couples ...](https://allwomenstalk.com/7-celebrity-dream-couples/)
 - [7 Very Strange Celebrity Couples ...](https://allwomenstalk.com/7-very-strange-celebrity-couples/)
 

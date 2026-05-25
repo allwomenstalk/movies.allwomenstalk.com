@@ -57,15 +57,15 @@ What movies have you laughing when you're sad?
 ## Related Posts
 
 - [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
-- [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
-- [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
-- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
-- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
 - [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
-- [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
-- [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
+- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
+- [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
 - [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
+- [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
+- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
+- [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
 - [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
+- [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [15 Inspiring Movies That Will Lift Your Spirits .....](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)
 

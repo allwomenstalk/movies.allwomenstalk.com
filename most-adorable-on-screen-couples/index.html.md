@@ -190,16 +190,16 @@ The list of adorable on screen couples goes on and on! Which couples are your fa
 
 ## Related Posts
 
-- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
 - [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
-- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
+- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
 - [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
 - [aileen wuornos movie actress](https://movies.allwomenstalk.com/best-transformations-for-movies/)
 - [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
-- [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
-- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
-- [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
 - [celebrities who are vegetarian](https://celebs.allwomenstalk.com/celebrities-who-are-vegan/)
+- [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
+- [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
 - [30 Best and Surprisingly Awesome Wedding Movies .....](https://wedding.allwomenstalk.com/best-and-surprisingly-awesome-wedding-movies/)
 - [11 Best Movie Boyfriends ...](https://allwomenstalk.com/11-best-movie-boyfriends/)
 

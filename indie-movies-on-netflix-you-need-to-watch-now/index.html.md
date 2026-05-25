@@ -42,16 +42,16 @@ What’s your favorite Indie movie on Netflix? What should I watch next? Let me 
 
 ## Related Posts
 
-- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
-- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
-- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
 - [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
-- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
-- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
 - [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
+- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
 - [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
+- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

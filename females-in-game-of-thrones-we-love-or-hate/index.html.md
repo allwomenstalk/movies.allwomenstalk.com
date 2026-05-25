@@ -58,16 +58,16 @@ If you realized there are some vital characters missing, there are characters no
 
 ## Related Posts
 
-- [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
-- [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
-- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
 - [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
 - [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
-- [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
 - [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
 - [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
-- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
+- [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
+- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
 - [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
+- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
+- [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
+- [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [A Tale of Two Women](https://allwomenstalk.com/a-tale-of-two-women/)
 

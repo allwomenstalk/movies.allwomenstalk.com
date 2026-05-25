@@ -94,16 +94,16 @@ What other movies have you watched that you realize now have taught you so many 
 
 ## Related Posts
 
-- [writers that changed the world](https://books.allwomenstalk.com/top-women-writers-who-literally-changed-the-world/)
-- [caked makeup meaning](https://inspiration.allwomenstalk.com/fictional-women-that-are-viciously-good-role-models/)
 - [elegant female movie characters](https://movies.allwomenstalk.com/fierce-female-movie-characters-who-dont-need-to-be-rescued/)
-- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
 - [woman subscription boxes](https://beauty.allwomenstalk.com/the-best-subscription-boxes-for-beautiful-black-women/)
-- [fearless tattoo](https://beauty.allwomenstalk.com/backbone-tattoos-that-are-perfect-for-fearless-ladies/)
-- [feminist pop songs](https://music.allwomenstalk.com/fierce-feminist-anthems-for-when-you-want-to-feel-empowered/)
-- [state the gender of painter](https://lifestyle.allwomenstalk.com/hottest-women-painters-in-the-history-of-art-until-now/)
+- [types of womans](https://inspiration.allwomenstalk.com/basic-types-of-women-which-one-are-you/)
 - [denise key and peele actress](https://funny.allwomenstalk.com/hilarious-women-who-are-killing-the-comedy-game/)
+- [caked makeup meaning](https://inspiration.allwomenstalk.com/fictional-women-that-are-viciously-good-role-models/)
+- [writers that changed the world](https://books.allwomenstalk.com/top-women-writers-who-literally-changed-the-world/)
+- [fearless tattoo](https://beauty.allwomenstalk.com/backbone-tattoos-that-are-perfect-for-fearless-ladies/)
 - [pretty comments](https://lifestyle.allwomenstalk.com/lesbians-are-pretty-tired-of-hearing-these-comments/)
+- [state the gender of painter](https://lifestyle.allwomenstalk.com/hottest-women-painters-in-the-history-of-art-until-now/)
+- [feminist pop songs](https://music.allwomenstalk.com/fierce-feminist-anthems-for-when-you-want-to-feel-empowered/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 - [10 Best Girl Power Movies ...](https://movies.allwomenstalk.com/best-girl-power-movies/)
 

@@ -42,16 +42,16 @@ Not only did this show make us laugh, cry and sometimes have major frustration w
 
 ## Related Posts
 
-- [do you think it is important to read the book befo...](https://movies.allwomenstalk.com/reasons-to-read-the-book-before-watching-the-movie/)
 - [where can i watch the hart of dixie](https://movies.allwomenstalk.com/reasons-why-hart-of-dixie-is-my-favourite-tv-show/)
-- [flirty wine captions](https://food.allwomenstalk.com/excellent-reasons-to-love-red-wine/)
-- [burberry on sale womens](https://fashion.allwomenstalk.com/reasons-why-burberry-is-awesome/)
+- [girl meets love](https://movies.allwomenstalk.com/reasons-to-be-excited-for-girl-meets-world/)
 - [dating a writer](https://love.allwomenstalk.com/sweet-reasons-to-date-a-writer/)
 - [why was the 90s so good](https://lifestyle.allwomenstalk.com/reasons-why-the-90s-were-the-best/)
-- [girl meets love](https://movies.allwomenstalk.com/reasons-to-be-excited-for-girl-meets-world/)
-- [notman reedus son](https://celebs.allwomenstalk.com/facts-about-norman-reedus-that-will-make-you-love-him-more/)
-- [the reason why the twins love me](https://lifestyle.allwomenstalk.com/reasons-why-being-a-twin-is-awesome/)
 - [maximalist eyeshadow blinged](https://movies.allwomenstalk.com/awesome-reasons-to-watch-supernatural-if-you-dont-yet/)
+- [the reason why the twins love me](https://lifestyle.allwomenstalk.com/reasons-why-being-a-twin-is-awesome/)
+- [notman reedus son](https://celebs.allwomenstalk.com/facts-about-norman-reedus-that-will-make-you-love-him-more/)
+- [flirty wine captions](https://food.allwomenstalk.com/excellent-reasons-to-love-red-wine/)
+- [do you think it is important to read the book befo...](https://movies.allwomenstalk.com/reasons-to-read-the-book-before-watching-the-movie/)
+- [burberry on sale womens](https://fashion.allwomenstalk.com/reasons-why-burberry-is-awesome/)
 - [7 Reasons Why I Still Love Friends ...](https://movies.allwomenstalk.com/7-reasons-why-i-still-love-friends/)
 - [8 Reasons I Liked Buffy ...](https://allwomenstalk.com/8-reasons-i-liked-buffy/)
 

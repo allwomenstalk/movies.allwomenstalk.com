@@ -42,16 +42,16 @@ Quotes about friends are always really sweet, but it was surprisingly hard to fi
 
 ## Related Posts
 
-- [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
 - [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
-- [eleanor roosevelt quotes self-esteem](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
+- [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
 - [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
-- [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
+- [eleanor roosevelt quotes self-esteem](https://lifestyle.allwomenstalk.com/quotes-to-boost-your-self-image/)
 - [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
+- [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
 - [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
-- [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
 - [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
 - [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
+- [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 

@@ -56,15 +56,15 @@ Is this a period of history that interests you? Have you seen any of these movie
 
 ## Related Posts
 
-- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
 - [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
-- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
-- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
-- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
 - [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
 - [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
 - [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
+- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
+- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
+- [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
+- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
+- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
 - [8 Fabulous French Films ...](https://movies.allwomenstalk.com/fabulous-french-films/)
 - [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)

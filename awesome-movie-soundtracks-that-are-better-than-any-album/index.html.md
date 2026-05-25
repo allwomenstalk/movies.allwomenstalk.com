@@ -63,16 +63,16 @@ I don’t think we realize how much music affects the movie you’re watching. I
 
 ## Related Posts
 
-- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
-- [sibling musicians](https://music.allwomenstalk.com/sibling-music-groups-that-are-insanely-talented/)
-- [7 Festive Holiday Soundtracks to Get You in the Mo...](https://music.allwomenstalk.com/festive-holiday-soundtracks-to-get-you-in-the-mood/)
-- [7 Most Anticipated Album Releases for Fall 2013 .....](https://music.allwomenstalk.com/most-anticipated-album-releases-for-fall/)
-- [7 Best Ways to Discover New Music That Youll Keep ...](https://music.allwomenstalk.com/best-ways-to-discover-new-music-that-youll-keep-on-repeat/)
-- [7 of the Most Artistic Breakout Musicians of 2013 ...](https://music.allwomenstalk.com/of-the-most-artistic-breakout-musicians-of/)
-- [7 Songs from the 90s We Still Love ...](https://music.allwomenstalk.com/songs-from-the-90s-we-still-love/)
-- [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
 - [learn about classical music](https://music.allwomenstalk.com/best-ways-to-learn-about-classical-music/)
 - [7 Classic Beatles Songs That Helped Reinvent the M...](https://music.allwomenstalk.com/classic-beatles-songs-that-helped-reinvent-the-music-industry/)
+- [7 of the Most Artistic Breakout Musicians of 2013 ...](https://music.allwomenstalk.com/of-the-most-artistic-breakout-musicians-of/)
+- [sibling musicians](https://music.allwomenstalk.com/sibling-music-groups-that-are-insanely-talented/)
+- [7 Best Ways to Discover New Music That Youll Keep ...](https://music.allwomenstalk.com/best-ways-to-discover-new-music-that-youll-keep-on-repeat/)
+- [7 Festive Holiday Soundtracks to Get You in the Mo...](https://music.allwomenstalk.com/festive-holiday-soundtracks-to-get-you-in-the-mood/)
+- [7 Amazing British Artists That Youll Fall in Love ...](https://music.allwomenstalk.com/amazing-british-artists-that-youll-fall-in-love-with/)
+- [7 Songs from the 90s We Still Love ...](https://music.allwomenstalk.com/songs-from-the-90s-we-still-love/)
+- [7 Most Anticipated Album Releases for Fall 2013 .....](https://music.allwomenstalk.com/most-anticipated-album-releases-for-fall/)
+- [list of indie bands](https://music.allwomenstalk.com/indie-artists-you-just-need-to-have-on-your-ipod/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

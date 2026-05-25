@@ -70,16 +70,16 @@ I hope your favorite flick made my list of the best summer movies. If it didn’
 
 ## Related Posts
 
-- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
-- [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
-- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
 - [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
-- [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
-- [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
-- [random list of movies](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
-- [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 - [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
+- [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
+- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
+- [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
+- [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
+- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
+- [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
+- [random list of movies](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 

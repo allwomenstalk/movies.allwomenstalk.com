@@ -129,15 +129,15 @@ If you want to check out the other films Edith Head was Oscar nominated for chec
 ## Related Posts
 
 - [7 Funny Women Who Got Style Too ...](https://fashion.allwomenstalk.com/funny-women-who-got-style-too/)
-- [books about empowered women](https://books.allwomenstalk.com/feminist-books-thatll-make-you-feel-empowered/)
+- [Inspiring Artwork to Follow Your Dreams for the Gi...](https://lifestyle.allwomenstalk.com/this-inspiring-artwork-will-push-you-to-follow-your-dreams/)
+- [misconceptions about women](https://inspiration.allwomenstalk.com/ridiculous-misconceptions-about-independent-women/)
 - [paris riche le bottomless](https://lifestyle.allwomenstalk.com/please-meet-allwomenstalks-perfect-reader/)
+- [22 Women on Fortunes Top 50 List That Have Us Scre...](https://lifestyle.allwomenstalk.com/career-goals-these-women-are-in-fortunes-top-50/)
 - [words of wisdom for women](https://inspiration.allwomenstalk.com/pieces-of-wisdom-from-women-in-the-great-generation/)
 - [Smart Ladies Will Love This Nerdy Version of 50 Sh...](https://books.allwomenstalk.com/smart-ladies-will-love-this-nerdy-version-of-shades/)
-- [misconceptions about women](https://inspiration.allwomenstalk.com/ridiculous-misconceptions-about-independent-women/)
-- [Women Who Changed Your Life and You Didnt Even Kno...](https://lifestyle.allwomenstalk.com/these-women-changed-your-life-and-you-may-never-have-heard-of-them/)
-- [22 Women on Fortunes Top 50 List That Have Us Scre...](https://lifestyle.allwomenstalk.com/career-goals-these-women-are-in-fortunes-top-50/)
-- [Inspiring Artwork to Follow Your Dreams for the Gi...](https://lifestyle.allwomenstalk.com/this-inspiring-artwork-will-push-you-to-follow-your-dreams/)
 - [can a woman be happy without a man](https://celebs.allwomenstalk.com/women-who-prove-you-can-be-happy-without-a-husband/)
+- [books about empowered women](https://books.allwomenstalk.com/feminist-books-thatll-make-you-feel-empowered/)
+- [Women Who Changed Your Life and You Didnt Even Kno...](https://lifestyle.allwomenstalk.com/these-women-changed-your-life-and-you-may-never-have-heard-of-them/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 

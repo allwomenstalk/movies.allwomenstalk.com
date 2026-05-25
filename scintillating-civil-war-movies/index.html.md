@@ -44,16 +44,16 @@ Top Photo Credit: _pics.filmaffinity.com_
 
 ## Related Posts
 
-- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
-- [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
-- [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
-- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
-- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
+- [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
+- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
+- [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 - [loreal le stylo smoky always pearly pink](https://movies.allwomenstalk.com/best-sports-movies-ever-made/)
 - [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
-- [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
-- [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
+- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
+- [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
+- [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
+- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

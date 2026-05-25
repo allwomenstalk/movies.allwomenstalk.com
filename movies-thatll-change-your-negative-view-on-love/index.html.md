@@ -42,16 +42,16 @@ No, real life isn't exactly the same as life in the movies. However, it's close 
 
 ## Related Posts
 
+- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
+- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
+- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
+- [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
+- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
+- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
 - [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
 - [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
-- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
-- [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
-- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
-- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
-- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
-- [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
-- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
-- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
 - [7 Popular Love Myths ...](https://love.allwomenstalk.com/popular-love-myths/)
 - [7 Amazing Ways to Find Love ...](https://love.allwomenstalk.com/amazing-ways-to-find-love/)
 

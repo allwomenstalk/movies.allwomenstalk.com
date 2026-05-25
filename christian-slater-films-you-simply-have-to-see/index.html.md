@@ -42,16 +42,16 @@ Christian Slater was one of my favorite actors growing up, and although he hasnâ
 
 ## Related Posts
 
-- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
-- [rainy thriller movies](https://movies.allwomenstalk.com/heart-racing-suspense-thrillers-to-watch-on-a-rainy-day/)
 - [chick flicks movies list](https://movies.allwomenstalk.com/chick-flicks-i-never-get-tired-of-watching/)
 - [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
 - [movies that are unintentionally funny](https://movies.allwomenstalk.com/unintentionally-hilarious-movies-that-will-have-you-cracking-up/)
-- [movies with a message](https://movies.allwomenstalk.com/kids-movies-with-a-message/)
-- [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
-- [true romance tattoo scene](https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/)
-- [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
 - [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
+- [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
+- [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
+- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
+- [true romance tattoo scene](https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/)
+- [movies with a message](https://movies.allwomenstalk.com/kids-movies-with-a-message/)
+- [rainy thriller movies](https://movies.allwomenstalk.com/heart-racing-suspense-thrillers-to-watch-on-a-rainy-day/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 

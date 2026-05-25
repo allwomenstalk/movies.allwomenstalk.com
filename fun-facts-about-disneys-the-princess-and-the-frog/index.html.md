@@ -42,16 +42,16 @@ Tiana is the second heroine to stand in a holy place of worship in a Disney film
 
 ## Related Posts
 
-- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
-- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
-- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
 - [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
 - [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
-- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
+- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
+- [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
+- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
+- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
+- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [7 Adorable Disney Characters ...](https://movies.allwomenstalk.com/adorable-disney-characters/)
 

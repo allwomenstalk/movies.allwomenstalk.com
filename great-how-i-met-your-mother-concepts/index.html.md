@@ -42,15 +42,15 @@ There are a million “How I Met Your Mother” concepts like this, I’m sure I
 
 ## Related Posts
 
-- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
 - [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
-- [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
-- [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
-- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
 - [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
-- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
+- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
 - [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
+- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
+- [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
 - [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
+- [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
 - [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Best Topics for a First Date ...](https://love.allwomenstalk.com/best-topics-for-a-first-date/)

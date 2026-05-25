@@ -45,16 +45,16 @@ Check our other collection:
 
 ## Related Posts
 
-- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
 - [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
-- [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
-- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
-- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
-- [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
 - [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
-- [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
-- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
+- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
+- [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
 - [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
+- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
+- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
+- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
+- [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
+- [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [8 Good Chick Flicks That I Love ...](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 

@@ -44,16 +44,16 @@ There are a lot of funny lessons to learn from Game of Thrones. I just mentioned
 
 ## Related Posts
 
-- [7 Pieces of Advice from Your Mom to Take to Heart ...](https://teen.allwomenstalk.com/pieces-of-advice-from-your-mom-to-take-to-heart/)
-- [Which Types of Friends do You Have ...](https://teen.allwomenstalk.com/which-types-of-friends-do-you-have/)
-- [7 Reasons Why We Should Change the Way We Think ab...](https://lifestyle.allwomenstalk.com/reasons-why-we-should-change-the-way-we-think-about-our-elders/)
-- [loreal paris riche stylo shadow amour](https://inspiration.allwomenstalk.com/lessons-to-learn-from-napoleon-hill/)
 - [Stop Believing These Myths about Depression Now .....](https://health.allwomenstalk.com/myths-about-depression-that-need-to-be-busted-now/)
-- [the best that money cant buy](https://inspiration.allwomenstalk.com/wonderful-things-that-money-cant-buy/)
-- [loreal color riche le stylo eye bottomless java](https://lifestyle.allwomenstalk.com/social-media-irrational-fears-everyone-has-about-it/)
 - [7 Limiting Beliefs to Banish for Good ...](https://inspiration.allwomenstalk.com/limiting-beliefs-to-banish-for-good/)
-- [7 Reasons Why You Shouldnt Worry Too Much about th...](https://health.allwomenstalk.com/reasons-why-you-shouldnt-worry-too-much-about-the-world/)
+- [7 Pieces of Advice from Your Mom to Take to Heart ...](https://teen.allwomenstalk.com/pieces-of-advice-from-your-mom-to-take-to-heart/)
+- [7 Reasons Why We Should Change the Way We Think ab...](https://lifestyle.allwomenstalk.com/reasons-why-we-should-change-the-way-we-think-about-our-elders/)
+- [loreal color riche le stylo eye bottomless java](https://lifestyle.allwomenstalk.com/social-media-irrational-fears-everyone-has-about-it/)
+- [the best that money cant buy](https://inspiration.allwomenstalk.com/wonderful-things-that-money-cant-buy/)
 - [The Importance of Never Oversharing Again ...](https://lifestyle.allwomenstalk.com/reasons-why-oversharing-on-social-media-is-a-bad-idea/)
+- [loreal paris riche stylo shadow amour](https://inspiration.allwomenstalk.com/lessons-to-learn-from-napoleon-hill/)
+- [7 Reasons Why You Shouldnt Worry Too Much about th...](https://health.allwomenstalk.com/reasons-why-you-shouldnt-worry-too-much-about-the-world/)
+- [Which Types of Friends do You Have ...](https://teen.allwomenstalk.com/which-types-of-friends-do-you-have/)
 - [7 Life Lessons to Teach Your Son ...](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
 - [7 Shows That Can Teach You a Lot ...](https://allwomenstalk.com/7-shows-that-can-teach-you-a-lot/)
 

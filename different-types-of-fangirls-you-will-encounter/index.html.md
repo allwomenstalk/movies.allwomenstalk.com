@@ -42,16 +42,16 @@ So there we have it! These are the seven types of fangirls I have come across, a
 
 ## Related Posts
 
-- [turban trend](https://fashion.allwomenstalk.com/women-rocking-the-turban-trend/)
-- [funny female empowerment quotes](https://funny.allwomenstalk.com/funny-quotes-from-female-comedians-about-womanhood/)
-- [why we need feminism](https://lifestyle.allwomenstalk.com/recent-events-that-show-us-why-we-still-need-feminism/)
-- [octogenarian woman](https://inspiration.allwomenstalk.com/absolutely-admirable-octogenarian-women/)
-- [female comedy youtubers](https://funny.allwomenstalk.com/funny-women-on-youtube-worth-subscribing-to/)
-- [different definitions of feminism](https://inspiration.allwomenstalk.com/different-definitions-of-feminism-that-will-empower-you/)
+- [misconceptions about feminism](https://lifestyle.allwomenstalk.com/common-misconceptions-about-feminism/)
 - [loreal riche le stylo smoky endless pearl](https://music.allwomenstalk.com/bitch-in-business-all-about-that-bass-parody-is-all-about-girl-power/)
+- [octogenarian woman](https://inspiration.allwomenstalk.com/absolutely-admirable-octogenarian-women/)
 - [What These Women Can do with a Soccer Ball Will Bl...](https://inspiration.allwomenstalk.com/what-these-women-can-do-with-a-soccer-ball-will-blow-your-mind/)
 - [marigay mckee powers](https://fashion.allwomenstalk.com/women-bosses-in-the-fashion-world-to-inspire-you/)
-- [misconceptions about feminism](https://lifestyle.allwomenstalk.com/common-misconceptions-about-feminism/)
+- [female comedy youtubers](https://funny.allwomenstalk.com/funny-women-on-youtube-worth-subscribing-to/)
+- [different definitions of feminism](https://inspiration.allwomenstalk.com/different-definitions-of-feminism-that-will-empower-you/)
+- [funny female empowerment quotes](https://funny.allwomenstalk.com/funny-quotes-from-female-comedians-about-womanhood/)
+- [turban trend](https://fashion.allwomenstalk.com/women-rocking-the-turban-trend/)
+- [why we need feminism](https://lifestyle.allwomenstalk.com/recent-events-that-show-us-why-we-still-need-feminism/)
 - [5 Songs a Vampire May like ...](https://twilight.allwomenstalk.com/5-songs-a-vampire-may-like/)
 - [7 Paranormal and Twilight Blogs ...](https://paranormal.allwomenstalk.com/7-paranormaltwilight-blogs/)
 

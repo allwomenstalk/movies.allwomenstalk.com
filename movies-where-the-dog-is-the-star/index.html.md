@@ -60,15 +60,15 @@ What are your favorite dog movies?
 ## Related Posts
 
 - [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
-- [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
-- [movie with orange car](https://movies.allwomenstalk.com/awesome-movie-cars-wed-all-love-to-drive/)
+- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
 - [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
+- [movie with orange car](https://movies.allwomenstalk.com/awesome-movie-cars-wed-all-love-to-drive/)
 - [family road trip movie](https://travel.allwomenstalk.com/movie-road-trips-you-can-take-in-real-life/)
-- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
 - [make you think movies](https://movies.allwomenstalk.com/incredible-movies-about-war-that-make-you-think/)
-- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
+- [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

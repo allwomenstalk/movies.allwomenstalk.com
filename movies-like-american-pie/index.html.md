@@ -54,16 +54,16 @@ These movies like American Pie are hilarious and enjoyable. They remind you to l
 
 ## Related Posts
 
-- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
-- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
-- [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
 - [Movies Opening Today March 16 2007](https://allwomenstalk.com/movies-opening-today-march/)
-- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
-- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
 - [My Evening at the grindhouse ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
+- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
+- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
+- [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
-- [Film Review: 300](https://allwomenstalk.com/film-review-300/)
 - [Movies Opening Today March 23 2007 ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
+- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
+- [Film Review: 300](https://allwomenstalk.com/film-review-300/)
 - [10 Classic High School Movies to Watch with Friend...](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
 - [15 Fabulous Chick Flicks to Watch during Sleepover...](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
 

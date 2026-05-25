@@ -81,15 +81,15 @@ All of these movie quotes have always resonated with me whenever I thought about
 ## Related Posts
 
 - [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
-- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
-- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
-- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
-- [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
 - [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
-- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
 - [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
 - [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
+- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
+- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
+- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
+- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [10 Famous Movie One Liners ...](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
 

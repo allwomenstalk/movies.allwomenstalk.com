@@ -60,16 +60,16 @@ Are you ready for a major cry fest with tons of feels? Get the popcorn and hot w
 
 ## Related Posts
 
-- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
+- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
+- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
+- [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
+- [what movies need a sequel](https://movies.allwomenstalk.com/movies-that-need-a-sequel/)
 - [top 5 love movies](https://love.allwomenstalk.com/things-that-happen-in-romantic-movies-we-wish-were-real/)
-- [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
 - [horror movie addict](https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/)
 - [loreal riche stylo smoky eternal sunshine](https://movies.allwomenstalk.com/iconic-movie-relationships-that-taught-us-all-about-love/)
-- [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
-- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
 - [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
-- [what movies need a sequel](https://movies.allwomenstalk.com/movies-that-need-a-sequel/)
-- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
+- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
+- [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 

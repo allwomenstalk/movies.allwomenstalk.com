@@ -70,14 +70,14 @@ Be truthful now!
 
 ## Related Posts
 
-- [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
-- [should i drop a course](https://teen.allwomenstalk.com/signs-you-should-drop-that-class-asap/)
-- [signs you should not accept job offer](https://money.allwomenstalk.com/signs-you-shouldnt-actually-accept-a-job-offer/)
 - [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
-- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
-- [signs youre a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
-- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
 - [lobster romantic meaning](https://love.allwomenstalk.com/this-is-how-you-know-youve-found-your-lobster/)
+- [signs youre a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
+- [should i drop a course](https://teen.allwomenstalk.com/signs-you-should-drop-that-class-asap/)
+- [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
+- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
+- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
+- [signs you should not accept job offer](https://money.allwomenstalk.com/signs-you-shouldnt-actually-accept-a-job-offer/)
 - [signs you are a girly girl](https://inspiration.allwomenstalk.com/signs-that-youre-far-from-a-girly-girl/)
 - [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
 - [10 Signs That You Need a Vacation ...](https://travel.allwomenstalk.com/10-signs-that-you-need-a-vacation/)

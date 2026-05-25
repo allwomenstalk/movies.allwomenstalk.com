@@ -42,16 +42,16 @@ Trippy music videos are not for everyone. But if you are ever in the mood to sit
 
 ## Related Posts
 
-- [fun songs to dance](https://lifestyle.allwomenstalk.com/fun-songs-to-dance-to/)
-- [songs to bang to](https://love.allwomenstalk.com/worst-songs-to-have-sex-to/)
+- [best songs to wake up in the morning](https://music.allwomenstalk.com/songs-for-your-wake-up-playlist/)
 - [best country road trip songs](https://lifestyle.allwomenstalk.com/best-road-trip-songs/)
-- [famous musician couples](https://music.allwomenstalk.com/musical-power-couples/)
-- [songs for teenage](https://lifestyle.allwomenstalk.com/classic-rock-songs-that-every-teen-should-know/)
-- [songs with around in the title](https://travel.allwomenstalk.com/songs-with-countries-in-the-title/)
 - [road trip summer songs](https://travel.allwomenstalk.com/travel-songs-for-your-summer-playlist/)
 - [best edm all time](https://music.allwomenstalk.com/best-edm-songs/)
+- [songs for teenage](https://lifestyle.allwomenstalk.com/classic-rock-songs-that-every-teen-should-know/)
+- [songs with around in the title](https://travel.allwomenstalk.com/songs-with-countries-in-the-title/)
+- [fun songs to dance](https://lifestyle.allwomenstalk.com/fun-songs-to-dance-to/)
 - [love song 2013](https://love.allwomenstalk.com/love-songs-to-listen-to-for/)
-- [best songs to wake up in the morning](https://music.allwomenstalk.com/songs-for-your-wake-up-playlist/)
+- [songs to bang to](https://love.allwomenstalk.com/worst-songs-to-have-sex-to/)
+- [famous musician couples](https://music.allwomenstalk.com/musical-power-couples/)
 - [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

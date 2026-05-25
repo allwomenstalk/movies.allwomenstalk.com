@@ -61,16 +61,16 @@ Available on Hulu
 
 ## Related Posts
 
-- [poem about ocd](https://books.allwomenstalk.com/ocd-by-neil-hilborn/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/tied-ship-by-erin-hanson/)
-- [barbie styling head 2000s](https://lifestyle.allwomenstalk.com/barbie-through-the-ages/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-dread-of-christmas/)
-- [shows 2008](https://movies.allwomenstalk.com/tv-shows-turning-in/)
-- [70s tv shows](https://movies.allwomenstalk.com/the-70s-was-the-best-decade-in-television/)
-- [phobia of disney](https://movies.allwomenstalk.com/fears-that-develop-from-watching-disney-movies/)
-- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
-- [lampoon christmas](https://movies.allwomenstalk.com/current-issues-raised-in-national-lampoons-christmas-vacation/)
 - [funny holiday video](https://funny.allwomenstalk.com/mila-stauffers-video-thoughts-on-the-holidays/)
+- [poem about ocd](https://books.allwomenstalk.com/ocd-by-neil-hilborn/)
+- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
+- [phobia of disney](https://movies.allwomenstalk.com/fears-that-develop-from-watching-disney-movies/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/tied-ship-by-erin-hanson/)
+- [70s tv shows](https://movies.allwomenstalk.com/the-70s-was-the-best-decade-in-television/)
+- [shows 2008](https://movies.allwomenstalk.com/tv-shows-turning-in/)
+- [lampoon christmas](https://movies.allwomenstalk.com/current-issues-raised-in-national-lampoons-christmas-vacation/)
+- [barbie styling head 2000s](https://lifestyle.allwomenstalk.com/barbie-through-the-ages/)
 - [7 Old TV Shows Worth Watching Again ...](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 - [7 Childhood TV Shows They Should Bring Back ...](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 

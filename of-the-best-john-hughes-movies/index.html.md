@@ -65,14 +65,14 @@ Do you have a favorite John Hughes movie?
 ## Related Posts
 
 - [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
 - [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)

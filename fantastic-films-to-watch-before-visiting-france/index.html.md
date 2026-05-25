@@ -56,16 +56,16 @@ These are just some of the great movies to watch before visiting France. If youâ
 
 ## Related Posts
 
-- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
-- [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
-- [minimalist movie](https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/)
-- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
-- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
 - [movies where actors really did it](https://movies.allwomenstalk.com/movies-featuring-real-life-related-actors/)
-- [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
+- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
 - [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
+- [minimalist movie](https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/)
+- [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
+- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
+- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
+- [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
 - [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
+- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Great Places to Watch Movies ...](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
 

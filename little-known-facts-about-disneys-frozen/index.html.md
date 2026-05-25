@@ -50,16 +50,16 @@ Want some more little-known facts about Disney’s Frozen? Well, the whole film 
 
 ## Related Posts
 
-- [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
-- [bethany mota niece](https://celebs.allwomenstalk.com/interesting-facts-about-bethany-mota/)
-- [what phenomena in the natural world do mythical cr...](https://lifestyle.allwomenstalk.com/possible-scientific-explanations-for-mythical-beings/)
-- [jrr tolkien interesting facts](https://books.allwomenstalk.com/interesting-facts-about-j-r-r-tolkien/)
-- [the grinch references](https://movies.allwomenstalk.com/funny-facts-about-the-grinch-that-stole-christmas/)
-- [polar bears information and facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-polar-bears/)
 - [medieval hygiene facts](https://health.allwomenstalk.com/facts-about-hygiene-that-may-surprise-you/)
+- [jrr tolkien interesting facts](https://books.allwomenstalk.com/interesting-facts-about-j-r-r-tolkien/)
 - [strange facts about dolphins](https://lifestyle.allwomenstalk.com/facts-about-dolphins-you-probably-didnt-know/)
-- [food industry secrets](https://food.allwomenstalk.com/shocking-secrets-of-the-fast-food-industry/)
+- [polar bears information and facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-polar-bears/)
 - [myths about vikings](https://lifestyle.allwomenstalk.com/myths-about-the-vikings-debunked/)
+- [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
+- [food industry secrets](https://food.allwomenstalk.com/shocking-secrets-of-the-fast-food-industry/)
+- [what phenomena in the natural world do mythical cr...](https://lifestyle.allwomenstalk.com/possible-scientific-explanations-for-mythical-beings/)
+- [the grinch references](https://movies.allwomenstalk.com/funny-facts-about-the-grinch-that-stole-christmas/)
+- [bethany mota niece](https://celebs.allwomenstalk.com/interesting-facts-about-bethany-mota/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 

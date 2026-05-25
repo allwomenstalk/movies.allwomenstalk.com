@@ -82,16 +82,16 @@ You don't have to be a kid in order to enjoy these films. What's your favorite y
 
 ## Related Posts
 
-- [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
-- [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
-- [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
-- [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
+- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
 - [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
+- [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
 - [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
 - [crimes inspired by movies](https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/)
-- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
+- [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
+- [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
+- [movies like wanderlust](https://movies.allwomenstalk.com/the-ultimate-list-of-travel-movies-for-girls-with-wanderlust/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [8 Movies Based on Books ...](https://movies.allwomenstalk.com/movies-based-on-books/)
 

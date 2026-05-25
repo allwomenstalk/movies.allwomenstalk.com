@@ -42,16 +42,16 @@ I forgot that a lot of these people were rappers before they were actors! I’m 
 
 ## Related Posts
 
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
-- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
-- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
 - [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
-- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
-- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
 - [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
+- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
+- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
+- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 

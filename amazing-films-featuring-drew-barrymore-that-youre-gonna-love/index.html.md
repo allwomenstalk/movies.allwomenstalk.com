@@ -42,16 +42,16 @@ Now that you know which Drew Barrymore films to check out, it’s time to cozy o
 
 ## Related Posts
 
-- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
+- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
 - [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
-- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
 - [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
 - [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
+- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
 - [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
-- [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 

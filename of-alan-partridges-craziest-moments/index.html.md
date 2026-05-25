@@ -56,16 +56,16 @@ I know some British humor isn’t to everyone’s taste but Alan Partridge truly
 
 ## Related Posts
 
-- [all that spin offs](https://movies.allwomenstalk.com/spin-off-shows-that-are-pretty-amazing/)
-- [welcome to nightvale tweets](https://funny.allwomenstalk.com/fun-and-thought-provoking-tweets-from-welcome-to-nightvale/)
 - [wags world cup](https://celebs.allwomenstalk.com/gorgeous-wags-at-the-world-cup/)
-- [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
-- [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
-- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
 - [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
+- [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
 - [renfaire characters](https://funny.allwomenstalk.com/interesting-people-youll-see-at-a-renaissance-fair/)
+- [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
+- [all that spin offs](https://movies.allwomenstalk.com/spin-off-shows-that-are-pretty-amazing/)
+- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
 - [popular podcasts radiolab](https://movies.allwomenstalk.com/radiolab-podcasts-you-must-listen-to/)
 - [tv shows like impractical jokers](https://funny.allwomenstalk.com/comical-tv-shows-to-watch-if-youre-looking-for-a-laugh/)
+- [welcome to nightvale tweets](https://funny.allwomenstalk.com/fun-and-thought-provoking-tweets-from-welcome-to-nightvale/)
 - [7 Shocking Movie Moments ...](https://allwomenstalk.com/7-shocking-movie-moments/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 

@@ -42,16 +42,16 @@ Suspense thrillers are great because it’s not just mindless action. The direct
 
 ## Related Posts
 
-- [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
-- [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
-- [chick flicks movies list](https://movies.allwomenstalk.com/chick-flicks-i-never-get-tired-of-watching/)
-- [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
+- [best 90s horror movie](https://movies.allwomenstalk.com/best-horror-films-of-the-90s-that-will-terrify-you/)
 - [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
+- [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
+- [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
+- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
 - [true romance tattoo scene](https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/)
 - [movies with a message](https://movies.allwomenstalk.com/kids-movies-with-a-message/)
-- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
-- [best 90s horror movie](https://movies.allwomenstalk.com/best-horror-films-of-the-90s-that-will-terrify-you/)
+- [chick flicks movies list](https://movies.allwomenstalk.com/chick-flicks-i-never-get-tired-of-watching/)
 - [movies that are unintentionally funny](https://movies.allwomenstalk.com/unintentionally-hilarious-movies-that-will-have-you-cracking-up/)
+- [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

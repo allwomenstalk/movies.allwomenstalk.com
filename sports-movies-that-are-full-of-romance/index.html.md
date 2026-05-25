@@ -56,16 +56,16 @@ Other sports movies with some romance to them you might also want to watch inclu
 
 ## Related Posts
 
-- [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
-- [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
-- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
-- [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
 - [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
-- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
-- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
-- [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
 - [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
+- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
+- [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
+- [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
+- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
+- [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
+- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
+- [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

@@ -116,16 +116,16 @@ It makes sense that a movie is the universal cover for a hook up, but at the sam
 
 ## Related Posts
 
-- [pickup lines for him](https://love.allwomenstalk.com/the-best-pickup-lines-men-can-use-on-women/)
-- [eye contact in the gym](https://love.allwomenstalk.com/how-to-get-a-hottie-to-notice-you-at-the-gym/)
-- [romantic sayings in french](https://love.allwomenstalk.com/french-phrases-for-seducing-your-boyfriend/)
-- [whats the bro code](https://love.allwomenstalk.com/bro-code-rules-you-should-know-about-if-you-want-a-bf/)
-- [playing footsie body language](https://love.allwomenstalk.com/videos-thatll-teach-you-hot-to-flirt-with-the-magic-of-body-language/)
-- [texting a guy](https://love.allwomenstalk.com/first-texts-to-send-to-him-after-you-get-his-number/)
-- [question to ask ur crush](https://love.allwomenstalk.com/situations-to-fantasize-about-your-crush-in/)
-- [18 and never been kissed](https://love.allwomenstalk.com/what-to-do-if-youve-never-been-kissed/)
-- [flirt fail meme](https://love.allwomenstalk.com/flirting-fails-thatll-make-you-feel-better-about-yourself/)
 - [how to up your kissing game](https://love.allwomenstalk.com/how-to-ramp-up-your-kissing-game-by-avoiding-these-mistakes/)
+- [romantic sayings in french](https://love.allwomenstalk.com/french-phrases-for-seducing-your-boyfriend/)
+- [texting a guy](https://love.allwomenstalk.com/first-texts-to-send-to-him-after-you-get-his-number/)
+- [18 and never been kissed](https://love.allwomenstalk.com/what-to-do-if-youve-never-been-kissed/)
+- [playing footsie body language](https://love.allwomenstalk.com/videos-thatll-teach-you-hot-to-flirt-with-the-magic-of-body-language/)
+- [pickup lines for him](https://love.allwomenstalk.com/the-best-pickup-lines-men-can-use-on-women/)
+- [whats the bro code](https://love.allwomenstalk.com/bro-code-rules-you-should-know-about-if-you-want-a-bf/)
+- [question to ask ur crush](https://love.allwomenstalk.com/situations-to-fantasize-about-your-crush-in/)
+- [flirt fail meme](https://love.allwomenstalk.com/flirting-fails-thatll-make-you-feel-better-about-yourself/)
+- [eye contact in the gym](https://love.allwomenstalk.com/how-to-get-a-hottie-to-notice-you-at-the-gym/)
 - [7 Ways to Turn down a Date ...](https://love.allwomenstalk.com/ways-to-turn-down-a-date/)
 - [7 Ways to Deal with an Awkward First Date ...](https://allwomenstalk.com/7-ways-to-deal-with-an-awkward-first-date/)
 

@@ -59,15 +59,15 @@ These are just a few of the movies I like watching after a hard day. What are yo
 ## Related Posts
 
 - [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
-- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
-- [movies that motivate you](https://movies.allwomenstalk.com/movies-that-will-boost-your-energy/)
-- [holiday chick](https://movies.allwomenstalk.com/best-holiday-chick-flicks/)
-- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
-- [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
 - [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
 - [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
-- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
 - [interstellee](https://movies.allwomenstalk.com/movies-that-rocked/)
+- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
+- [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
+- [movies that motivate you](https://movies.allwomenstalk.com/movies-that-will-boost-your-energy/)
+- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
+- [holiday chick](https://movies.allwomenstalk.com/best-holiday-chick-flicks/)
+- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
 - [7 Greatest Comfort Movies Ever ...](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

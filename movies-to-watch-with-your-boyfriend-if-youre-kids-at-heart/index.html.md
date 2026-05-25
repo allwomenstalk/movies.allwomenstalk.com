@@ -84,14 +84,14 @@ Now you have plenty of movies to watch with your boyfriend the next time that yo
 
 - [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
 - [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
+- [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
 - [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
+- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
 - [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
-- [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
-- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
-- [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
 - [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
+- [the moth diaries](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [7 New Romantic Movies You Have to Watch ...](https://allwomenstalk.com/7-new-romantic-movies-you-have-to-watch/)
 

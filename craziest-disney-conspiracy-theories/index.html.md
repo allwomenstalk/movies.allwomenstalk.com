@@ -110,16 +110,16 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [craziest sport](https://fitness.allwomenstalk.com/craziest-sports-that-really-exist/)
+- [kellyandryan com recipes](https://movies.allwomenstalk.com/classic-tv-couples-from-the-office/)
+- [bizarre state laws](https://lifestyle.allwomenstalk.com/bizarre-state-laws-that-are-still-on-the-books/)
 - [shows we watched as a kid](https://movies.allwomenstalk.com/childhood-tv-shows-that-will-make-you-reminisce/)
-- [24 moments](https://movies.allwomenstalk.com/24-moments-that-will-get-you-pumped-for-24-live-another-day/)
-- [ghosts videos](https://movies.allwomenstalk.com/ghost-videos-on-youtube-that-cant-be-explained/)
-- [celebrities in cars getting coffee](https://movies.allwomenstalk.com/must-see-interviews-on-comedians-in-cars-getting-coffee/)
 - [most famous assassinations](https://celebs.allwomenstalk.com/most-famous-assassinations-in-history/)
 - [sci fi villain](https://movies.allwomenstalk.com/best-science-fiction-villains/)
-- [bizarre state laws](https://lifestyle.allwomenstalk.com/bizarre-state-laws-that-are-still-on-the-books/)
+- [craziest sport](https://fitness.allwomenstalk.com/craziest-sports-that-really-exist/)
 - [neil patrick harris twitter](https://funny.allwomenstalk.com/hysterical-tweets-from-neil-patrick-harris/)
-- [kellyandryan com recipes](https://movies.allwomenstalk.com/classic-tv-couples-from-the-office/)
+- [ghosts videos](https://movies.allwomenstalk.com/ghost-videos-on-youtube-that-cant-be-explained/)
+- [celebrities in cars getting coffee](https://movies.allwomenstalk.com/must-see-interviews-on-comedians-in-cars-getting-coffee/)
+- [24 moments](https://movies.allwomenstalk.com/24-moments-that-will-get-you-pumped-for-24-live-another-day/)
 - [7 Best Shows on the Disney Channel ...](https://allwomenstalk.com/7-best-shows-on-the-disney-channel/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 

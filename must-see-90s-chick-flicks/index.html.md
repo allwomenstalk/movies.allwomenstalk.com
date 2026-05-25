@@ -42,15 +42,15 @@ I think I'll always have a special place in my heart for 1990’s chick flicks. 
 
 ## Related Posts
 
+- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
 - [hardx upcoming](https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/)
 - [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
+- [edge of seat horror movies](https://movies.allwomenstalk.com/scary-movies-that-will-keep-you-on-the-edge-of-your-seat/)
+- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
+- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
 - [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
 - [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
-- [edge of seat horror movies](https://movies.allwomenstalk.com/scary-movies-that-will-keep-you-on-the-edge-of-your-seat/)
-- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
 - [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
-- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
-- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
 - [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)

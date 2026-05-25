@@ -60,16 +60,16 @@ How many of these movies have you seen? Do you have any you'd want to add to thi
 
 ## Related Posts
 
-- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
 - [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
-- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
 - [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
+- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
+- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
 - [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
 - [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
-- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
-- [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
-- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 

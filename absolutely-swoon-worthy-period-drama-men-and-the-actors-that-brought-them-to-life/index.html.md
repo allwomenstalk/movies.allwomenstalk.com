@@ -68,16 +68,16 @@ Well ladies, these are the period men and actors that I find absolutely swoon wo
 
 ## Related Posts
 
-- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
-- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
 - [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
-- [miley cyrus inappropriate](https://celebs.allwomenstalk.com/craziest-miley-cyrus-moments-that-never-cease-to-amuse-us/)
 - [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
-- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
+- [miley cyrus inappropriate](https://celebs.allwomenstalk.com/craziest-miley-cyrus-moments-that-never-cease-to-amuse-us/)
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
-- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
+- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
+- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
 - [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
+- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
+- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
+- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
 - [7 Hottest on-Screen Heroes of All Times ...](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 

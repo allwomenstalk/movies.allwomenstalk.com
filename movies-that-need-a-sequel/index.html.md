@@ -70,15 +70,15 @@ I’d love to hear which movies you think need sequels?
 
 ## Related Posts
 
-- [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
 - [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
-- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
-- [horror movie addict](https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/)
-- [top 5 love movies](https://love.allwomenstalk.com/things-that-happen-in-romantic-movies-we-wish-were-real/)
-- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
-- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
-- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
 - [2007 romantic movies](https://movies.allwomenstalk.com/romantic-movies-for-a-solo-night-in/)
+- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
+- [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
+- [horror movie addict](https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/)
+- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
+- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
+- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
+- [top 5 love movies](https://love.allwomenstalk.com/things-that-happen-in-romantic-movies-we-wish-were-real/)
 - [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [7 Movies That Shouldnt Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)

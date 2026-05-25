@@ -42,16 +42,16 @@ Even if these videos are hoaxes, then we can appreciate how well-made they are. 
 
 ## Related Posts
 
-- [24 moments](https://movies.allwomenstalk.com/24-moments-that-will-get-you-pumped-for-24-live-another-day/)
-- [neil patrick harris twitter](https://funny.allwomenstalk.com/hysterical-tweets-from-neil-patrick-harris/)
 - [cute fictional couples](https://movies.allwomenstalk.com/cutest-tv-couples-that-give-us-goosebumps/)
-- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
+- [tv shows with cristina yang](https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/)
+- [24 moments](https://movies.allwomenstalk.com/24-moments-that-will-get-you-pumped-for-24-live-another-day/)
+- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
 - [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
 - [most famous assassinations](https://celebs.allwomenstalk.com/most-famous-assassinations-in-history/)
-- [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
+- [neil patrick harris twitter](https://funny.allwomenstalk.com/hysterical-tweets-from-neil-patrick-harris/)
 - [sci fi villain](https://movies.allwomenstalk.com/best-science-fiction-villains/)
 - [celebrities in cars getting coffee](https://movies.allwomenstalk.com/must-see-interviews-on-comedians-in-cars-getting-coffee/)
-- [tv shows with cristina yang](https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/)
+- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
 - [7 Funny Proposals-Went-Wrong Videos ...](https://wedding.allwomenstalk.com/funny-proposals-went-wrong-videos/)
 - [7 Interesting YouTube Channels ...](https://7fun.net/interesting-youtube-channels/)
 

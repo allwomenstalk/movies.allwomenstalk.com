@@ -42,16 +42,16 @@ Well, now that I have "The Fresh Prince of Bel-Air" theme song stuck in my head 
 
 ## Related Posts
 
+- [clean good songs](https://lifestyle.allwomenstalk.com/songs-to-clean-your-house-to/)
+- [bruno mars best dance song](https://lifestyle.allwomenstalk.com/dance-songs-to-run-to/)
+- [romantic songs 2012](https://lifestyle.allwomenstalk.com/songs-of-that-i-love/)
+- [upbeat cheer songs](https://lifestyle.allwomenstalk.com/songs-to-cheer-you-up/)
+- [good songs 2012](https://lifestyle.allwomenstalk.com/new-songs-on-my-running-playlist/)
+- [musical comedians](https://celebs.allwomenstalk.com/musical-comedians-worth-listening-to/)
+- [best ed sheeran song lyrics](https://celebs.allwomenstalk.com/best-ed-sheeran-lyrics/)
 - [dad and daughter dance songs wedding](https://wedding.allwomenstalk.com/father-and-daughter-wedding-dance-songs/)
 - [solo dance styles](https://lifestyle.allwomenstalk.com/dances-everyone-should-know/)
-- [clean good songs](https://lifestyle.allwomenstalk.com/songs-to-clean-your-house-to/)
-- [musical comedians](https://celebs.allwomenstalk.com/musical-comedians-worth-listening-to/)
-- [bruno mars best dance song](https://lifestyle.allwomenstalk.com/dance-songs-to-run-to/)
 - [songs to win your ex back](https://love.allwomenstalk.com/best-songs-to-get-over-your-ex/)
-- [romantic songs 2012](https://lifestyle.allwomenstalk.com/songs-of-that-i-love/)
-- [best ed sheeran song lyrics](https://celebs.allwomenstalk.com/best-ed-sheeran-lyrics/)
-- [good songs 2012](https://lifestyle.allwomenstalk.com/new-songs-on-my-running-playlist/)
-- [upbeat cheer songs](https://lifestyle.allwomenstalk.com/songs-to-cheer-you-up/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Unforgettable John Williams Soundtracks ...](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
 

@@ -56,16 +56,16 @@ Anne Hathaway is a very talented actress who has started in a varied collection 
 
 ## Related Posts
 
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
+- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
 - [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
 - [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
 - [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
-- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
 - [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
-- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
+- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 - [7 of My Favorite Jane Austen Movies ...](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 

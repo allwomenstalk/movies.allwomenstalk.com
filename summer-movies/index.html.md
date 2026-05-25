@@ -49,16 +49,16 @@ Which other movies are you dying to see this summer?
 
 ## Related Posts
 
-- [christmas horro films](https://movies.allwomenstalk.com/your-guide-to-christmas-horror-movies/)
 - [romance movies to watch on netflix](https://movies.allwomenstalk.com/best-romance-movies-on-netflix/)
-- [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
-- [christmas movies that arent christmas movies](https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/)
-- [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
 - [movies to put you in the fall mood](https://movies.allwomenstalk.com/movies-to-get-you-in-the-mood-for-fall/)
-- [6movies](https://movies.allwomenstalk.com/movies-you-should-definitely-watch/)
-- [Perfect Stay in Date Night Movies ...](https://movies.allwomenstalk.com/perfect-stay-in-date-night-movies/)
-- [netflix sitcoms](https://movies.allwomenstalk.com/funniest-sitcoms-to-watch-on-netflix/)
+- [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
 - [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
+- [netflix sitcoms](https://movies.allwomenstalk.com/funniest-sitcoms-to-watch-on-netflix/)
+- [christmas movies that arent christmas movies](https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/)
+- [6movies](https://movies.allwomenstalk.com/movies-you-should-definitely-watch/)
+- [christmas horro films](https://movies.allwomenstalk.com/your-guide-to-christmas-horror-movies/)
+- [Perfect Stay in Date Night Movies ...](https://movies.allwomenstalk.com/perfect-stay-in-date-night-movies/)
+- [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 - [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
 

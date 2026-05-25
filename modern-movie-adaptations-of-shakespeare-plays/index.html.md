@@ -80,16 +80,16 @@ I never really "got" Shakespeare til I saw this movie. It's so, so good!
 
 ## Related Posts
 
-- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
-- [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
-- [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
-- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
-- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
+- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
 - [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
-- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
 - [its true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
 - [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
-- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
+- [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
+- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
+- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
+- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
+- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
+- [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 

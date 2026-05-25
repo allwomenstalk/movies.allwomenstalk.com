@@ -42,16 +42,16 @@ What movie changed your life? How do you decide what movie is worth seeing? I lo
 
 ## Related Posts
 
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
-- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
 - [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
+- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
+- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
 - [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 

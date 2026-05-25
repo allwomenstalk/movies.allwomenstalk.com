@@ -56,16 +56,16 @@ That sums up my list for binge-worthy series on Netflix. I know there’s a lot 
 
 ## Related Posts
 
-- [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
-- [new years eve movie online](https://movies.allwomenstalk.com/fun-movies-to-watch-this-new-years-eve/)
-- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
 - [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
-- [wish i could](https://movies.allwomenstalk.com/exciting-movies-you-wish-could-happen-in-real-life/)
-- [best romantic action movies](https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/)
-- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
+- [best romantic action movies](https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/)
+- [wish i could](https://movies.allwomenstalk.com/exciting-movies-you-wish-could-happen-in-real-life/)
 - [is moon embracing the sun worth watching](https://movies.allwomenstalk.com/popular-korean-dramas-youll-have-a-blast-watching/)
+- [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
 - [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
+- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
+- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
+- [new years eve movie online](https://movies.allwomenstalk.com/fun-movies-to-watch-this-new-years-eve/)
 - [7 TV Shows That Everyone Should Be Watching ...](https://movies.allwomenstalk.com/tv-shows-that-everyone-should-be-watching/)
 - [7 Completed TV Series to Stream Instantly on Netfl...](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
 

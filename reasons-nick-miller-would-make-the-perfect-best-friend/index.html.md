@@ -42,16 +42,16 @@ Well, there you have it! These are just seven out of many reasons why Nick Mille
 
 ## Related Posts
 
-- [amanda seyfried](https://celebs.allwomenstalk.com/awesome-reasons-to-love-amanda-seyfried/)
-- [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
-- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
+- [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
 - [psych show](https://movies.allwomenstalk.com/reasons-you-should-be-binge-watching-psych/)
 - [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
-- [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
-- [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
-- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
 - [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
+- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
+- [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
 - [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
+- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [amanda seyfried](https://celebs.allwomenstalk.com/awesome-reasons-to-love-amanda-seyfried/)
 - [7 Reasons Why I Still Love Friends ...](https://movies.allwomenstalk.com/7-reasons-why-i-still-love-friends/)
 - [10 Reasons Why Cats Are a Girls Best Friend ...](https://allwomenstalk.com/10-reasons-why-cats-are-a-girls-best-friend/)
 

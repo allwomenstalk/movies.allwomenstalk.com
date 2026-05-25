@@ -42,15 +42,15 @@ What are some of the things you learned from Mean Girls? Did you learn the same 
 
 ## Related Posts
 
-- [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
-- [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
-- [famous person failed then succeeded](https://lifestyle.allwomenstalk.com/successful-people-who-failed-at-first/)
+- [which foundation shade is best for wheatish skin](https://makeup.allwomenstalk.com/most-common-foundation-mistakes/)
 - [funny simple pleasures](https://lifestyle.allwomenstalk.com/of-lifes-simple-pleasures/)
+- [secrets of happy people](https://lifestyle.allwomenstalk.com/new-secrets-of-happy-people/)
+- [my family has made me...](https://parenting.allwomenstalk.com/things-my-parents-did-that-made-me-who-i-am/)
+- [jenna marbles bra](https://lifestyle.allwomenstalk.com/life-lessons-jenna-marbles-taught-me/)
 - [penguins facts about love](https://love.allwomenstalk.com/love-lessons-from-penguins/)
 - [is practice makes perfect a truism](https://lifestyle.allwomenstalk.com/truths-to-practice-makes-perfect/)
-- [my family has made me...](https://parenting.allwomenstalk.com/things-my-parents-did-that-made-me-who-i-am/)
-- [which foundation shade is best for wheatish skin](https://makeup.allwomenstalk.com/most-common-foundation-mistakes/)
-- [jenna marbles bra](https://lifestyle.allwomenstalk.com/life-lessons-jenna-marbles-taught-me/)
+- [lebowskis charlotte](https://movies.allwomenstalk.com/lessons-from-the-big-lebowski/)
+- [famous person failed then succeeded](https://lifestyle.allwomenstalk.com/successful-people-who-failed-at-first/)
 - [social issues teens](https://lifestyle.allwomenstalk.com/issues-teens-face-today/)
 - [7 Things Ive Learned from the Jersey Shore ...](https://movies.allwomenstalk.com/things-ive-learned-from-the-jersey-shore/)
 - [7 Things Getting Older Has Taught Me ...](https://allwomenstalk.com/7-things-getting-older-has-taught-me/)

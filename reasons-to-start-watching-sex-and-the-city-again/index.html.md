@@ -56,16 +56,16 @@ Why do you love Sex and the City? Let me know in the comments!
 
 ## Related Posts
 
-- [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
-- [cartoons frozen](https://movies.allwomenstalk.com/reasons-why-frozen-is-the-best-disney-movie-ever-made/)
-- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
-- [parenthood season 7](https://movies.allwomenstalk.com/reasons-to-watch-and-love-parenthood/)
-- [jenna fischer undeclared](https://movies.allwomenstalk.com/reasons-to-watch-and-love-undeclared/)
-- [the carrie diaries season 2 episode 7](https://movies.allwomenstalk.com/reasons-to-watch-the-carrie-diaries-regardless-of-your-age/)
+- [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
 - [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
 - [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
+- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
 - [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
-- [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
+- [the carrie diaries season 2 episode 7](https://movies.allwomenstalk.com/reasons-to-watch-the-carrie-diaries-regardless-of-your-age/)
+- [jenna fischer undeclared](https://movies.allwomenstalk.com/reasons-to-watch-and-love-undeclared/)
+- [parenthood season 7](https://movies.allwomenstalk.com/reasons-to-watch-and-love-parenthood/)
+- [cartoons frozen](https://movies.allwomenstalk.com/reasons-why-frozen-is-the-best-disney-movie-ever-made/)
+- [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
 - [7 Reasons Why I Still Love Friends ...](https://movies.allwomenstalk.com/7-reasons-why-i-still-love-friends/)
 - [7 Reasons to Start Wearing Sexy Lingerie ...](https://allwomenstalk.com/7-reasons-to-start-wearing-sexy-lingerie/)
 

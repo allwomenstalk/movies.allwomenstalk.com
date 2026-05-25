@@ -56,16 +56,16 @@ There you have it! Marshall Eriksen is the best friend someone could have. What'
 
 ## Related Posts
 
-- [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
-- [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
-- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
-- [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
-- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
 - [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
-- [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
-- [psych show](https://movies.allwomenstalk.com/reasons-you-should-be-binge-watching-psych/)
+- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
+- [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
+- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
 - [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
+- [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
+- [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
+- [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
 - [amanda seyfried](https://celebs.allwomenstalk.com/awesome-reasons-to-love-amanda-seyfried/)
+- [psych show](https://movies.allwomenstalk.com/reasons-you-should-be-binge-watching-psych/)
 - [6 Reasons to Be the Girlfriend His Buddies Want to...](https://allwomenstalk.com/6-reasons-to-be-the-girlfriend-his-buddies-want-to-have-around/)
 - [10 Reasons Best Friends Are Better than Boyfriends...](https://allwomenstalk.com/10-reasons-best-friends-are-better-than-boyfriends/)
 

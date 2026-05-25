@@ -68,16 +68,16 @@ That’s it – my list of movie geeks. Now, I know you are all going to have pl
 
 ## Related Posts
 
-- [movie night names](https://movies.allwomenstalk.com/awesome-movie-night-ideas-to-liven-up-your-night/)
 - [to live movie](https://movies.allwomenstalk.com/best-movie-worlds-youd-like-to-live-in/)
-- [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
 - [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
-- [biographical movies](https://movies.allwomenstalk.com/best-biographical-movies-about-the-fabulous-and-famous/)
 - [films with joseph gordon-levitt](https://movies.allwomenstalk.com/great-and-intriguing-movies-featuring-joseph-gordon-levitt/)
 - [what movie is the scariest movie of all time](https://movies.allwomenstalk.com/super-scary-movies-for-a-scare-your-pants-off-marathon/)
 - [nip tuck on netflix](https://movies.allwomenstalk.com/best-tv-series-on-netflix-youve-gotta-watch/)
-- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
+- [biographical movies](https://movies.allwomenstalk.com/best-biographical-movies-about-the-fabulous-and-famous/)
 - [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
+- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
+- [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
+- [movie night names](https://movies.allwomenstalk.com/awesome-movie-night-ideas-to-liven-up-your-night/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 

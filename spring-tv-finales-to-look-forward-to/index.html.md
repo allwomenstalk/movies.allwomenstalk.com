@@ -48,16 +48,16 @@ With so many shows to watch, it looks like my social calendar will have to take 
 
 ## Related Posts
 
-- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
 - [7 Reality Shows I Actually Enjoy ...](https://movies.allwomenstalk.com/reality-shows-i-actually-enjoy/)
 - [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
-- [7 Addictive TV Shows That Are Worth Watching ...](https://celebs.allwomenstalk.com/addictive-tv-shows-that-are-worth-watching/)
-- [7 Worst Throwbacks I Pray Never Come Back ...](https://fashion.allwomenstalk.com/worst-throwbacks-i-pray-never-come-back/)
-- [7 Must See Cold Openings from the Office ...](https://movies.allwomenstalk.com/must-see-cold-openings-from-the-office/)
 - [best season finales](https://movies.allwomenstalk.com/best-season-finales-ever/)
-- [9 Cory Monteith Glee Moments Well Never Forget ...](https://celebs.allwomenstalk.com/cory-monteith-glee-moments-well-never-forget/)
-- [7 What Would You do Videos ...](https://inspiration.allwomenstalk.com/what-would-you-do-videos/)
+- [7 Must See Cold Openings from the Office ...](https://movies.allwomenstalk.com/must-see-cold-openings-from-the-office/)
+- [7 Worst Throwbacks I Pray Never Come Back ...](https://fashion.allwomenstalk.com/worst-throwbacks-i-pray-never-come-back/)
+- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
 - [scrubs musical episode](https://movies.allwomenstalk.com/favorite-scrubs-episodes/)
+- [7 What Would You do Videos ...](https://inspiration.allwomenstalk.com/what-would-you-do-videos/)
+- [9 Cory Monteith Glee Moments Well Never Forget ...](https://celebs.allwomenstalk.com/cory-monteith-glee-moments-well-never-forget/)
+- [7 Addictive TV Shows That Are Worth Watching ...](https://celebs.allwomenstalk.com/addictive-tv-shows-that-are-worth-watching/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [10 Fall TV Shows I Cant Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 

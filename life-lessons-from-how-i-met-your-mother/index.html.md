@@ -57,16 +57,16 @@ Top Image Source: [blogspot.in](http://herald-dispatchblogs02.blogspot.com/2008_
 
 ## Related Posts
 
-- [childish things people do](https://lifestyle.allwomenstalk.com/childish-things-to-never-give-up-or-stop-loving/)
-- [is it bad to be brutally honest](https://lifestyle.allwomenstalk.com/times-its-okay-to-be-brutally-honest/)
-- [list of distractions in life](https://health.allwomenstalk.com/major-distractions-in-your-life/)
-- [what treatments is emily getting pll](https://movies.allwomenstalk.com/life-lessons-from-pretty-little-liars/)
 - [doctor lessons](https://movies.allwomenstalk.com/great-doctor-who-life-lessons/)
 - [gossip girl moments](https://lifestyle.allwomenstalk.com/gossip-girl-moments-you-can-learn-from-and-love/)
 - [mom jealous of nanny](https://parenting.allwomenstalk.com/truths-your-nanny-would-like-you-to-know/)
-- [dont judge a book by its cover netflix](https://movies.allwomenstalk.com/things-i-learned-from-mean-girls/)
-- [hello dolly movie soundtrack](https://movies.allwomenstalk.com/things-i-learned-from-hello-dolly/)
+- [childish things people do](https://lifestyle.allwomenstalk.com/childish-things-to-never-give-up-or-stop-loving/)
 - [what to be thankful for on thanksgiving](https://allwomenstalk.com/8-things-to-be-thankful-for-this-thanksgiving/)
+- [is it bad to be brutally honest](https://lifestyle.allwomenstalk.com/times-its-okay-to-be-brutally-honest/)
+- [list of distractions in life](https://health.allwomenstalk.com/major-distractions-in-your-life/)
+- [dont judge a book by its cover netflix](https://movies.allwomenstalk.com/things-i-learned-from-mean-girls/)
+- [what treatments is emily getting pll](https://movies.allwomenstalk.com/life-lessons-from-pretty-little-liars/)
+- [hello dolly movie soundtrack](https://movies.allwomenstalk.com/things-i-learned-from-hello-dolly/)
 - [7 Daily Relationship Tips for Your Mom ...](https://lifestyle.allwomenstalk.com/daily-relationship-tips-for-your-mom/)
 - [10 Strange Ways to Get Married ...](https://allwomenstalk.com/10-strange-ways-to-get-married/)
 

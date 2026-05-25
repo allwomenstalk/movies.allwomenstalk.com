@@ -94,16 +94,16 @@ Romantic comedies are light, heartwarming, sweet, and surprisingly funny. Someti
 
 ## Related Posts
 
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
 - [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
+- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
+- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
 - [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
-- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
-- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 

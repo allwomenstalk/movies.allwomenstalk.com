@@ -54,16 +54,16 @@ These are super fun movies like The Kissing booth that you and your bestie will 
 
 ## Related Posts
 
-- [movies like the favourite](https://movies.allwomenstalk.com/movies-like-the-proposal/)
-- [modern movies like pride and prejudice](https://movies.allwomenstalk.com/movies-like-pride-and-prejudice/)
-- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
-- [movie like perks of being a wallflower](https://movies.allwomenstalk.com/movies-like-the-perks-of-being-a-wallflower/)
-- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
-- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
-- [movies like stronger](https://movies.allwomenstalk.com/movies-like-me-before-you/)
-- [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
-- [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
 - [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
+- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
+- [modern movies like pride and prejudice](https://movies.allwomenstalk.com/movies-like-pride-and-prejudice/)
+- [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
+- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
+- [movies like the favourite](https://movies.allwomenstalk.com/movies-like-the-proposal/)
+- [movies like stronger](https://movies.allwomenstalk.com/movies-like-me-before-you/)
+- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
+- [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
+- [movie like perks of being a wallflower](https://movies.allwomenstalk.com/movies-like-the-perks-of-being-a-wallflower/)
 - [8 Comedies to Watch with Your Boyfriend ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
 - [10 Classic High School Movies to Watch with Friend...](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
 

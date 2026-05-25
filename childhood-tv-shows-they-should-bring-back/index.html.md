@@ -42,16 +42,16 @@ These are my favorite TV must watch shows! Although, there are so many more show
 
 ## Related Posts
 
-- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
-- [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
+- [shows similar to dateline](https://lifestyle.allwomenstalk.com/best-true-crime-tv-shows/)
 - [taken miniseries streaming](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
-- [regular show acid trip episode](https://movies.allwomenstalk.com/kids-cartoons-that-adults-watch-too/)
-- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
+- [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
 - [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
+- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
 - [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
 - [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
-- [shows similar to dateline](https://lifestyle.allwomenstalk.com/best-true-crime-tv-shows/)
 - [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
+- [regular show acid trip episode](https://movies.allwomenstalk.com/kids-cartoons-that-adults-watch-too/)
+- [top 10 worst series finales](https://movies.allwomenstalk.com/worst-tv-series-finales-that-should-be-changed/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Old TV Shows Worth Watching Again ...](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 

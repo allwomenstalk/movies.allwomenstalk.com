@@ -74,16 +74,16 @@ This was a really hard article to write. Not for lack of ideas or because I didn
 
 ## Related Posts
 
-- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
-- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
-- [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
-- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
-- [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
-- [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
 - [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
 - [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
 - [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
+- [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
+- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
 - [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
+- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
+- [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
+- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [10 Fall TV Shows I Cant Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 

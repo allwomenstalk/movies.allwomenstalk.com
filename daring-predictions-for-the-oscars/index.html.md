@@ -54,16 +54,16 @@ What do you think? Like I said, this was a tricky, tricky business! Some of them
 
 ## Related Posts
 
-- [7 Best Dressed Celebrities of 2012 ...](https://celebs.allwomenstalk.com/best-dressed-celebrities-of-2012-2/)
+- [celebrities doing the splits](https://celebs.allwomenstalk.com/celebrities-rocking-thigh-high-splits-who-wore-it-best/)
+- [10 Award Season Red Carpet Trends ...](https://fashion.allwomenstalk.com/award-season-red-carpet-trends/)
+- [7 Great Celebrity Outfits from Comic Con 2013 ...](https://celebs.allwomenstalk.com/great-celebrity-outfits-from-comic-con/)
 - [10 2013 Oscar Winners ...](https://bilbr.com/oscar-winners/)
 - [7 Best Looking Actresses at the Golden Globes 2014...](https://celebs.allwomenstalk.com/best-looking-actresses-at-the-golden-globes/)
-- [9 More Best Dressed Celebs at the Golden Globes .....](https://celebs.allwomenstalk.com/more-best-dressed-celebs-at-the-golden-globes/)
-- [8 of the Best Celebrity Makeovers in 2012 ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-makeovers-in/)
-- [celebrities doing the splits](https://celebs.allwomenstalk.com/celebrities-rocking-thigh-high-splits-who-wore-it-best/)
-- [7 Great Celebrity Outfits from Comic Con 2013 ...](https://celebs.allwomenstalk.com/great-celebrity-outfits-from-comic-con/)
 - [9 Best Dressed Celebs at the SAG Awards ...](https://celebs.allwomenstalk.com/best-dressed-celebs-at-the-sag-awards/)
+- [8 of the Best Celebrity Makeovers in 2012 ...](https://celebs.allwomenstalk.com/of-the-best-celebrity-makeovers-in/)
 - [9 of the Best Dressed at the 2014 Grammys ...](https://fashion.allwomenstalk.com/of-the-best-dressed-at-the-grammys/)
-- [10 Award Season Red Carpet Trends ...](https://fashion.allwomenstalk.com/award-season-red-carpet-trends/)
+- [7 Best Dressed Celebrities of 2012 ...](https://celebs.allwomenstalk.com/best-dressed-celebrities-of-2012-2/)
+- [9 More Best Dressed Celebs at the Golden Globes .....](https://celebs.allwomenstalk.com/more-best-dressed-celebs-at-the-golden-globes/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 - [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
 

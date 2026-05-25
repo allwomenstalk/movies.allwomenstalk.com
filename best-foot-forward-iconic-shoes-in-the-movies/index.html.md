@@ -55,16 +55,16 @@ Over to you now my fashionistas! Which iconic shoes in the movies left an impres
 
 ## Related Posts
 
-- [green and purple heels](https://shoes.allwomenstalk.com/would-you-wear-purple-heels-choices-that-will-rock-your-world/)
-- [shoes every woman needs](https://shoes.allwomenstalk.com/stylish-shoes-every-woman-needs-for-spring/)
-- [stripe heel](https://fashion.allwomenstalk.com/jazz-up-your-wardrobe-with-these-pairs-of-striped-high-heels/)
-- [oxfords with dresses](https://shoes.allwomenstalk.com/what-would-you-wear-these-magnificent-pairs-of-oxfords-with/)
-- [womens turquoise sandals](https://shoes.allwomenstalk.com/of-the-best-looking-turquoise-shoes-in-the-world/)
 - [orange heels size 8](https://shoes.allwomenstalk.com/need-some-color-in-your-life-try-these-pairs-of-orange-heels/)
-- [types of heels](https://shoes.allwomenstalk.com/walk-the-walk-types-of-heels-every-woman-needs-to-own/)
-- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
+- [oxfords with dresses](https://shoes.allwomenstalk.com/what-would-you-wear-these-magnificent-pairs-of-oxfords-with/)
+- [stripe heel](https://fashion.allwomenstalk.com/jazz-up-your-wardrobe-with-these-pairs-of-striped-high-heels/)
+- [green and purple heels](https://shoes.allwomenstalk.com/would-you-wear-purple-heels-choices-that-will-rock-your-world/)
 - [pictures of the most expensive shoes in the world](https://shoes.allwomenstalk.com/well-heeled-some-of-the-most-expensive-shoes-in-the-world/)
+- [types of heels](https://shoes.allwomenstalk.com/walk-the-walk-types-of-heels-every-woman-needs-to-own/)
 - [yellow wedding shoes for bride](https://shoes.allwomenstalk.com/pairs-of-yellow-shoes-that-will-make-you-smile/)
+- [shoes every woman needs](https://shoes.allwomenstalk.com/stylish-shoes-every-woman-needs-for-spring/)
+- [prom shoes not heels](https://shoes.allwomenstalk.com/heels-to-wear-to-prom/)
+- [womens turquoise sandals](https://shoes.allwomenstalk.com/of-the-best-looking-turquoise-shoes-in-the-world/)
 - [7 Stylish Sneakers ...](https://shoes.allwomenstalk.com/7-stylish-sneakers/)
 - [7 Fab Shoes with Fringe ...](https://shoes.allwomenstalk.com/fab-shoes-with-fringe/)
 

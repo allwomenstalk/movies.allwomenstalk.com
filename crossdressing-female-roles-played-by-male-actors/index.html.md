@@ -43,15 +43,15 @@ These roles are all definitely female characters. There are also plenty of 'men 
 ## Related Posts
 
 - [independent woman movie](https://movies.allwomenstalk.com/movies-about-independent-women-thatll-inspire-you/)
-- [levina teerlinc artwork](https://lifestyle.allwomenstalk.com/women-artists-who-deserve-more-acclaim/)
 - [inspirational fictional characters](https://inspiration.allwomenstalk.com/fictional-female-characters-to-gain-inspiration-from/)
-- [emily ratajkowski israel](https://celebs.allwomenstalk.com/these-women-put-the-super-in-supermodel/)
-- [womens black denim dress](https://fashion.allwomenstalk.com/women-rocking-the-denim-dress/)
-- [feminist zines](https://lifestyle.allwomenstalk.com/feminst-zines-you-need-to-check-out/)
-- [movies about goddesses](https://lifestyle.allwomenstalk.com/badass-ancient-goddesses-tougher-than-angelina-jolies-movie-characters/)
+- [levina teerlinc artwork](https://lifestyle.allwomenstalk.com/women-artists-who-deserve-more-acclaim/)
 - [female singers 2014](https://music.allwomenstalk.com/the-most-streamed-female-artists-on-spotify-in/)
 - [take the money and run banksy](https://lifestyle.allwomenstalk.com/women-street-artists-who-give-banksy-a-run-for-his-money/)
+- [womens black denim dress](https://fashion.allwomenstalk.com/women-rocking-the-denim-dress/)
+- [feminist zines](https://lifestyle.allwomenstalk.com/feminst-zines-you-need-to-check-out/)
+- [emily ratajkowski israel](https://celebs.allwomenstalk.com/these-women-put-the-super-in-supermodel/)
 - [ashley buzzfeed](https://apps.allwomenstalk.com/funny-women-on-twitter-you-should-be-following/)
+- [movies about goddesses](https://lifestyle.allwomenstalk.com/badass-ancient-goddesses-tougher-than-angelina-jolies-movie-characters/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [8 Best Actresses in a Romantic Role ...](https://movies.allwomenstalk.com/8-best-actresses-in-a-romantic-role/)
 

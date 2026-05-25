@@ -15,15 +15,15 @@ It was safe to say this movie was going to crush it, right? Right. _Pitch Perfec
 ## Related Posts
 
 - [jennifer lawrence house](https://lifestyle.allwomenstalk.com/home-tour-inside-jennifer-lawrences-7-mil-beverly-hills-home/)
-- [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
+- [shake it and it will be better](https://music.allwomenstalk.com/11-year-old-dance-star-proves-she-can-shake-it-off-way-better-than-i-ever-could/)
 - [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
-- [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
-- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
-- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
 - [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
 - [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
+- [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
+- [pretty girls 11 year olds](https://beauty.allwomenstalk.com/this-9-year-old-model-is-being-called-the-most-beautiful-girl-in-the-world/)
+- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
+- [hey arnold characters in real life](https://movies.allwomenstalk.com/hey-arnold-characters-all-grown-up-who-had-the-biggest-transformation/)
 - [aniston cake](https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/)
-- [shake it and it will be better](https://music.allwomenstalk.com/11-year-old-dance-star-proves-she-can-shake-it-off-way-better-than-i-ever-could/)
 - [Breaking Dawn Will Officially Be in 2 Parts ...](https://twilight.allwomenstalk.com/breaking-dawn-will-officially-be-in-2-parts/)
 - [American Idol Men Rebound in Week 2 ...](https://allwomenstalk.com/american-idol-men-rebound-in-week-2/)
 

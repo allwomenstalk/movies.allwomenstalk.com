@@ -42,16 +42,16 @@ Well, there you have it! If you're a fan of Psych, then you know there are about
 
 ## Related Posts
 
-- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
-- [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
-- [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
-- [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
-- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
-- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
 - [amanda seyfried](https://celebs.allwomenstalk.com/awesome-reasons-to-love-amanda-seyfried/)
-- [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
-- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [teen wolf love](https://movies.allwomenstalk.com/reasons-why-you-should-give-teen-wolf-a-chance/)
+- [books like divergent with romance](https://books.allwomenstalk.com/wonderful-reasons-to-read-divergent/)
 - [neon hitch](https://music.allwomenstalk.com/awesome-reasons-to-love-neon-hitch/)
+- [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
+- [orange is the new black season 1 cast](https://movies.allwomenstalk.com/reasons-to-watch-orange-is-the-new-black/)
+- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [bastille itunes](https://music.allwomenstalk.com/amazing-reasons-to-love-bastille/)
+- [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
+- [watcharrow](https://movies.allwomenstalk.com/reasons-to-watch-arrow-and-love-it/)
 - [7 Reasons to Use Netflix ...](https://allwomenstalk.com/7-reasons-to-use-netflix/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 

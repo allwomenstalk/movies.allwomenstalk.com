@@ -55,16 +55,16 @@ Are you willing to tell us if your first time was anything like these virginal e
 
 ## Related Posts
 
-- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
-- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
-- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
+- [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
 - [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
 - [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
+- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
+- [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
+- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
+- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
 - [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
 - [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
-- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
-- [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
-- [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
+- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
 - [5 Reasons You May Not like the Twilight Movie ...](https://twilight.allwomenstalk.com/5-reasons-you-may-not-like-the-twilight-movie/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 

@@ -109,14 +109,14 @@ Every generation has its defining films; it’s what the public chooses to ident
 
 ## Related Posts
 
-- [9 Absolutely Awesome Film Noir Movies ...](https://movies.allwomenstalk.com/absolutely-awesome-film-noir-movies/)
-- [7 Classic Stephen King Movies You Should Watch ...](https://movies.allwomenstalk.com/classic-stephen-king-movies-you-should-watch/)
-- [9 Funny Shows You Need to Watch on Netflix Now ...](https://funny.allwomenstalk.com/funny-shows-you-need-to-watch-on-netflix-now/)
 - [movies based on shakespeare plots](https://movies.allwomenstalk.com/surprising-movies-based-on-shakespeares-plays/)
+- [9 Smart Movies to Help You Get Your Geek on ...](https://movies.allwomenstalk.com/smart-movies-to-help-you-get-your-geek-on/)
+- [9 Absolutely Awesome Film Noir Movies ...](https://movies.allwomenstalk.com/absolutely-awesome-film-noir-movies/)
+- [9 Funny Shows You Need to Watch on Netflix Now ...](https://funny.allwomenstalk.com/funny-shows-you-need-to-watch-on-netflix-now/)
+- [7 Classic Stephen King Movies You Should Watch ...](https://movies.allwomenstalk.com/classic-stephen-king-movies-you-should-watch/)
 - [7 Awesome Movies in Theatres to Check out This Mon...](https://movies.allwomenstalk.com/awesome-movies-in-theatres-to-check-out-this-month/)
 - [7 Best Cop Buddy Movies and TV Shows ...](https://7fun.net/best-cop-buddy-movies-and-tv-shows/)
 - [7 Reasons to Watch 1930s Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-1930s-movies/)
-- [9 Smart Movies to Help You Get Your Geek on ...](https://movies.allwomenstalk.com/smart-movies-to-help-you-get-your-geek-on/)
 - [7 Recent Book-to-Movie Adaptations You Dont Want t...](https://movies.allwomenstalk.com/recent-book-to-movie-adaptions-you-dont-want-to-miss/)
 - [7 Awesome Movies to Watch This Summer ...](https://movies.allwomenstalk.com/awesome-movies-to-watch-this-summer/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)

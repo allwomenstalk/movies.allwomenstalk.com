@@ -36,16 +36,16 @@ I hope you found at least one movie to watch this Halloween. Have fun!
 
 ## Related Posts
 
-- [horror muffins](https://food.allwomenstalk.com/halloween-cupcake-ideas/)
 - [recipes using leftover halloween candy](https://food.allwomenstalk.com/things-to-do-with-leftover-candy/)
-- [female celebrities costumes](https://lifestyle.allwomenstalk.com/halloween-costume-ideas-to-steal-from-celebrites/)
-- [top 10 halloween costumes](https://lifestyle.allwomenstalk.com/best-celebrity-halloween-costumes/)
-- [autumn movie night](https://food.allwomenstalk.com/practical-uses-for-leftover-halloween-candy/)
 - [why is halloween celebrated](https://lifestyle.allwomenstalk.com/couples-costumes-inspired-by-classic-halloween-movies/)
 - [dark hair female costumes](https://lifestyle.allwomenstalk.com/sexiest-halloween-costumes-for-women/)
-- [most popular halloween costume 2017](https://lifestyle.allwomenstalk.com/best-halloween-costumes-for-halloween/)
 - [halloween food tricks](https://food.allwomenstalk.com/spookily-easy-halloween-treats/)
 - [bender eye care](https://lifestyle.allwomenstalk.com/gender-bending-halloween-costume-ideas/)
+- [female celebrities costumes](https://lifestyle.allwomenstalk.com/halloween-costume-ideas-to-steal-from-celebrites/)
+- [most popular halloween costume 2017](https://lifestyle.allwomenstalk.com/best-halloween-costumes-for-halloween/)
+- [horror muffins](https://food.allwomenstalk.com/halloween-cupcake-ideas/)
+- [autumn movie night](https://food.allwomenstalk.com/practical-uses-for-leftover-halloween-candy/)
+- [top 10 halloween costumes](https://lifestyle.allwomenstalk.com/best-celebrity-halloween-costumes/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Werewolf Movies ...](https://twilight.allwomenstalk.com/5-werewolf-movies/)
 

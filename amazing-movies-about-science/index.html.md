@@ -42,15 +42,15 @@ Science isn't as dull as you might think, so check out these movies and some of 
 
 ## Related Posts
 
-- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
-- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
+- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
 - [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
 - [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
+- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
+- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
 - [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
 - [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
-- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
 - [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
+- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)

@@ -42,16 +42,16 @@ Those are some suggestions you might find useful for your next solo movie night 
 
 ## Related Posts
 
-- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
 - [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
+- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
+- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
 - [ferris buellers day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
 - [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
-- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
 - [movies to watch when youre in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
 - [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
-- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
-- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
-- [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [8 Great Movies to Watch with Your Mom ...](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
 

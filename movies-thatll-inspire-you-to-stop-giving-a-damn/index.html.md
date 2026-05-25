@@ -42,16 +42,16 @@ We care way too much about our appearances and the way others view us, even thou
 
 ## Related Posts
 
-- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
-- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
 - [This is Why Women Shouldnt Fall for the Latest It ...](https://beauty.allwomenstalk.com/why-you-shouldnt-fall-for-the-latest-beauty-miracle/)
+- [craving for success](https://inspiration.allwomenstalk.com/dont-let-these-things-stop-you-from-being-successful/)
+- [kelly rutherford and george clooney](https://celebs.allwomenstalk.com/lifesaving-lifestyle-tips-from-your-favorite-stars/)
+- [im here if you need to talk](https://lifestyle.allwomenstalk.com/friendly-phrases-thatll-make-you-more-likable/)
 - [hgtv female renovators](https://diy.allwomenstalk.com/watch-these-shows-before-renovating-your-home/)
+- [single girls drawing](https://lifestyle.allwomenstalk.com/things-you-dont-need-a-man-in-order-to-do/)
+- [why do i get so obsessed with guys](https://love.allwomenstalk.com/how-to-calm-down-your-obsession-with-boys/)
+- [fighting tips for girls](https://lifestyle.allwomenstalk.com/little-ways-to-feel-more-independent-right-now/)
 - [things to accomplish by 30](https://lifestyle.allwomenstalk.com/what-every-woman-should-accomplish-before-turning/)
 - [alka boost multivitamin](https://health.allwomenstalk.com/best-vitamins-and-supplements-for-young-women-and-teens/)
-- [im here if you need to talk](https://lifestyle.allwomenstalk.com/friendly-phrases-thatll-make-you-more-likable/)
-- [fighting tips for girls](https://lifestyle.allwomenstalk.com/little-ways-to-feel-more-independent-right-now/)
-- [kelly rutherford and george clooney](https://celebs.allwomenstalk.com/lifesaving-lifestyle-tips-from-your-favorite-stars/)
-- [why do i get so obsessed with guys](https://love.allwomenstalk.com/how-to-calm-down-your-obsession-with-boys/)
 - [10 Best Girl Power Movies ...](https://movies.allwomenstalk.com/best-girl-power-movies/)
 - [7 Wonderful Movies That Will Change Your Life ...](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
 

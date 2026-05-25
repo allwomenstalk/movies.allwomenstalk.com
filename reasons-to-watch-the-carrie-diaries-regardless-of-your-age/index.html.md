@@ -56,16 +56,16 @@ Do you watch The Carrie Diaries? What’s your favorite part about it? Let me kn
 
 ## Related Posts
 
-- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
-- [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
-- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [psych show](https://movies.allwomenstalk.com/reasons-you-should-be-binge-watching-psych/)
 - [is modern family a family show](https://movies.allwomenstalk.com/awesome-reasons-to-watch-modern-family/)
 - [how tall is blair waldorf](https://teen.allwomenstalk.com/reasons-why-a-little-part-of-all-of-us-wants-to-be-blair-waldorf/)
-- [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
+- [lorde love club](https://music.allwomenstalk.com/reasons-to-love-lorde-and-get-on-her-team/)
+- [two broke girls cast](https://movies.allwomenstalk.com/legitimately-funny-reasons-to-watch-2-broke-girls/)
+- [marshall erickson](https://movies.allwomenstalk.com/reasons-why-youd-want-marshall-eriksen-as-a-best-friend/)
 - [new girl nicks room](https://movies.allwomenstalk.com/reasons-nick-miller-would-make-the-perfect-best-friend/)
 - [why we should watch anime](https://movies.allwomenstalk.com/brilliant-reasons-to-watch-anime/)
 - [youve got mail 2](https://movies.allwomenstalk.com/reasons-youve-got-mail-should-be-your-favorite-movie/)
-- [psych show](https://movies.allwomenstalk.com/reasons-you-should-be-binge-watching-psych/)
+- [what film did leonardo dicaprio win an oscar for](https://celebs.allwomenstalk.com/reasons-why-leonardo-dicaprio-deserves-an-oscar/)
 - [7 Reasons to Watch Harry Potter Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-harry-potter-movies/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 

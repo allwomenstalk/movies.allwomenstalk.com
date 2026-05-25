@@ -42,16 +42,16 @@ The Oscars are the movie industry’s biggest and most sought after awards. Noth
 
 ## Related Posts
 
-- [things we did as kids](https://inspiration.allwomenstalk.com/you-loved-to-do-these-things-as-a-child-its-time-to-do-them-again/)
 - [quick sketch](https://diy.allwomenstalk.com/drawing-websites-to-visit-when-youre-bored/)
-- [fun indoor activities for couples](https://love.allwomenstalk.com/indoor-couples-activities-for-when-a-rainy-day-wont-go-away/)
-- [dress up days at disneyland](https://teen.allwomenstalk.com/disney-dress-up-days-you-need-to-attend-at-least-once/)
-- [what to do on a rainy beach day](https://travel.allwomenstalk.com/this-is-the-ultimate-activity-guide-for-a-rainy-day-at-the-beach/)
 - [uses for cheese](https://food.allwomenstalk.com/marvelous-things-to-do-with-cheese/)
-- [where to take a girl to hangout](https://lifestyle.allwomenstalk.com/unforgettable-hangout-ideas-thatll-get-the-girls-together/)
+- [what to do on a rainy beach day](https://travel.allwomenstalk.com/this-is-the-ultimate-activity-guide-for-a-rainy-day-at-the-beach/)
+- [things we did as kids](https://inspiration.allwomenstalk.com/you-loved-to-do-these-things-as-a-child-its-time-to-do-them-again/)
 - [best group game](https://lifestyle.allwomenstalk.com/house-party-games-for-a-wild-night-with-friends/)
+- [where to take a girl to hangout](https://lifestyle.allwomenstalk.com/unforgettable-hangout-ideas-thatll-get-the-girls-together/)
 - [how celebrate your birthday](https://lifestyle.allwomenstalk.com/ways-to-celebrate-your-birthday-2/)
 - [fun st patricks day activities](https://parenting.allwomenstalk.com/fun-st-patricks-day-activities-to-do-with-your-kids/)
+- [dress up days at disneyland](https://teen.allwomenstalk.com/disney-dress-up-days-you-need-to-attend-at-least-once/)
+- [fun indoor activities for couples](https://love.allwomenstalk.com/indoor-couples-activities-for-when-a-rainy-day-wont-go-away/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [7 Best Oscar Acceptance Speeches ...](https://allwomenstalk.com/best-oscar-acceptance-speeches/)
 

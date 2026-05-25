@@ -61,16 +61,16 @@ This is just a small selection of outdoor cinemas in fantastic locations. I have
 
 ## Related Posts
 
-- [how many calories burned bouldering](https://fitness.allwomenstalk.com/fun-summer-activities-to-burn-the-most-calories-for-girls-working-on-fitness/)
 - [easy meals for hot days](https://food.allwomenstalk.com/light-summer-dinner-recipes-for-those-hot-days-you-dont-want-to-cook/)
-- [summer catch television show](https://movies.allwomenstalk.com/awesome-tv-shows-to-catch-on-netflix-this-summer/)
-- [summer tech gadgets](https://travel.allwomenstalk.com/the-ultimate-list-of-beach-gadgets-to-survive-summer-by-the-water/)
-- [sunday brunch koh samui](https://food.allwomenstalk.com/best-places-to-eat-in-koh-samui-for-people-traveling-to-thailand-this-summer/)
 - [how to say food in asl](https://food.allwomenstalk.com/delicious-sorbets-to-keep-you-cool-all-summer-long/)
-- [summer heat download apk](https://beauty.allwomenstalk.com/essential-beauty-items-to-make-you-look-beautiful-in-the-summer-heat/)
 - [summer bucket list with boyfriend](https://lifestyle.allwomenstalk.com/summer-bucket-list-ideas-to-nail-before-school-starts-again/)
-- [things to do with your bestie in summer](https://lifestyle.allwomenstalk.com/fun-summer-adventures-to-do-with-your-bestie/)
 - [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
+- [summer catch television show](https://movies.allwomenstalk.com/awesome-tv-shows-to-catch-on-netflix-this-summer/)
+- [sunday brunch koh samui](https://food.allwomenstalk.com/best-places-to-eat-in-koh-samui-for-people-traveling-to-thailand-this-summer/)
+- [summer heat download apk](https://beauty.allwomenstalk.com/essential-beauty-items-to-make-you-look-beautiful-in-the-summer-heat/)
+- [things to do with your bestie in summer](https://lifestyle.allwomenstalk.com/fun-summer-adventures-to-do-with-your-bestie/)
+- [summer tech gadgets](https://travel.allwomenstalk.com/the-ultimate-list-of-beach-gadgets-to-survive-summer-by-the-water/)
+- [how many calories burned bouldering](https://fitness.allwomenstalk.com/fun-summer-activities-to-burn-the-most-calories-for-girls-working-on-fitness/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 - [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
 

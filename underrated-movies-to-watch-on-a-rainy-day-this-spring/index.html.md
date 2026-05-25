@@ -42,16 +42,16 @@ There you have it! Seven totally underrated movies to enjoy on a rainy day. Whic
 
 ## Related Posts
 
-- [19 Must Watch Cult Classics ...](https://movies.allwomenstalk.com/must-watch-cult-classics/)
 - [7 Best Cop Buddy Movies and TV Shows ...](https://7fun.net/best-cop-buddy-movies-and-tv-shows/)
 - [9 Absolutely Awesome Film Noir Movies ...](https://movies.allwomenstalk.com/absolutely-awesome-film-noir-movies/)
-- [9 Funny Shows You Need to Watch on Netflix Now ...](https://funny.allwomenstalk.com/funny-shows-you-need-to-watch-on-netflix-now/)
+- [19 Must Watch Cult Classics ...](https://movies.allwomenstalk.com/must-watch-cult-classics/)
 - [7 Reasons to Watch 1930s Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-1930s-movies/)
 - [9 Smart Movies to Help You Get Your Geek on ...](https://movies.allwomenstalk.com/smart-movies-to-help-you-get-your-geek-on/)
-- [7 Awesome Movies to Watch This Summer ...](https://movies.allwomenstalk.com/awesome-movies-to-watch-this-summer/)
-- [7 Classic Stephen King Movies You Should Watch ...](https://movies.allwomenstalk.com/classic-stephen-king-movies-you-should-watch/)
 - [7 Recent Book-to-Movie Adaptations You Dont Want t...](https://movies.allwomenstalk.com/recent-book-to-movie-adaptions-you-dont-want-to-miss/)
 - [7 Awesome Movies in Theatres to Check out This Mon...](https://movies.allwomenstalk.com/awesome-movies-in-theatres-to-check-out-this-month/)
+- [7 Awesome Movies to Watch This Summer ...](https://movies.allwomenstalk.com/awesome-movies-to-watch-this-summer/)
+- [9 Funny Shows You Need to Watch on Netflix Now ...](https://funny.allwomenstalk.com/funny-shows-you-need-to-watch-on-netflix-now/)
+- [7 Classic Stephen King Movies You Should Watch ...](https://movies.allwomenstalk.com/classic-stephen-king-movies-you-should-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

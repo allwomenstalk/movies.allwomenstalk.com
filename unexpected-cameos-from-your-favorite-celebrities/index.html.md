@@ -82,16 +82,16 @@ Share some of your favorite celebrity cameos!
 
 ## Related Posts
 
-- [Lets Stop Bashing and Recognise the Things the Kar...](https://celebs.allwomenstalk.com/lets-stop-bashing-and-recognise-the-things-the-kardashian-jenner-clan-have-achieved/)
-- [Actor Re-Creates Other Celebs Looks is Generally H...](https://celebs.allwomenstalk.com/actor-re-creates-other-celebs-looks-is-generally-hilarious/)
-- [Why Are There No Huge Celebrities Anymore](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
-- [These Are the Amazing People Who Got Presidential ...](https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/)
 - [10 LGBTQ Icons Everyone Should Be Aware of ...](https://celebs.allwomenstalk.com/lgbt-icons-everyone-should-be-aware-of/)
-- [Best Celeb Couples of All Time Are ...](https://celebs.allwomenstalk.com/best-celeb-couples-of-all-time-are/)
-- [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
 - [You Will Not Believe Which Celebs Turn out to Be O...](https://celebs.allwomenstalk.com/you-will-not-believe-which-celebs-turn-out-to-be-olympians/)
-- [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
+- [Lets Stop Bashing and Recognise the Things the Kar...](https://celebs.allwomenstalk.com/lets-stop-bashing-and-recognise-the-things-the-kardashian-jenner-clan-have-achieved/)
 - [7 Hottest Hunks on the US Olympic Team  ...](https://celebs.allwomenstalk.com/hottest-athletes-on-the-us-winter-olympics-team/)
+- [These Are the Amazing People Who Got Presidential ...](https://celebs.allwomenstalk.com/these-are-the-amazing-people-who-got-presidential-medal-of-freedom-this-year/)
+- [Actor Re-Creates Other Celebs Looks is Generally H...](https://celebs.allwomenstalk.com/actor-re-creates-other-celebs-looks-is-generally-hilarious/)
+- [celebs who have cheated](https://celebs.allwomenstalk.com/celebs-who-have-cheated/)
+- [Best Celeb Couples of All Time Are ...](https://celebs.allwomenstalk.com/best-celeb-couples-of-all-time-are/)
+- [Why Are There No Huge Celebrities Anymore](https://celebs.allwomenstalk.com/why-are-there-no-huge-celebrities-anymore/)
+- [My Friends with Benefits Experience Part 1: the Ac...](https://love.allwomenstalk.com/friends-with-benefits-experience/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Bits of Spring Celebrity Gossip ...](https://allwomenstalk.com/7-bits-of-spring-celebrity-gossip/)
 

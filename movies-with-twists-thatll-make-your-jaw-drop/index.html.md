@@ -42,16 +42,16 @@ You might feel cocky when you correctly guess the ending of a film. However, mov
 
 ## Related Posts
 
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
-- [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
-- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
-- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
-- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
+- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
 - [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
 - [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
-- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
-- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
+- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
+- [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
+- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
 - [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
+- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
+- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
 - [8 Gripping Legal Movies ...](https://movies.allwomenstalk.com/gripping-legal-movies/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 

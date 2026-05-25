@@ -42,15 +42,15 @@ Well, there you have it. These are just seven out of many life lessons taught by
 
 ## Related Posts
 
-- [gente en disney](https://travel.allwomenstalk.com/types-of-people-you-meet-in-disneyland/)
-- [10 lies they tell you in high school](https://teen.allwomenstalk.com/lies-you-were-told-in-high-school/)
 - [3 interesting facts about rudyard kipling](https://inspiration.allwomenstalk.com/life-lessons-from-rudyard-kipling/)
-- [habits people have](https://lifestyle.allwomenstalk.com/habits-that-most-people-have/)
+- [gente en disney](https://travel.allwomenstalk.com/types-of-people-you-meet-in-disneyland/)
+- [hansel and gretal moral](https://inspiration.allwomenstalk.com/life-lessons-from-hansel-and-gretel/)
+- [10 lies they tell you in high school](https://teen.allwomenstalk.com/lies-you-were-told-in-high-school/)
 - [what is the lesson of the giving tree](https://books.allwomenstalk.com/lessons-from-shel-silversteins-the-giving-tree/)
-- [gordon ramsay meal kits](https://food.allwomenstalk.com/things-to-learn-from-gordon-ramsay/)
+- [habits people have](https://lifestyle.allwomenstalk.com/habits-that-most-people-have/)
 - [monti say yes to the dress](https://wedding.allwomenstalk.com/helpful-things-you-can-learn-from-watching-say-yes-to-the-dress/)
 - [growing up with you was fun](https://lifestyle.allwomenstalk.com/awesome-things-about-growing-up/)
-- [hansel and gretal moral](https://inspiration.allwomenstalk.com/life-lessons-from-hansel-and-gretel/)
+- [gordon ramsay meal kits](https://food.allwomenstalk.com/things-to-learn-from-gordon-ramsay/)
 - [no impact project](https://books.allwomenstalk.com/lessons-you-can-learn-from-the-no-impact-man/)
 - [8 Things Ive Learned from Greys Anatomy ...](https://movies.allwomenstalk.com/things-ive-learned-from-greys-anatomy/)
 - [5 Important Life Lessons to Think about...](https://allwomenstalk.com/5-important-life-lessons-to-think-about/)

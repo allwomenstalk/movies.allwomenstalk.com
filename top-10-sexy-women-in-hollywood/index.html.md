@@ -56,16 +56,16 @@ Top image source: [vipglamour.net](https://goo.gl/whC0oh)
 
 ## Related Posts
 
-- [leading ladies list](https://movies.allwomenstalk.com/stunning-leading-ladies/)
-- [romance movies with blonde actress](https://movies.allwomenstalk.com/8-best-actresses-in-a-romantic-role/)
-- [well known black actresses](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
-- [lady bond](https://movies.allwomenstalk.com/female-bond-villains/)
 - [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
-- [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
+- [lady bond](https://movies.allwomenstalk.com/female-bond-villains/)
 - [most beautiful royal princess](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
-- [7 Most Popular Girls Names and What They Mean ...](https://parenting.allwomenstalk.com/7-most-popular-girls-names-and-what-they-mean/)
-- [female villain movies](https://movies.allwomenstalk.com/female-movie-villians/)
+- [romance movies with blonde actress](https://movies.allwomenstalk.com/8-best-actresses-in-a-romantic-role/)
+- [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
 - [classic actresses](https://celebs.allwomenstalk.com/8-of-my-favorite-classic-actresses/)
+- [leading ladies list](https://movies.allwomenstalk.com/stunning-leading-ladies/)
+- [female villain movies](https://movies.allwomenstalk.com/female-movie-villians/)
+- [7 Most Popular Girls Names and What They Mean ...](https://parenting.allwomenstalk.com/7-most-popular-girls-names-and-what-they-mean/)
+- [well known black actresses](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [8 Sexiest Movie Characters ...](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 
