@@ -3,7 +3,7 @@ title: "Strong Female Role Models in the Disney Movies ..."
 description: "Nala (the Lion King); Kanga (the Many Adventures of Winnie the Pooh); Wendy (Peter Pan); Mrs. Potts (Beauty & the Beast); Megara (Hercules); More ..."
 url: "https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Strong Female Role Models in the Disney Movies ...
@@ -86,16 +86,16 @@ Who is your favorite non-princess/lead character female role model in the Disney
 
 ## Related Posts
 
-- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
-- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
-- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
 - [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
-- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
-- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
-- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
-- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
 - [body goals for ladies](https://inspiration.allwomenstalk.com/goals-every-woman-should-set-for-herself/)
+- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
+- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
+- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
+- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
+- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
+- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
 - [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
+- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

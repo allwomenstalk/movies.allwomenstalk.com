@@ -3,7 +3,7 @@ title: "10 Awesome Movies That Are Coming to & Leaving Netflix in January ..."
 description: "101 Dalmatians; Mean Girls; Cast Away; Shall We Dance?; Bad Boys 2; More ..."
 url: "https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 10 Awesome Movies That Are Coming to & Leaving Netflix in January ...
@@ -84,16 +84,16 @@ Which movies are you happy to see as new additions to Netflix? Which movies are 
 
 ## Related Posts
 
-- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
 - [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
+- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
 - [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
 - [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 

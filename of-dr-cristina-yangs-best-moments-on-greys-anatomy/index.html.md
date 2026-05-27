@@ -3,7 +3,7 @@ title: "9 of Dr. Cristina Yangs Best Moments on Greys Anatomy ..."
 description: "You're My Person; Dancing It out; The Runaway Groom; The Vigil; Venting in the Vent; More ..."
 url: "https://movies.allwomenstalk.com/of-dr-cristina-yangs-best-moments-on-greys-anatomy/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 of Dr. Cristina Yangs Best Moments on Greys Anatomy ...
@@ -50,16 +50,16 @@ Cristina has always been a standout on the show, and I'll miss seeing her every 
 
 ## Related Posts
 
-- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
-- [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
-- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
-- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
-- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
-- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
-- [manuel bonaduce](https://celebs.allwomenstalk.com/matt-bomer-set-to-guest-star-on-ahs/)
 - [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
+- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
+- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
+- [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
 - [vanessa hudgens heels](https://fashion.allwomenstalk.com/best-vanessa-hudgens-looks/)
+- [manuel bonaduce](https://celebs.allwomenstalk.com/matt-bomer-set-to-guest-star-on-ahs/)
 - [parks and recreation bloopers season 3](https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/)
+- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
+- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
+- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [9 Memorable TV Theme Songs ...](https://lifestyle.allwomenstalk.com/memorable-tv-theme-songs/)
 

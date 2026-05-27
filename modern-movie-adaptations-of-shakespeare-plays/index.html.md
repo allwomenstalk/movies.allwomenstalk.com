@@ -3,7 +3,7 @@ title: "17 Modern Movie Adaptations of Shakespeare Plays ..."
 description: "Romeo + Juliet; 10 Things I Hate about You; She's the Man; My Own Private Idaho; Shakespeare in Love; More ..."
 url: "https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 17 Modern Movie Adaptations of Shakespeare Plays ...
@@ -80,15 +80,15 @@ I never really "got" Shakespeare til I saw this movie. It's so, so good!
 
 ## Related Posts
 
-- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
-- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
-- [its true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
-- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
-- [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
 - [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
+- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
+- [its true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
+- [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
+- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
+- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
 - [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
 - [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
-- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
 - [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)

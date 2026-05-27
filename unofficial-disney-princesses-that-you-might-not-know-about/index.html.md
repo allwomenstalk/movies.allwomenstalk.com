@@ -3,7 +3,7 @@ title: "7 Unofficial Disney Princesses That You Might Not Know about ..."
 description: "Princess Eilonwy from \"the Black Cauldron\"; Kida from \"Atlantis: the Lost Empire\"; Tiger Lily from \"Peter Pan\"; Ariel's Daughter and Sisters; Mei, Ting-Ting, and Su from \"Mulan II\"; More ..."
 url: "https://movies.allwomenstalk.com/unofficial-disney-princesses-that-you-might-not-know-about/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Unofficial Disney Princesses That You Might Not Know about ...
@@ -56,16 +56,16 @@ Some of these princesses might not get as much screen time as the likes of Tiana
 
 ## Related Posts
 
-- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
-- [is geena davis nice](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
-- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
-- [most fashionable women](https://celebs.allwomenstalk.com/most-stylish-women-to-emulate/)
-- [when is the vmas 2023](https://music.allwomenstalk.com/fabulous-female-singers-who-have-won-a-grammy/)
-- [the wild swans movie 1994](https://movies.allwomenstalk.com/fairytale-princesses-who-dont-have-disney-movies/)
-- [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
-- [be the woman you would look up to](https://inspiration.allwomenstalk.com/powerful-women-to-look-up-to/)
-- [red dress blair waldorf](https://movies.allwomenstalk.com/kick-ass-female-characters-that-are-truly-inspiring/)
 - [angelinia jolie](https://celebs.allwomenstalk.com/iconic-actresses-we-love-to-watch-on-the-big-screen/)
+- [on wednesdays we wear pink date](https://teen.allwomenstalk.com/mean-girls-references-you-need-to-be-aware-of-for-any-conversation/)
+- [the wild swans movie 1994](https://movies.allwomenstalk.com/fairytale-princesses-who-dont-have-disney-movies/)
+- [is geena davis nice](https://celebs.allwomenstalk.com/actresses-that-speak-their-minds/)
+- [red dress blair waldorf](https://movies.allwomenstalk.com/kick-ass-female-characters-that-are-truly-inspiring/)
+- [50s models](https://celebs.allwomenstalk.com/most-beautiful-and-inspiring-over-50s-models/)
+- [most fashionable women](https://celebs.allwomenstalk.com/most-stylish-women-to-emulate/)
+- [most beautiful actresses under 25](https://celebs.allwomenstalk.com/wonderful-actresses-under-25-to-look-up-to/)
+- [when is the vmas 2023](https://music.allwomenstalk.com/fabulous-female-singers-who-have-won-a-grammy/)
+- [be the woman you would look up to](https://inspiration.allwomenstalk.com/powerful-women-to-look-up-to/)
 - [10 Famous Princesses Throughout History ...](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 

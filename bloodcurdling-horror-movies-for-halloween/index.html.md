@@ -3,7 +3,7 @@ title: "5 Blood Curdling Horror Movies for Halloween ..."
 description: "\"Happy Death Day\" (2017); \"the Houses October Built\" (2014); \"City of the Living Dead\" (1980); \"Devil Times Five\" (1974); \"Dracula: Prince of Darkness\" (1966); More ..."
 url: "https://movies.allwomenstalk.com/bloodcurdling-horror-movies-for-halloween/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Blood Curdling Horror Movies for Halloween ...
@@ -37,14 +37,14 @@ I hope you found at least one movie to watch this Halloween. Have fun!
 ## Related Posts
 
 - [recipes using leftover halloween candy](https://food.allwomenstalk.com/things-to-do-with-leftover-candy/)
-- [why is halloween celebrated](https://lifestyle.allwomenstalk.com/couples-costumes-inspired-by-classic-halloween-movies/)
+- [horror muffins](https://food.allwomenstalk.com/halloween-cupcake-ideas/)
 - [dark hair female costumes](https://lifestyle.allwomenstalk.com/sexiest-halloween-costumes-for-women/)
 - [halloween food tricks](https://food.allwomenstalk.com/spookily-easy-halloween-treats/)
-- [bender eye care](https://lifestyle.allwomenstalk.com/gender-bending-halloween-costume-ideas/)
-- [female celebrities costumes](https://lifestyle.allwomenstalk.com/halloween-costume-ideas-to-steal-from-celebrites/)
 - [most popular halloween costume 2017](https://lifestyle.allwomenstalk.com/best-halloween-costumes-for-halloween/)
-- [horror muffins](https://food.allwomenstalk.com/halloween-cupcake-ideas/)
 - [autumn movie night](https://food.allwomenstalk.com/practical-uses-for-leftover-halloween-candy/)
+- [female celebrities costumes](https://lifestyle.allwomenstalk.com/halloween-costume-ideas-to-steal-from-celebrites/)
+- [why is halloween celebrated](https://lifestyle.allwomenstalk.com/couples-costumes-inspired-by-classic-halloween-movies/)
+- [bender eye care](https://lifestyle.allwomenstalk.com/gender-bending-halloween-costume-ideas/)
 - [top 10 halloween costumes](https://lifestyle.allwomenstalk.com/best-celebrity-halloween-costumes/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Werewolf Movies ...](https://twilight.allwomenstalk.com/5-werewolf-movies/)

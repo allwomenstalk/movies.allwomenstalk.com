@@ -3,7 +3,7 @@ title: "7 Best Biographical Movies about the Fabulous and Famous ..."
 description: "My Week with Marilyn; Burton and Taylor; Worried about the Boy; Life with Judy Garland: Me and My Shadows; Walk the Line; More ..."
 url: "https://movies.allwomenstalk.com/best-biographical-movies-about-the-fabulous-and-famous/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Best Biographical Movies about the Fabulous and Famous ...
@@ -42,16 +42,16 @@ Biographical movies are something of a history lesson and I love to watch someth
 
 ## Related Posts
 
-- [movies that jennifer lawrence played in](https://movies.allwomenstalk.com/interesting-movies-featuring-jennifer-lawrence/)
 - [best anti heroes in movies](https://movies.allwomenstalk.com/electrifying-vigilante-movies-and-their-marvelous-anti-heroes/)
-- [julia roberts hot movies](https://movies.allwomenstalk.com/fabulous-julia-roberts-movies/)
-- [jean reno medieval movie](https://movies.allwomenstalk.com/of-my-favorite-movies-starring-jean-reno/)
 - [scary movie window scene](https://movies.allwomenstalk.com/creepiest-windows-in-film-that-will-scare-the-daylights-out-of-you/)
-- [billy madiso](https://movies.allwomenstalk.com/movies-to-get-you-in-the-back-to-school-mood/)
-- [to live movie](https://movies.allwomenstalk.com/best-movie-worlds-youd-like-to-live-in/)
-- [lifetime movies about cheerleaders](https://movies.allwomenstalk.com/classic-lifetime-movies-that-every-girl-should-see-at-least-once-in-her-life/)
-- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
 - [what movie is the scariest movie of all time](https://movies.allwomenstalk.com/super-scary-movies-for-a-scare-your-pants-off-marathon/)
+- [lifetime movies about cheerleaders](https://movies.allwomenstalk.com/classic-lifetime-movies-that-every-girl-should-see-at-least-once-in-her-life/)
+- [movies that jennifer lawrence played in](https://movies.allwomenstalk.com/interesting-movies-featuring-jennifer-lawrence/)
+- [to live movie](https://movies.allwomenstalk.com/best-movie-worlds-youd-like-to-live-in/)
+- [julia roberts hot movies](https://movies.allwomenstalk.com/fabulous-julia-roberts-movies/)
+- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
+- [billy madiso](https://movies.allwomenstalk.com/movies-to-get-you-in-the-back-to-school-mood/)
+- [jean reno medieval movie](https://movies.allwomenstalk.com/of-my-favorite-movies-starring-jean-reno/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 

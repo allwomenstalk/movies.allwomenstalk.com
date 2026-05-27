@@ -3,7 +3,7 @@ title: "7 Fun Facts about Mulan That I Find Interesting ..."
 description: "Hua Mulan; American Gothic; Cameo; Casulties; Lea Salonga; More ..."
 url: "https://movies.allwomenstalk.com/fun-facts-about-mulan-that-i-find-interesting/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Fun Facts about Mulan That I Find Interesting ...
@@ -44,14 +44,14 @@ I hope you learned a new fun fact or two about Disney’s “Mulan.” Who is yo
 
 - [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
+- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
 - [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
 - [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
-- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
-- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
 - [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
 - [disney prince and princess](https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/)
 - [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
+- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [7 Adorable Disney Characters ...](https://movies.allwomenstalk.com/adorable-disney-characters/)
 

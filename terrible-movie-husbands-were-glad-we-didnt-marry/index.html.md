@@ -3,7 +3,7 @@ title: "9 Terrible Movie Husbands Were Glad We Didnt Marry ..."
 description: "Flap Horton, Terms of Endearment; Mister (Albert) – the Color Purple; Carlo Rizzi – the Godfather; Jerry Lundegard – Fargo; Ike Turner – What’s Love Got to do with It; More ..."
 url: "https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Terrible Movie Husbands Were Glad We Didnt Marry ...
@@ -73,16 +73,16 @@ Which terrible husbands from the movies make you want to punch the screen?
 
 ## Related Posts
 
-- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
 - [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
-- [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
-- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
 - [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
+- [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
 - [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
 - [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
-- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
+- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
+- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
+- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

@@ -3,7 +3,7 @@ title: "7 Rappers Turned Actors ..."
 description: "Will Smith; Marky Mark; Ice-T; LL Cool J; Queen Latifah; More ..."
 url: "https://movies.allwomenstalk.com/rappers-turned-actors/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Rappers Turned Actors ...
@@ -42,15 +42,15 @@ I forgot that a lot of these people were rappers before they were actors! I’m 
 
 ## Related Posts
 
-- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
-- [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
-- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
-- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
 - [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
-- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
+- [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
+- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [amandla stenberg as a kid](https://movies.allwomenstalk.com/up-and-coming-actresses-to-look-out-for/)
+- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [adan canto vampire diaries](https://celebs.allwomenstalk.com/hunky-new-actors-were-beginning-to-see-more-of/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
 - [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)

@@ -3,7 +3,7 @@ title: "10 Movies Turning 20 in 2018 to Make You Feel Old ..."
 description: "A Bug’s Life; Armageddon; Mulan; Rush Hour; Saving Private Ryan; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-are-20-years-old-in-2018/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 10 Movies Turning 20 in 2018 to Make You Feel Old ...
@@ -55,15 +55,15 @@ So many other movies could have been mentioned in this list but these ten get th
 ## Related Posts
 
 - [Movies to Look Forward  to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
-- [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
-- [Top 10 Rom Coms Everyone Needs to See ...](https://7fun.net/romcoms-everyone-should-see/)
-- [New Movies to Watch in March 2018 ...](https://movies.allwomenstalk.com/new-movies-to-watch-in-march/)
-- [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
-- [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
-- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
 - [Movies to Look Forward  to in 2018 Part II ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/)
-- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
+- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
+- [New Movies to Watch in March 2018 ...](https://movies.allwomenstalk.com/new-movies-to-watch-in-march/)
+- [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
 - [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
+- [Top 10 Rom Coms Everyone Needs to See ...](https://7fun.net/romcoms-everyone-should-see/)
+- [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
+- [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
+- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 - [8 Great 80s Movies ...](https://allwomenstalk.com/8-great-80s-movies/)
 

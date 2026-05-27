@@ -3,7 +3,7 @@ title: "8 Incredible Tim Burton Movies ..."
 description: "Batman; Pee-Wee's Big Adventure; Ed Wood; Charlie and the Chocolate Factory; Alice in Wonderland; More ..."
 url: "https://movies.allwomenstalk.com/incredible-tim-burton-movies/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Incredible Tim Burton Movies ...
@@ -48,15 +48,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/14255124)
 
 ## Related Posts
 
-- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
-- [ab negative movie](https://allwomenstalk.com/my-life-as-a-b-movie-2/)
 - [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
-- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 - [When I Fall in Love with a Film](https://allwomenstalk.com/when-i-fall-in-love-with-a-film/)
-- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
-- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
-- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
+- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
 - [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
+- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
+- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [ab negative movie](https://allwomenstalk.com/my-life-as-a-b-movie-2/)
+- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
 - [Premiere of Night at the Museum ...](https://allwomenstalk.com/premiere-of-night-at-the-museum/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)

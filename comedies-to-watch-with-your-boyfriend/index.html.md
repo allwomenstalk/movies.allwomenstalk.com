@@ -3,7 +3,7 @@ title: "8 Comedies to Watch with Your Boyfriend ..."
 description: "Wedding Crashers; The 40 Year Old Virgin; Animal House; Young Frankenstein; Grosse Point Blank; More ..."
 url: "https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Comedies to Watch with Your Boyfriend ...
@@ -46,16 +46,16 @@ So why not grab some DVDs, and have a movie night together? This selection of co
 
 ## Related Posts
 
-- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
-- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
-- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
-- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
-- [When I Fall in Love with a Film](https://allwomenstalk.com/when-i-fall-in-love-with-a-film/)
-- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
-- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
 - [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
+- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
+- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
+- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
+- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
 - [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
+- [When I Fall in Love with a Film](https://allwomenstalk.com/when-i-fall-in-love-with-a-film/)
+- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
 - [8 Classic Romantic Comedies ...](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 - [8 Comedies to Watch with Your Girlfriends ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
 

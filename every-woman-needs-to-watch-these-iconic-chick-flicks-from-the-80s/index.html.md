@@ -3,7 +3,7 @@ title: "Every Woman Needs to Watch These Iconic Chick Flicks from the 80s ..."
 description: "“Footloose”; “Top Gun”; “Dirty Dancing”; “Mannequin”; “Three Men and a Baby”; More ..."
 url: "https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Every Woman Needs to Watch These Iconic Chick Flicks from the 80s ...
@@ -42,16 +42,16 @@ These are 7 iconic chick flicks from the ‘80s that’re great watches. What cl
 
 ## Related Posts
 
-- [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
-- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
-- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
-- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
 - [women directors in hollywood](https://movies.allwomenstalk.com/film-focus-women-directors-in-hollywood/)
-- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
-- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
-- [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
 - [list of role models](https://teen.allwomenstalk.com/these-are-the-women-who-should-be-your-role-models/)
+- [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
+- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
+- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
 - [disney movies with strong female leads](https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/)
+- [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
+- [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
+- [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
+- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
 - [8 Fabulous Celebrities Its Okay to Have a Girl Cru...](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
 - [Iconic Swimsuit Moments in the Movies Every Beach ...](https://movies.allwomenstalk.com/iconic-swimsuit-moments-in-the-movies-every-beach-diva-must-see/)
 

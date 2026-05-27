@@ -3,7 +3,7 @@ title: "11 90s Movies You Must Watch before You Die ..."
 description: "Ghost (1990); Bill and Ted's Bogus Journey (1991); Flatliners; My Girl (1991); Groundhog Day (1993); More ..."
 url: "https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 11 90s Movies You Must Watch before You Die ...
@@ -58,16 +58,16 @@ So there you have it, 11 movies from the 90s that everyone should see before the
 
 ## Related Posts
 
-- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
-- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
-- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
-- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
 - [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
+- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
+- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
+- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 

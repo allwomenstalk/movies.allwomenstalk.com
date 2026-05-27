@@ -3,7 +3,7 @@ title: "7 Indie Movies on Netflix You Need to Watch Now ..."
 description: "Like Crazy; Blue Valentine; Ira and Abby; 28 Hotel Rooms; The Giant Mechanical Man; More ..."
 url: "https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Indie Movies on Netflix You Need to Watch Now ...
@@ -43,15 +43,15 @@ What’s your favorite Indie movie on Netflix? What should I watch next? Let me 
 ## Related Posts
 
 - [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
 - [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
+- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
+- [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

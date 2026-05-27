@@ -3,7 +3,7 @@ title: "7 Reasons You Should Be Watching Scandal ..."
 description: "A Strong Female Lead; The Scandal; Political Intrigue; A Human President; Progressive Casting; More ..."
 url: "https://movies.allwomenstalk.com/reasons-you-should-be-watching-scandal/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Reasons You Should Be Watching Scandal ...
@@ -42,16 +42,16 @@ I could probably come up with a dozen more reasons to watch Scandal, but these w
 
 ## Related Posts
 
-- [10 reasons why you are amazing](https://health.allwomenstalk.com/reasons-why-you-are-amazing/)
-- [lauren conrad website](https://celebs.allwomenstalk.com/reasons-to-love-lauren-conrad/)
-- [how to watch buffy the vampire slayer](https://movies.allwomenstalk.com/reasons-to-watch-buffy-the-vampire-slayer/)
-- [skin changer in the hobbit actor](https://movies.allwomenstalk.com/reasons-the-hobbit-movie-will-be-awesome/)
-- [do you like to use technology](https://lifestyle.allwomenstalk.com/reasons-to-love-technology/)
 - [not believe in love](https://love.allwomenstalk.com/romantic-reasons-to-still-believe-in-true-love/)
 - [wish i was](https://lifestyle.allwomenstalk.com/reasons-why-i-wish-i-was-british/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/reasons-to-love-zumba/)
+- [skin changer in the hobbit actor](https://movies.allwomenstalk.com/reasons-the-hobbit-movie-will-be-awesome/)
+- [10 reasons why you are amazing](https://health.allwomenstalk.com/reasons-why-you-are-amazing/)
+- [lauren conrad website](https://celebs.allwomenstalk.com/reasons-to-love-lauren-conrad/)
 - [soap movies meaning](https://movies.allwomenstalk.com/reasons-soap-operas-are-so-addicting/)
 - [why should i read harry potter](https://lifestyle.allwomenstalk.com/reasons-why-you-should-re-read-harry-potter/)
+- [how to watch buffy the vampire slayer](https://movies.allwomenstalk.com/reasons-to-watch-buffy-the-vampire-slayer/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/reasons-to-love-zumba/)
+- [do you like to use technology](https://lifestyle.allwomenstalk.com/reasons-to-love-technology/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [7 Brilliant Reasons to Watch Jersey Shore ...](https://lifestyle.allwomenstalk.com/brilliant-reasons-to-watch-jersey-shore/)
 

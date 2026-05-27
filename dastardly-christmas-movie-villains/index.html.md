@@ -3,7 +3,7 @@ title: "7 Dastardly Christmas Movie Villains ..."
 description: "The Grinch; Bad Santa; Frank Cross (Scrooged); Jack Frost (the Santa Clause 3); Hans Gruber (Die Hard); More ..."
 url: "https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Dastardly Christmas Movie Villains ...
@@ -42,16 +42,16 @@ So enjoy these Christmas-themed movies (although do be careful about whom you wa
 
 ## Related Posts
 
-- [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
-- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
-- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
 - [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
+- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
+- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
 - [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
+- [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
 

@@ -3,7 +3,7 @@ title: "Top 10 Adam Sandler Movies ..."
 description: "Billy Madison; Happy Gilmore; Reign over Me; Big Daddy; The Wedding Singer; More ..."
 url: "https://movies.allwomenstalk.com/top-adam-sandler-movies/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Top 10 Adam Sandler Movies ...
@@ -57,15 +57,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1757108229311515
 ## Related Posts
 
 - [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
-- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
-- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
-- [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
-- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
 - [9 Devastatingly Disastrous Movie Remakes ...](https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/)
 - [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
+- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
+- [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
 - [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
 - [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
-- [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
+- [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
+- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
+- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 

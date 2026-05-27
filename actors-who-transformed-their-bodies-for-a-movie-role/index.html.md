@@ -3,7 +3,7 @@ title: "Unbelievable Movie Transformations and the Actors Who Pulled Them off ..
 description: "Christian Bale; Matthew McConaughey; Tom Hanks; Charlize Theron; Natalie Portman; More ..."
 url: "https://movies.allwomenstalk.com/actors-who-transformed-their-bodies-for-a-movie-role/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Unbelievable Movie Transformations and the Actors Who Pulled Them off ...
@@ -56,16 +56,16 @@ It's really impressive and also a bit scary to consider the things that actors w
 
 ## Related Posts
 
-- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
-- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
-- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
-- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
-- [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
-- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
 - [sexiest challenges](https://celebs.allwomenstalk.com/sexiest-ice-bucket-challenges-with-the-hottest-guys-in-hollywood/)
-- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
+- [celebrities who abandoned their child](https://celebs.allwomenstalk.com/celebrities-who-abandoned-fame/)
 - [ice bucket challenge celebrity](https://celebs.allwomenstalk.com/celebrities-who-have-completed-the-ice-bucket-challenge/)
+- [njbc gossip girl](https://movies.allwomenstalk.com/most-adorable-on-screen-couples/)
 - [best cameos for each character](https://movies.allwomenstalk.com/best-cameos-from-a-list-celebrities/)
+- [celebrities nyc apartments](https://celebs.allwomenstalk.com/amazing-celebrity-apartments-you-need-to-see/)
+- [jessica szohr taylor swift 22](https://celebs.allwomenstalk.com/gossip-girl-celebs-to-follow-on-twitter/)
+- [is ricco barrino related to fantasia](https://celebs.allwomenstalk.com/celebrities-who-are-related-to-someone-famous/)
+- [celebs on off](https://celebs.allwomenstalk.com/celebrity-on-and-off-again-couples/)
+- [mr rogers sniper](https://celebs.allwomenstalk.com/celebrity-urban-legends-and-the-truth-behind-them/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

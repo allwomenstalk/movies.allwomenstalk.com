@@ -3,7 +3,7 @@ title: "Badass Femme Fatale Movie Stars All Strong Women Want to Be ..."
 description: "Catherine Tramell in Basic Instinct; Alex Forrest in Fatal Attraction; Carrie-Anne Moss in Memento & the Matrix Movies; Natasha Romanoff in the Avengers/Iron Man; Samantha/Charly in the Long Kiss Goodnight; More ..."
 url: "https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Badass Femme Fatale Movie Stars All Strong Women Want to Be ...
@@ -76,16 +76,16 @@ Who would you add to this list?
 
 ## Related Posts
 
-- [body goals for ladies](https://inspiration.allwomenstalk.com/goals-every-woman-should-set-for-herself/)
-- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
-- [channel for girls](https://lifestyle.allwomenstalk.com/most-informative-and-entertaining-youtube-channels-for-the-curious-mind/)
-- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
-- [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
-- [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
-- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
 - [best qualities in a woman](https://inspiration.allwomenstalk.com/the-qualities-that-make-a-woman-stand-out/)
-- [mary lou retton plastic surgery](https://fitness.allwomenstalk.com/female-athletes-who-are-forever-our-she-roes/)
+- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
+- [body goals for ladies](https://inspiration.allwomenstalk.com/goals-every-woman-should-set-for-herself/)
+- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
+- [queen bee movies](https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/)
+- [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
+- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
 - [taylor swifts squad](https://fashion.allwomenstalk.com/these-women-in-taylor-swifts-squad-may-be-the-ultimate-style-inspo/)
+- [mary lou retton plastic surgery](https://fitness.allwomenstalk.com/female-athletes-who-are-forever-our-she-roes/)
+- [channel for girls](https://lifestyle.allwomenstalk.com/most-informative-and-entertaining-youtube-channels-for-the-curious-mind/)
 - [Armed and Fabulous ...](https://allwomenstalk.com/armed-and-fabulous/)
 - [20 Most Fit Celebrity Women to Be Inspired by ...](https://celebs.allwomenstalk.com/most-fit-celebrity-women-to-be-inspired-by/)
 

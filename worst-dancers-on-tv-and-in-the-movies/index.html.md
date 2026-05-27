@@ -3,7 +3,7 @@ title: "7 Worst Dancers on TV and in the Movies ..."
 description: "Brad Pitt, Burn after Reading; Julia Louis-Dreyfus, Seinfeld; Carlton Banks, the Fresh Prince of Bel Air; Tobey Maguire, Spider-Man 3; Woody Harrelson, the Cowboy Way; More ..."
 url: "https://movies.allwomenstalk.com/worst-dancers-on-tv-and-in-the-movies/"
 category: "movies"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Worst Dancers on TV and in the Movies ...
@@ -49,16 +49,16 @@ While I applaud these ensemble cast of characters for the laughs, I hope that th
 
 ## Related Posts
 
-- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
-- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
-- [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
-- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
-- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
-- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
-- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
 - [disney look alikes](https://celebs.allwomenstalk.com/whoa-celebrities-and-their-disney-lookalikes/)
+- [flynn rider irl](https://celebs.allwomenstalk.com/celebs-you-probably-forgot-voiced-disney-characters/)
+- [famous actors with parkinsons](https://celebs.allwomenstalk.com/celebrities-with-parkinsons-disease/)
 - [celebrities on bereal](https://celebs.allwomenstalk.com/celebrities-and-their-honest-opinions-on-motherhood/)
+- [dennis rodman belly button](https://celebs.allwomenstalk.com/celebrities-you-may-have-forgotten-had-facial-piercings/)
 - [cute pairings](https://celebs.allwomenstalk.com/adorable-pairings-of-celebrity-best-friends/)
+- [handsome david beckham](https://celebs.allwomenstalk.com/of-the-hunkiest-celebrity-dads-around/)
+- [strange facts about celebrities](https://celebs.allwomenstalk.com/little-known-facts-about-your-favorite-celebrities/)
+- [ellen pompeo and patrick dempsey bts](https://celebs.allwomenstalk.com/tgit-shondaland-celebrities-you-should-be-following-on-twitter/)
+- [wedding dress magazines free](https://wedding.allwomenstalk.com/gorgeous-celebrities-who-have-covered-wedding-magazines/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [7 Worst Awards-Show Hosts ...](https://movies.allwomenstalk.com/7-worst-awards-show-hosts/)
 
