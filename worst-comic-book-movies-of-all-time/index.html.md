@@ -3,7 +3,7 @@ title: "7 Worst Comic-book Movies of All Time ..."
 description: "Spawn (1997); Daredevil (2003); The Phantom (1996); Spider-Man 3 (2007); Barb Wire (1996); More ..."
 url: "https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Worst Comic\-book Movies of All Time ...
@@ -49,16 +49,16 @@ I’m sure some of you enjoyed these movies so I’m happy to hear why you disag
 
 ## Related Posts
 
-- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
-- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
 - [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
-- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
-- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
 - [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
+- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
 - [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
 - [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
+- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
+- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 

@@ -3,7 +3,7 @@ title: "9 Very Brainy Movie Stars ..."
 description: "Stephen Fry; Emma Watson; Natalie Portman; Colin Firth; Reese Witherspoon; More ..."
 url: "https://movies.allwomenstalk.com/very-brainy-movie-stars/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 Very Brainy Movie Stars ...
@@ -80,16 +80,16 @@ Top Photo Credit: _David Hulme_
 
 ## Related Posts
 
-- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
-- [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
-- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [chick flicks best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
-- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
+- [chick flicks best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
+- [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
+- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
 - [8 Most Memorable Silent Movie Stars ...](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

@@ -3,7 +3,7 @@ title: "10 Facts about the Movie Titanic You Didnt Know ..."
 description: "Matthew McConaughey to Play Jack; Gwyneth Paltrow to Play Rose; No Wetsuit for Kate Winslet; Pomeranian History; James Cameron Was the Real Artist; More ..."
 url: "https://movies.allwomenstalk.com/facts-about-the-movie-titanic-you-didnt-know/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Facts about the Movie Titanic You Didnt Know ...
@@ -66,16 +66,16 @@ Top Image Source: [moviefone.com](https://goo.gl/xKfsPR)
 
 ## Related Posts
 
-- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
-- [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
-- [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
-- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
-- [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
 - [volcanoes in italy facts](https://travel.allwomenstalk.com/geographical-facts-of-italy/)
-- [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
-- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
 - [fun facts about brunettes](https://hair.allwomenstalk.com/myths-about-brunettes/)
+- [major geographical features of new zealand](https://travel.allwomenstalk.com/geographical-facts-of-new-zealand/)
+- [things to know about massachusetts](https://travel.allwomenstalk.com/fun-facts-about-massachusetts-you-dont-know/)
 - [longest river in republic of ireland](https://travel.allwomenstalk.com/geographical-facts-of-ireland/)
+- [facts about drinking soda](https://health.allwomenstalk.com/startling-facts-about-drinking-soda/)
+- [facts of indonesia](https://travel.allwomenstalk.com/geographical-facts-of-indonesia/)
+- [coco kissing chanel](https://fashion.allwomenstalk.com/fun-facts-about-coco-chanel/)
+- [geographical facts about india](https://travel.allwomenstalk.com/geographical-facts-of-india/)
+- [what is a fun fact about virginia](https://travel.allwomenstalk.com/cool-fun-facts-about-west-virginia/)
 - [5 Must See Scenes from the Movie ...](https://twilight.allwomenstalk.com/5-must-see-scenes-from-the-movie/)
 - [8 Best Tom Hanks Movies You Might Have Missed ...](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
 

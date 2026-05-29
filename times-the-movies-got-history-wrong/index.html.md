@@ -3,7 +3,7 @@ title: "7 Times the Movies Got History Wrong ..."
 description: "Braveheart; Enigma; Pocahontas; 300; Pearl Harbor; More ..."
 url: "https://movies.allwomenstalk.com/times-the-movies-got-history-wrong/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Times the Movies Got History Wrong ...
@@ -42,16 +42,16 @@ If you watch a movie based on historical events, never take it as gospel that an
 
 ## Related Posts
 
-- [the Movies That Will Get You into the Holiday Spir...](https://movies.allwomenstalk.com/the-movies-that-will-get-you-into-the-holiday-spirit/)
-- [17 Movies from 2015 to Put on Your Watch List ...](https://movies.allwomenstalk.com/movies-from-to-put-on-your-watch-list/)
-- [Must-Watch Netflix Movies in the Fall ...](https://movies.allwomenstalk.com/must-watch-netflix-movies-in-the-fall/)
-- [best comedy holiday movies](https://movies.allwomenstalk.com/funniest-holiday-movies-for-christmas-chuckles/)
 - [loreal paris eyeshadow mega blinged and](https://food.allwomenstalk.com/the-best-wines-to-go-with-your-favorite-netflix-shows/)
-- [35 Movie Sequels to Be Excited about in 2016 ...](https://bilbr.com/movie-sequels-to-be-excited-about-in/)
-- [riche stylo smoky hollywood](https://movies.allwomenstalk.com/this-is-when-one-word-in-the-movies-becomes-iconic/)
+- [best comedy holiday movies](https://movies.allwomenstalk.com/funniest-holiday-movies-for-christmas-chuckles/)
 - [Favorite Couples in the Movies ...](https://bilbr.com/favorite-couples-in-the-movies/)
+- [35 Movie Sequels to Be Excited about in 2016 ...](https://bilbr.com/movie-sequels-to-be-excited-about-in/)
+- [the Movies That Will Get You into the Holiday Spir...](https://movies.allwomenstalk.com/the-movies-that-will-get-you-into-the-holiday-spirit/)
+- [Must-Watch Netflix Movies in the Fall ...](https://movies.allwomenstalk.com/must-watch-netflix-movies-in-the-fall/)
 - [The 25 2016 Movies That You Should Be Excited to S...](https://bilbr.com/the-movies-that-you-should-be-excited-to-see/)
 - [24 Movies We All Want Made into TV Shows ...](https://movies.allwomenstalk.com/movies-we-all-want-made-into-tv-shows/)
+- [17 Movies from 2015 to Put on Your Watch List ...](https://movies.allwomenstalk.com/movies-from-to-put-on-your-watch-list/)
+- [riche stylo smoky hollywood](https://movies.allwomenstalk.com/this-is-when-one-word-in-the-movies-becomes-iconic/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 

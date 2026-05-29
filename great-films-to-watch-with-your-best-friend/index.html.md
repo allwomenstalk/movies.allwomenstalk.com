@@ -3,7 +3,7 @@ title: "7 Great Films to Watch with Your Best Friend ..."
 description: "Mean Girls; Bridget Jones’s Diary; The Breakfast Club; Office Space; Magic Mike; More ..."
 url: "https://movies.allwomenstalk.com/great-films-to-watch-with-your-best-friend/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Great Films to Watch with Your Best Friend ...
@@ -44,14 +44,14 @@ Having a simple night in with a bowl of popcorn and a few fun films is a refresh
 
 - [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
 - [things that only happen in movies](https://movies.allwomenstalk.com/things-that-only-happen-in-movies/)
+- [weird romance movies](https://movies.allwomenstalk.com/unconventional-romantic-movies-that-are-a-bit-twisted/)
 - [raunchy comedies movies](https://movies.allwomenstalk.com/of-the-best-side-splitting-comedies-you-cant-afford-to-miss/)
-- [best idris elba movies](https://movies.allwomenstalk.com/brilliant-movies-featuring-idris-elba-that-youve-got-to-watch/)
-- [films scarlett johansson](https://movies.allwomenstalk.com/extravagant-films-featuring-scarlett-johansson-that-showcase-her-talent/)
 - [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
-- [weird romance movies](https://movies.allwomenstalk.com/unconventional-romantic-movies-that-are-a-bit-twisted/)
-- [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
+- [best idris elba movies](https://movies.allwomenstalk.com/brilliant-movies-featuring-idris-elba-that-youve-got-to-watch/)
 - [films with teachers](https://movies.allwomenstalk.com/best-movies-about-teachers-and-learning-youll-love/)
+- [films scarlett johansson](https://movies.allwomenstalk.com/extravagant-films-featuring-scarlett-johansson-that-showcase-her-talent/)
+- [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [7 Great Places to Watch Movies ...](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
 

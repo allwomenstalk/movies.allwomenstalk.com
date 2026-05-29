@@ -3,7 +3,7 @@ title: "3 Kickass GOT Heroines You Need in Your Life ..."
 description: "Sansa Stark; Daenerys Stormborn; Cersei Lannister; More ..."
 url: "https://movies.allwomenstalk.com/kick-ass-got-heroines/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 3 Kickass GOT Heroines You Need in Your Life ...
@@ -32,16 +32,16 @@ Game of Thrones is definitely making big waves with its empowering heroines, but
 
 ## Related Posts
 
+- [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
+- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
 - [bridget jones quotes](https://funny.allwomenstalk.com/why-every-woman-really-is-bridget-jones/)
 - [business boss woman](https://money.allwomenstalk.com/inspirational-lady-bosses/)
+- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
+- [baby girl names korean](https://lifestyle.allwomenstalk.com/korean-girl-names/)
+- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
 - [trading floor 1980s](https://money.allwomenstalk.com/where-are-the-women-on-the-trading-floor/)
 - [2 types of women](https://lifestyle.allwomenstalk.com/types-of-women-according-to-psychology/)
-- [beautiful edgy girl names](https://lifestyle.allwomenstalk.com/badass-girl-names/)
 - [womens investment club](https://money.allwomenstalk.com/how-women-led-investment-clubs-are-making-a-difference-in-the-investing-world/)
-- [brielle name](https://parenting.allwomenstalk.com/unique-and-meaningful-baby-girl-names/)
-- [cute unique anime girl names](https://lifestyle.allwomenstalk.com/anime-girl-names/)
-- [mia name meaning](https://lifestyle.allwomenstalk.com/african-girl-names/)
-- [baby girl names korean](https://lifestyle.allwomenstalk.com/korean-girl-names/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 Female Superheroes to Look up to ...](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
 

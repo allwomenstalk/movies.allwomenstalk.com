@@ -3,7 +3,7 @@ title: "7 Movies Featuring Real-Life Related Actors ..."
 description: "On Golden Pond (1981); The Pursuit of Happyness (2006); Maleficent (2014); Donnie Darko (2001); Say Anything… (1989); More ..."
 url: "https://movies.allwomenstalk.com/movies-featuring-real-life-related-actors/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Movies Featuring Real\-Life Related Actors ...
@@ -59,11 +59,11 @@ What other movies featuring real-life related actors do you enjoy/recommend?
 - [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
 - [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
 - [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
-- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
-- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
-- [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
 - [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
 - [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
+- [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
+- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
+- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
 - [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
 - [minimalist movie](https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)

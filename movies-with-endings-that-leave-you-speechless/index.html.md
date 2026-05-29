@@ -3,7 +3,7 @@ title: "15 Movies with Endings That Leave You Speechless ..."
 description: "The Sixth Sense; Saw; Requiem for a Dream; Memento; The Prestige; More ..."
 url: "https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 15 Movies with Endings That Leave You Speechless ...
@@ -77,15 +77,15 @@ This article written in collaboration with editor, Eliza Martinez
 ## Related Posts
 
 - [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
-- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
 - [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
-- [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
 - [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
-- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
+- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
+- [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
 - [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
+- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [30 Best and Surprisingly Awesome Wedding Movies .....](https://wedding.allwomenstalk.com/best-and-surprisingly-awesome-wedding-movies/)
 - [7 Movie Endings I Would Love to Change ...](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
 

@@ -3,7 +3,7 @@ title: "7 Facts and Things to Know about the New Doctor Who ..."
 description: "Who is the New Doctor Who?; Personal Life; Television Career; Film Career; Previous Doctor Who Roles; More ..."
 url: "https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Facts and Things to Know about the New Doctor Who ...
@@ -42,16 +42,16 @@ So I’m tenterhooks waiting for the first episode for the 12th Doctor Who and a
 
 ## Related Posts
 
-- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
-- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
-- [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
-- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
-- [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
 - [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
+- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
 - [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
-- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
 - [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
+- [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
+- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
+- [raven fun facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-ravens-you-might-not-know-about/)
+- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 - [5 Facts on Vampires ...](https://twilight.allwomenstalk.com/5-facts-on-vampires/)
 

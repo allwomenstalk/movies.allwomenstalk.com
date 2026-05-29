@@ -3,7 +3,7 @@ title: "7 Romantic Lines from Movies ..."
 description: "The King and I; Gone with the Wind; Patch Adams; A Knight’s Tale; When Harry Met Sally; More ..."
 url: "https://movies.allwomenstalk.com/7-romantic-lines-from-movies/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Romantic Lines from Movies ...
@@ -44,15 +44,15 @@ Top Photo Credit: [ilyaasm](https://www.flickr.com/photos/ilyaas/943311214/)
 
 ## Related Posts
 
-- [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
-- [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
-- [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
-- [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 - [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
-- [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
-- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
+- [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
+- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
+- [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
+- [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
+- [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
 - [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
+- [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)

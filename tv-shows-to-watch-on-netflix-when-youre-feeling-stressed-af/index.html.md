@@ -3,7 +3,7 @@ title: "10 TV Shows Youll Crave when Youre Stressed AF ..."
 description: "Parks and Recreation; Friday Night Lights; Gilmore Girls; Chef’s Table; Bob’s Burgers; More ..."
 url: "https://movies.allwomenstalk.com/tv-shows-to-watch-on-netflix-when-youre-feeling-stressed-af/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 TV Shows Youll Crave when Youre Stressed AF ...
@@ -54,16 +54,16 @@ Time to spill. What’s the show you sink into when you want to escape the nasty
 
 ## Related Posts
 
-- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
-- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
-- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
-- [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
 - [after christmas blues](https://inspiration.allwomenstalk.com/tips-for-getting-over-the-post-christmas-blues/)
-- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
-- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
+- [how to be chill af](https://inspiration.allwomenstalk.com/simple-steps-to-be-chill-af/)
 - [adult coloring book target](https://lifestyle.allwomenstalk.com/relaxing-activities-to-try-if-coloring-isnt-your-thing/)
-- [successful digital detox](https://health.allwomenstalk.com/tips-for-success-when-doing-a-digital-detox/)
+- [setting the mood for romance](https://love.allwomenstalk.com/captivating-ways-to-set-the-mood-after-a-long-day/)
 - [how to cheer someone up after a bad day](https://inspiration.allwomenstalk.com/ways-to-cheer-up-on-a-bad-day/)
+- [things to do to unwind](https://health.allwomenstalk.com/ways-to-unwind-and-relax/)
+- [how to get your sanity back](https://health.allwomenstalk.com/steps-to-get-your-sanity-back/)
+- [how to stay positive during exams](https://teen.allwomenstalk.com/how-to-stay-positive-during-exam-season/)
+- [ways to set the mood](https://love.allwomenstalk.com/paris-in-a-handbasket-quick-tricks-to-help-you-set-the-mood/)
+- [successful digital detox](https://health.allwomenstalk.com/tips-for-success-when-doing-a-digital-detox/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 - [Easy Stress-Busting Tips to Set You Free ...](https://allwomenstalk.com/easy-stress-busting-tips-to-set-you-free/)
 

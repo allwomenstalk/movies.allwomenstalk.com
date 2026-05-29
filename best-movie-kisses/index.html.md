@@ -3,7 +3,7 @@ title: "7 Best Movie Kisses ..."
 description: "Jack and Kate (Titanic); Josie and Sam (Never Been Kissed); Lady and Tramp (Lady and the Tramp); Scarlett and Rhett (Gone with the Wind); Peter and Mary Jane (Spiderman); More ..."
 url: "https://movies.allwomenstalk.com/best-movie-kisses/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Best Movie Kisses ...
@@ -65,16 +65,16 @@ Top Photo Source: [enchantedwindowphotography.com](https://goo.gl/51QvYZ)
 
 ## Related Posts
 
+- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
 - [documentaries like jesus camp](https://movies.allwomenstalk.com/to-impactful-and-insightful-documentaries/)
 - [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
-- [love movies 2012](https://movies.allwomenstalk.com/top-romantic-movies-of-2012/)
-- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
-- [Top 10 Biggest Box Office Hits of All Time ...](https://movies.allwomenstalk.com/top-biggest-box-office-hits-of-all-time/)
 - [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
+- [Top 10 Biggest Box Office Hits of All Time ...](https://movies.allwomenstalk.com/top-biggest-box-office-hits-of-all-time/)
 - [best archeology movies](https://movies.allwomenstalk.com/age-defying-archaeological-movies-you-should-really-dig/)
-- [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
 - [great place to watch a movie](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
+- [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
 - [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
+- [love movies 2012](https://movies.allwomenstalk.com/top-romantic-movies-of-2012/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 

@@ -3,7 +3,7 @@ title: "8 Most Unusual Movies of 2012 ..."
 description: "Holy Motors; Cosmopolis; Cloud Atlas; God Bless America; Beasts of the Southern Wild; More ..."
 url: "https://movies.allwomenstalk.com/most-unusual-movies-of/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Most Unusual Movies of 2012 ...
@@ -62,16 +62,16 @@ So if you want to see something a bit different from last year, check out these 
 
 ## Related Posts
 
-- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
-- [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
-- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
-- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 - [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
+- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
+- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
-- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 - [10 Romantic Movies of 2011 ...](https://7fun.net/romantic-movies-of-2011/)
 - [Top 8 Romantic Comedies of 2012 ...](https://movies.allwomenstalk.com/top-romantic-comedies-of-2012/)
 

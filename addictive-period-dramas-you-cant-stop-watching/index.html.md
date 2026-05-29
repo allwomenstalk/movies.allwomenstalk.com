@@ -3,7 +3,7 @@ title: "7 Addictive Period Dramas You Cant Stop Watching ..."
 description: "The Tudors; The Village; Downton Abbey; Mr Selfridge; The White Queen; More ..."
 url: "https://movies.allwomenstalk.com/addictive-period-dramas-you-cant-stop-watching/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Addictive Period Dramas You Cant Stop Watching ...
@@ -56,16 +56,16 @@ I can’t really put my finger on just why I love period dramas so much. In real
 
 ## Related Posts
 
-- [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
-- [cw television shows](https://movies.allwomenstalk.com/cw-tv-shows-you-cant-possibly-miss-out-on/)
-- [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
-- [ahs season 4](https://movies.allwomenstalk.com/ideas-for-season-4-of-american-horror-story/)
-- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
-- [britains favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [political cartoons about teddy roosevelt](https://lifestyle.allwomenstalk.com/famous-political-cartoons-about-theodore-roosevelt/)
-- [characters with disabilities](https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/)
 - [tv shows from the 2000s](https://movies.allwomenstalk.com/staple-american-shows-of-the-2000s/)
+- [characters with disabilities](https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/)
+- [ahs season 4](https://movies.allwomenstalk.com/ideas-for-season-4-of-american-horror-story/)
+- [cw television shows](https://movies.allwomenstalk.com/cw-tv-shows-you-cant-possibly-miss-out-on/)
+- [britains favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
+- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
 - [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
+- [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
+- [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [7 New Romantic Movies You Have to Watch ...](https://allwomenstalk.com/7-new-romantic-movies-you-have-to-watch/)
 

@@ -3,7 +3,7 @@ title: "11 Worst Series Finales ..."
 description: "The Sopranos; Rosanne; Dinosaurs; Lost; The X-Files; More ..."
 url: "https://movies.allwomenstalk.com/worst-series-finales/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 11 Worst Series Finales ...
@@ -58,16 +58,16 @@ Series finales are always so bittersweet, but the ones listed above are more bit
 
 ## Related Posts
 
-- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
 - [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
 - [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
 - [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

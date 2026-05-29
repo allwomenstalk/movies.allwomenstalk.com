@@ -3,7 +3,7 @@ title: "7 Horrifyingly Hilarious Spoof Movies ..."
 description: "Airplane!; Blazing Saddles; Young Frankenstein; The Naked Gun: from the Files of Police Squad!; Walk Hard: the Dewey Cox Story; More ..."
 url: "https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Horrifyingly Hilarious Spoof Movies ...
@@ -42,16 +42,16 @@ I've been a fan of spoofs for years, although some are admittedly better than ot
 
 ## Related Posts
 
+- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
 - [the dhamma brothers trailer](https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/)
 - [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
-- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
 - [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
+- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
 - [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
+- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
 - [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
 - [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
-- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
-- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 

@@ -3,7 +3,7 @@ title: "7 of the Best Fictional Presidents ..."
 description: "Harrison Ford in Air Force One; Bill Pullman in Independence Day; Chris Rock in Head of State; Luke Wilson in Idiocracy; Jack Nicholson in Mars Attacks; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-fictional-presidents/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 of the Best Fictional Presidents ...
@@ -44,16 +44,16 @@ Top Image Source: [pizza.fr](https://goo.gl/NNXbFF)
 
 ## Related Posts
 
+- [woody harrelson courtney love](https://movies.allwomenstalk.com/stellar-characters-played-by-woody-harrelson/)
+- [sitcoms set in nyc](https://movies.allwomenstalk.com/ways-life-in-nyc-is-different-from-tv-shows/)
+- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
+- [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
+- [sad death in movies](https://movies.allwomenstalk.com/sad-tv-deaths-im-still-not-over/)
+- [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
+- [the 60s tv series](https://movies.allwomenstalk.com/enjoyable-60s-tv-series/)
+- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
 - [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
 - [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
-- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
-- [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
-- [woody harrelson courtney love](https://movies.allwomenstalk.com/stellar-characters-played-by-woody-harrelson/)
-- [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
-- [the 60s tv series](https://movies.allwomenstalk.com/enjoyable-60s-tv-series/)
-- [sad death in movies](https://movies.allwomenstalk.com/sad-tv-deaths-im-still-not-over/)
-- [sitcoms set in nyc](https://movies.allwomenstalk.com/ways-life-in-nyc-is-different-from-tv-shows/)
-- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
 

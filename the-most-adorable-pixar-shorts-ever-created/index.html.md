@@ -3,7 +3,7 @@ title: "Adorable Pixar Shorts for Girls Who Are Still Kids at Heart ..."
 description: "Luxo Jr; Day & Night; Tin Toy; Geri’s Game; For the Birds; More ..."
 url: "https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Adorable Pixar Shorts for Girls Who Are Still Kids at Heart ...
@@ -54,16 +54,16 @@ Pixar Shorts just go to show that sometimes you don’t need full-length films t
 
 ## Related Posts
 
-- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
-- [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
 - [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
-- [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
+- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
+- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
 - [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
-- [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
 - [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
 - [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
-- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
+- [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
+- [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
 - [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
+- [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
 - [The Best Gifts for Girls That Can Touch Their Soul...](https://allwomenstalk.com/best-gifts-for-girls/)
 - [19 Adorable DIY Valentines Day Ideas for Kids ...](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
 

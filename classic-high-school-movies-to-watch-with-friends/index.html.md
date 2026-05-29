@@ -3,7 +3,7 @@ title: "10 Classic High School Movies to Watch with Friends ..."
 description: "The Breakfast Club; Dazed and Confused; Ferris Bueller’s Day off; Can’t Hardly Wait; American Graffiti; More ..."
 url: "https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Classic High School Movies to Watch with Friends ...
@@ -56,14 +56,14 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/24761393)
 
 ## Related Posts
 
-- [movies about the old south](https://movies.allwomenstalk.com/marvelous-movies-about-the-south/)
-- [audrey hepburn film list](https://movies.allwomenstalk.com/classic-audrey-hepburn-movies/)
+- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
+- [funny detective movie](https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/)
 - [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
 - [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
 - [richmond va theater](https://travel.allwomenstalk.com/great-american-movie-theaters/)
-- [funny detective movie](https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/)
+- [movies about the old south](https://movies.allwomenstalk.com/marvelous-movies-about-the-south/)
+- [audrey hepburn film list](https://movies.allwomenstalk.com/classic-audrey-hepburn-movies/)
 - [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
-- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
 - [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
 - [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
 - [7 Good Comedies to Watch with Friends ...](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)

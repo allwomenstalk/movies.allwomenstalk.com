@@ -3,7 +3,7 @@ title: "Top 10 Halloween Movies for Kids ..."
 description: "The Nightmare before Christmas; Corpse Bride; Casper; The Witches; It’s the Great Pumpkin Charlie Brown; More ..."
 url: "https://movies.allwomenstalk.com/top-halloween-movies-for-kids/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Top 10 Halloween Movies for Kids  ...
@@ -52,16 +52,16 @@ Saving the best for last, this is a classic worth watching again and again year 
 
 ## Related Posts
 
-- [Bad Celeb Costumes - Dont Attempt at Home](https://allwomenstalk.com/bad-celeb-costumes-dont-attempt-at-home/)
-- [decorations for halloween cakes](https://baking.allwomenstalk.com/halloween-cakes-decorations-ideas/)
-- [DIY Halloween Decor Ideas - Spook Up Your Home wit...](https://allwomenstalk.com/diy-halloween-decor-ideas-spook-up-your-home-efavormart/)
-- [samhain decorations diy](https://lifestyle.allwomenstalk.com/celebrating-samhain/)
 - [right left halloween game](https://lifestyle.allwomenstalk.com/halloween-games-for-kids/)
+- [decorations for halloween cakes](https://baking.allwomenstalk.com/halloween-cakes-decorations-ideas/)
+- [Its THAT Time Your Costume Didnt Work out](https://allwomenstalk.com/its-that-time-your-costume-didnt-work-out/)
+- [samhain decorations diy](https://lifestyle.allwomenstalk.com/celebrating-samhain/)
+- [Bad Celeb Costumes - Dont Attempt at Home](https://allwomenstalk.com/bad-celeb-costumes-dont-attempt-at-home/)
+- [the cat in the hat costume](https://diy.allwomenstalk.com/simple-halloween-costumes-you-can-do-yourself/)
+- [Think Pink in October ...](https://allwomenstalk.com/think-pink-in-october/)
 - [addams family zodiac](https://movies.allwomenstalk.com/the-best-halloween-movie-for-your-zodiac-sign/)
 - [Behind the Scenes: My Halloween Party ...](https://allwomenstalk.com/behind-the-scenes-my-halloween-party/)
-- [Think Pink in October ...](https://allwomenstalk.com/think-pink-in-october/)
-- [Its THAT Time Your Costume Didnt Work out](https://allwomenstalk.com/its-that-time-your-costume-didnt-work-out/)
-- [the cat in the hat costume](https://diy.allwomenstalk.com/simple-halloween-costumes-you-can-do-yourself/)
+- [DIY Halloween Decor Ideas - Spook Up Your Home wit...](https://allwomenstalk.com/diy-halloween-decor-ideas-spook-up-your-home-efavormart/)
 - [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
 - [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)
 

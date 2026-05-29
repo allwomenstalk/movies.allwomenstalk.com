@@ -3,7 +3,7 @@ title: "7 Excellent Movies and TV Shows about Witches ..."
 description: "Charmed; Bewitched; Practical Magic; The Craft; Witches of East End; More ..."
 url: "https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Excellent Movies and TV Shows about Witches ...
@@ -49,16 +49,16 @@ Whether it is a television show or movie, this collection of options is fantasti
 
 ## Related Posts
 
-- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
-- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
-- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
-- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
 - [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
-- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
-- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
 - [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
+- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
+- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
 - [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
+- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
+- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
+- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
+- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

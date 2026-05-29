@@ -3,7 +3,7 @@ title: "7 Comic Books That Deserve to Be Movies ..."
 description: "The Stand; Hush; 1985; The Punisher; Daredevil; More ..."
 url: "https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/"
 category: "movies"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Comic Books That Deserve to Be Movies ...
@@ -44,16 +44,16 @@ Top Photo Credit: [AnnaRenee](https://www.flickr.com/photos/annarenee/1977623638
 
 ## Related Posts
 
-- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
-- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
-- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 - [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
-- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
-- [good movie trilogies](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
-- [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
-- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
+- [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
+- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
+- [good movie trilogies](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
+- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
+- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
+- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
 - [loreal le stylo smoky always pearly pink](https://movies.allwomenstalk.com/best-sports-movies-ever-made/)
+- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 
