@@ -3,7 +3,7 @@ title: "7 Dreadful Disney Sequels ..."
 description: "Cinderella II: Dreams Come True; Tarzan and Jane; Pocahontas II: Journey to a New World; The Hunchback of Notre Dame II; The Jungle Book 2; More ..."
 url: "https://movies.allwomenstalk.com/dreadful-disney-sequels/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Dreadful Disney Sequels ...
@@ -48,16 +48,16 @@ Top Photo Credit: _†hinhin_of_you_
 
 ## Related Posts
 
+- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
 - [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
+- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
 - [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 - [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
-- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

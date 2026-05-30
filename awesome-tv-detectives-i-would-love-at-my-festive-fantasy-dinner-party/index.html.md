@@ -3,7 +3,7 @@ title: "7 Awesome TV Detectives I Would Love at My Festive Fantasy Dinner Party 
 description: "Patrick Jane; Hank Schrader; Columbo; Jessica Fletcher; DCI Frost; More ..."
 url: "https://movies.allwomenstalk.com/awesome-tv-detectives-i-would-love-at-my-festive-fantasy-dinner-party/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Awesome TV Detectives I Would Love at My Festive Fantasy Dinner Party ...
@@ -57,15 +57,15 @@ Clearly I have too much time on my hands to concoct such random scenarios in my 
 ## Related Posts
 
 - [9 Upcoming TV Shows to Be Excited for ...](https://movies.allwomenstalk.com/upcoming-tv-shows-to-be-excited-for/)
+- [7 Fall TV Shows That Didnt do as Well as Expected ...](https://movies.allwomenstalk.com/fall-tv-shows-that-didnt-do-as-well-as-expected/)
+- [9 Absolutely Adorable Viral Proposal Videos on the...](https://7fun.net/absolutely-adorable-viral-proposal-videos-on-the-web/)
+- [9 Viral Videos You Need in Your Life Right Now ...](https://lifestyle.allwomenstalk.com/viral-videos-you-need-in-your-life-right-now/)
+- [7 Dark Grimms Fairytales That Will Shock You ...](https://bilbr.com/dark-grimms-fairytales-that-will-shock-you/)
+- [7 Shocking Moments of 2013 That Blew Our Minds ...](https://celebs.allwomenstalk.com/shocking-moments-of-that-blew-our-minds/)
+- [7 Outrageous Onstage Moments of 2013 ...](https://celebs.allwomenstalk.com/outrageous-onstage-moments-of/)
+- [7 Great Period Television Shows You Should Be Watc...](https://movies.allwomenstalk.com/great-period-television-shows-you-should-be-watching/)
 - [7 Paranormal Hoaxes to Read about ...](https://lifestyle.allwomenstalk.com/paranormal-hoaxes-to-read-about/)
 - [7 TV Shows Im on the Fence about ...](https://movies.allwomenstalk.com/tv-shows-im-on-the-fence-about/)
-- [7 Fall TV Shows That Didnt do as Well as Expected ...](https://movies.allwomenstalk.com/fall-tv-shows-that-didnt-do-as-well-as-expected/)
-- [9 Viral Videos You Need in Your Life Right Now ...](https://lifestyle.allwomenstalk.com/viral-videos-you-need-in-your-life-right-now/)
-- [7 Great Period Television Shows You Should Be Watc...](https://movies.allwomenstalk.com/great-period-television-shows-you-should-be-watching/)
-- [7 Outrageous Onstage Moments of 2013 ...](https://celebs.allwomenstalk.com/outrageous-onstage-moments-of/)
-- [7 Dark Grimms Fairytales That Will Shock You ...](https://bilbr.com/dark-grimms-fairytales-that-will-shock-you/)
-- [9 Absolutely Adorable Viral Proposal Videos on the...](https://7fun.net/absolutely-adorable-viral-proposal-videos-on-the-web/)
-- [7 Shocking Moments of 2013 That Blew Our Minds ...](https://celebs.allwomenstalk.com/shocking-moments-of-that-blew-our-minds/)
 - [7 Movie Characters Id Love to Be ...](https://allwomenstalk.com/7-movie-characters-id-love-to-be/)
 - [7 Reality Shows I Cant Miss ...](https://allwomenstalk.com/7-reality-shows-i-cant-miss/)
 

@@ -3,7 +3,7 @@ title: "7 Really Stupid Action Movies ..."
 description: "Crank 1 & 2; Kill Bill 1; The Marine; Iron Man 2; The Gamer; More ..."
 url: "https://movies.allwomenstalk.com/really-stupid-action-movies/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Really Stupid Action Movies ...
@@ -46,16 +46,16 @@ Top image source: [4.bp.blogspot.com](http://4.bp.blogspot.com/_ZTiaKU-NcJQ/TTmo
 
 ## Related Posts
 
-- [great place to watch a movie](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
-- [love movies 2012](https://movies.allwomenstalk.com/top-romantic-movies-of-2012/)
-- [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
 - [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
-- [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
-- [documentaries like jesus camp](https://movies.allwomenstalk.com/to-impactful-and-insightful-documentaries/)
-- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
-- [best archeology movies](https://movies.allwomenstalk.com/age-defying-archaeological-movies-you-should-really-dig/)
 - [Top 10 Biggest Box Office Hits of All Time ...](https://movies.allwomenstalk.com/top-biggest-box-office-hits-of-all-time/)
+- [love movies 2012](https://movies.allwomenstalk.com/top-romantic-movies-of-2012/)
+- [great place to watch a movie](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
+- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
+- [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
+- [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
+- [documentaries like jesus camp](https://movies.allwomenstalk.com/to-impactful-and-insightful-documentaries/)
 - [my favourite](https://movies.allwomenstalk.com/of-my-favorite-action-movies/)
+- [best archeology movies](https://movies.allwomenstalk.com/age-defying-archaeological-movies-you-should-really-dig/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 

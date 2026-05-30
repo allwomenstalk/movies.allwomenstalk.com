@@ -3,7 +3,7 @@ title: "8 Awesome TV Shows from the 80s ..."
 description: "The Facts of Life; Cheers; Family Ties; The Cosby Show; Miami Vice; More ..."
 url: "https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Awesome TV Shows from the 80s ...
@@ -62,16 +62,16 @@ Did you watch any of these TV shows from the 80’s? Did I forget any of your fa
 
 ## Related Posts
 
-- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
-- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
-- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
-- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
 - [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
+- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
+- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
+- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
+- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

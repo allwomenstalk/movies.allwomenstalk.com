@@ -3,7 +3,7 @@ title: "7 Disney Movies Set in the UK ..."
 description: "Candleshoe (1977); 101 Dalmatians (1996); Brave (2012); The Sword in the Stone (1963); One of Our Dinosaurs is Missing (1975); More ..."
 url: "https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Disney Movies Set in the UK ...
@@ -49,15 +49,15 @@ So come let’s go fly a kite and then come back to applaud the genius entertain
 
 ## Related Posts
 
+- [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
 - [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
 - [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
-- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
+- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
+- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
 - [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
 - [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
-- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
-- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
-- [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
+- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
 - [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)

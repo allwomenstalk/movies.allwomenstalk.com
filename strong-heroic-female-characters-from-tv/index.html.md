@@ -3,7 +3,7 @@ title: "8 Strong & Heroic Female Characters from TV ..."
 description: "Buffy - Buffy the Vampire Slayer; Amy Pond - Doctor Who; Emily Thorne - Revenge; Lorelai Gilmore - Gilmore Girls; Zoe Washburne - Firefly; More ..."
 url: "https://movies.allwomenstalk.com/strong-heroic-female-characters-from-tv/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Strong & Heroic Female Characters from TV ...
@@ -47,15 +47,15 @@ Although many of these characters are from sci-fi or action TV shows, you don’
 ## Related Posts
 
 - [down to earth celebrities](https://celebs.allwomenstalk.com/female-celebrities-i-find-incredibly-sweet-and-down-to-earth/)
-- [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
-- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
-- [ditzy female tv characters](https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/)
 - [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)
 - [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
-- [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
-- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
 - [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
+- [ditzy female tv characters](https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/)
 - [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
+- [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
+- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
+- [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
+- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [8 Female Bond Villains ...](https://movies.allwomenstalk.com/female-bond-villains/)
 

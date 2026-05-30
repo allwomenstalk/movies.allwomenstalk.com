@@ -3,7 +3,7 @@ title: "8 Tear-Worthy Movie Weddings ..."
 description: "My Big Fat Greek Wedding: Tula and Ian; Gone with the Wind: Scarlett and Rhett; Pride and Prejudice: Miss Bennet and Mr. Darcy; Sense and Sensibility: Marianne and Colonel Brandon; Ever after: Danielle and Prince Henry; More ..."
 url: "https://movies.allwomenstalk.com/tear-worthy-movie-weddings/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Tear\-Worthy Movie Weddings ...
@@ -48,15 +48,15 @@ Top Photo Credit: [lillian30](https://www.flickr.com/photos/44549151@N03/4751430
 
 ## Related Posts
 
-- [funny baby shower themes](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
-- [7 Wedding Planning Tips ...](https://love.allwomenstalk.com/wedding-planning-tips/)
 - [kevin and danielle jonas](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
+- [late summer wedding flowers](https://gardening.allwomenstalk.com/flowers-to-use-for-summer-wedding-bouquets/)
 - [single girl wedding photos](https://lifestyle.allwomenstalk.com/ways-for-the-single-girl-to-survive-a-wedding/)
+- [7 Wedding Planning Tips ...](https://love.allwomenstalk.com/wedding-planning-tips/)
 - [bridesmaid duties](https://lifestyle.allwomenstalk.com/bridesmaid-duties-you-should-know-about/)
 - [So Youre Planning a Wedding](https://allwomenstalk.com/3-2/)
-- [late summer wedding flowers](https://gardening.allwomenstalk.com/flowers-to-use-for-summer-wedding-bouquets/)
 - [ginnifer goodwin beach](https://celebs.allwomenstalk.com/something-borrowed-on-the-beach/)
 - [Brides against Breat Cancer in Baltimore ...](https://allwomenstalk.com/brides-against-breat-cancer-in-baltimore/)
+- [funny baby shower themes](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
 - [how to stay calm on wedding day](https://love.allwomenstalk.com/tips-to-stay-calm-on-your-wedding-day/)
 - [8 Weddings and One Bride: a Tribute to Elizabeth T...](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
 - [30 Best and Surprisingly Awesome Wedding Movies .....](https://wedding.allwomenstalk.com/best-and-surprisingly-awesome-wedding-movies/)

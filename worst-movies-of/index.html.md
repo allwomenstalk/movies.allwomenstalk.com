@@ -3,7 +3,7 @@ title: "10 Worst Movies of 2011 ..."
 description: "Conan the Barbarian; The Smurfs; Johnny English Reborn; Arthur; Green Lantern; More ..."
 url: "https://movies.allwomenstalk.com/worst-movies-of/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 10 Worst Movies of 2011 ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/19703484)
 
 ## Related Posts
 
-- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
+- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
+- [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
+- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
 - [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
 - [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
-- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
-- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
 - [9 Devastatingly Disastrous Movie Remakes ...](https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/)
-- [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
-- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
-- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
+- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
+- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
 - [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
+- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
 - [10 Best Action Movies of 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

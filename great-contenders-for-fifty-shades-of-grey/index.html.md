@@ -3,7 +3,7 @@ title: "8 Great Contenders for Fifty Shades of Grey ..."
 description: "Ian Somerhalder; Alexis Bledel; Chris Hemsworth; Allison Williams; Matt Bomer; More ..."
 url: "https://movies.allwomenstalk.com/great-contenders-for-fifty-shades-of-grey/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Great Contenders for Fifty Shades of Grey ...
@@ -46,16 +46,16 @@ Every day brings us closer to finding out who will round out the cast. In fact, 
 
 ## Related Posts
 
+- [7 Inspiring Travel Books Perfect for Your Coffee T...](https://books.allwomenstalk.com/inspiring-travel-books-perfect-for-your-coffee-table/)
 - [may i turn off the television](https://books.allwomenstalk.com/reasons-to-turn-off-the-television-and-pick-up-a-book/)
+- [7 Awesome Biographies to Read on the Beach ...](https://books.allwomenstalk.com/awesome-biographies-to-read-on-the-beach/)
+- [7 Books to Read before Theyre Made into Movies ...](https://books.allwomenstalk.com/books-to-read-before-theyre-made-into-movies/)
+- [7 Amazing Plays I Love to Read Again and Again ...](https://books.allwomenstalk.com/amazing-plays-i-love-to-read-again-and-again/)
 - [pros and cons of digital books](https://books.allwomenstalk.com/pros-and-cons-of-electronic-books-over-regular-books/)
 - [7 Biographies Youll Want to Read ...](https://books.allwomenstalk.com/biographies-youll-want-to-read/)
-- [7 Books to Read before Theyre Made into Movies ...](https://books.allwomenstalk.com/books-to-read-before-theyre-made-into-movies/)
-- [7 Inspiring Travel Books Perfect for Your Coffee T...](https://books.allwomenstalk.com/inspiring-travel-books-perfect-for-your-coffee-table/)
-- [7 Amazing Health Books That Will Change Your Life ...](https://health.allwomenstalk.com/amazing-health-books-that-will-change-your-life-forever/)
-- [7 Awesome Biographies to Read on the Beach ...](https://books.allwomenstalk.com/awesome-biographies-to-read-on-the-beach/)
-- [7 Amazing Plays I Love to Read Again and Again ...](https://books.allwomenstalk.com/amazing-plays-i-love-to-read-again-and-again/)
-- [7 Awesome Prize Winning Female Authors to Consider...](https://books.allwomenstalk.com/awesome-prize-winning-female-authors-to-consider-reading/)
 - [shebra meaning](https://books.allwomenstalk.com/old-school-ya-books-that-transport-you-to-your-childhood/)
+- [7 Awesome Prize Winning Female Authors to Consider...](https://books.allwomenstalk.com/awesome-prize-winning-female-authors-to-consider-reading/)
+- [7 Amazing Health Books That Will Change Your Life ...](https://health.allwomenstalk.com/amazing-health-books-that-will-change-your-life-forever/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Sexiest Movie Characters ...](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 

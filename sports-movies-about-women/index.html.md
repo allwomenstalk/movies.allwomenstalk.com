@@ -3,7 +3,7 @@ title: "Fantastic Films Featuring Women in Sports ..."
 description: "Million Dollar Baby (2004); Bend It like Beckham (2002); Love & Basketball (2000); National Velvet (1944); Whip It (2009); More ..."
 url: "https://movies.allwomenstalk.com/sports-movies-about-women/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Fantastic Films Featuring Women in Sports ...
@@ -57,14 +57,14 @@ Did any of these sports movies motivate you? What sports do you participate in?
 ## Related Posts
 
 - [7 Exciting Movies to Watch out for in 2015 ...](https://movies.allwomenstalk.com/exciting-movies-to-watch-out-for-in/)
+- [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
+- [7 Romantic Movies to Look Forward to ...](https://movies.allwomenstalk.com/romantic-movies-to-look-forward-to/)
 - [7 Wonderful Movies about Food You Need to See ...](https://movies.allwomenstalk.com/wonderful-movies-about-food-you-need-to-see/)
+- [8 Horror Flicks Based on True Stories ...](https://movies.allwomenstalk.com/horror-flicks-based-on-true-stories/)
+- [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
+- [7 Movies of 2015 That Are Already Stirring up Exci...](https://movies.allwomenstalk.com/movies-of-that-are-already-stirring-up-excitement/)
 - [Epic Fail: Sin City Sequel Flops at the Box Office...](https://movies.allwomenstalk.com/epic-fail-sin-city-sequel-flops-at-the-box-office/)
 - [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
-- [7 Romantic Movies to Look Forward to ...](https://movies.allwomenstalk.com/romantic-movies-to-look-forward-to/)
-- [7 Movies of 2015 That Are Already Stirring up Exci...](https://movies.allwomenstalk.com/movies-of-that-are-already-stirring-up-excitement/)
-- [8 Horror Flicks Based on True Stories ...](https://movies.allwomenstalk.com/horror-flicks-based-on-true-stories/)
-- [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
-- [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
 - [First Trailer for One of Robin Williams Final Film...](https://movies.allwomenstalk.com/first-trailer-for-one-of-robin-williams-final-films-revealed/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)

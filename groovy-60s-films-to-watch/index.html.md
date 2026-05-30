@@ -3,7 +3,7 @@ title: "9 Groovy 60s Films to Watch ..."
 description: "Barbarella; Head; Blow up; Dr Strangelove; The Producers; More ..."
 url: "https://movies.allwomenstalk.com/groovy-60s-films-to-watch/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 9 Groovy 60s Films to Watch ...
@@ -77,16 +77,16 @@ Top Photo Credit: Chris Craymer_
 
 ## Related Posts
 
-- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
-- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
-- [dramatic bollywood movies](https://movies.allwomenstalk.com/top-beautifully-made-bollywood-films/)
 - [top most expensive movies](https://movies.allwomenstalk.com/the-most-expensive-movies-ever-made/)
-- [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
 - [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
 - [inspired by a true story movies](https://movies.allwomenstalk.com/great-movies-inspired-by-true-stories/)
+- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [dramatic bollywood movies](https://movies.allwomenstalk.com/top-beautifully-made-bollywood-films/)
+- [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 - [7 Totally Tubular 80s Flicks ...](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
 

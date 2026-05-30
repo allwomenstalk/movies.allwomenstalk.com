@@ -3,7 +3,7 @@ title: "7 War Movies That You Cant Miss ..."
 description: "Full Metal Jacket; Apocalyse Now; Enemy at the Gates; Schindler’s List; We Were Soldiers; More ..."
 url: "https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 War Movies That You Cant Miss ...
@@ -65,15 +65,15 @@ Top Photo Credit: [Vintage Movie Posters](https://www.flickr.com/photos/35782573
 
 ## Related Posts
 
-- [chick flicks best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
-- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
-- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
-- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
 - [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
+- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
+- [chick flicks best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Incredible Cult Movies Not to Miss ...](https://movies.allwomenstalk.com/incredible-cult-movies-not-to-miss/)

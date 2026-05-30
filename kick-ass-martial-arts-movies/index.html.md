@@ -3,7 +3,7 @@ title: "Kick-Ass Martial Arts Movies ..."
 description: "Crouching Tiger, Hidden Dragon (2000); Enter the Dragon (1973); Shanghai Knights; Hero (2002); Kill Bill Vol I (2003); More ..."
 url: "https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Kick\-Ass Martial Arts Movies ...
@@ -49,16 +49,16 @@ I’m sorry ladies. I’m sure many of you were expecting to see The Matrix on h
 
 ## Related Posts
 
-- [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
-- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
-- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
-- [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
-- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
 - [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
-- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
 - [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
-- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
 - [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
+- [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
+- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
+- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
+- [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
+- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
+- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
+- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)
 

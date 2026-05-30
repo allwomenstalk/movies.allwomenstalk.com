@@ -3,7 +3,7 @@ title: "8 Movies to Inspire You to Get Fit ..."
 description: "Chariots of Fire; GI Jane; Kung Fu Panda; Mulan; Million Dollar Baby; More ..."
 url: "https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Movies to Inspire You to Get Fit ...
@@ -64,15 +64,15 @@ What movies inspire you to exercise?
 
 ## Related Posts
 
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
-- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
 - [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
+- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
+- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
 - [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
 - [8 Amazingly Effective Tricks to Motivate Yourself ...](https://weightloss.allwomenstalk.com/amazingly-effective-tricks-to-motivate-yourself-to-work-out/)
 - [20 Great Fitness Quotes to Help Motivate Your Work...](https://health.allwomenstalk.com/great-fitness-quotes-to-help-motivate-your-work-out/)

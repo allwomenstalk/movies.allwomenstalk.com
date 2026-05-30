@@ -3,7 +3,7 @@ title: "The Best Movies to Watch when Youre Home on a Sick Day ..."
 description: "The Princess Bride; Office Space; Ferris Bueller’s Day off; Harold and Maude; The Royal Tenenbaums; More ..."
 url: "https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # The Best Movies to Watch when Youre Home on a Sick Day  ...
@@ -146,14 +146,14 @@ What’s your favorite sick day movie?
 
 - [horror movies you shouldnt watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
-- [funny movie scene](https://movies.allwomenstalk.com/the-best-i-quit-moments-from-the-movies/)
 - [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
 - [films about being single](https://love.allwomenstalk.com/the-best-movies-about-being-single/)
+- [funny movie scene](https://movies.allwomenstalk.com/the-best-i-quit-moments-from-the-movies/)
 - [seduces movie](https://movies.allwomenstalk.com/the-sexiest-seduction-scenes-from-movies/)
+- [movie that motivates you](https://movies.allwomenstalk.com/movies-thatll-motivate-you-to-be-a-better-person/)
 - [country love movies](https://movies.allwomenstalk.com/movies-about-love-that-dont-actually-suck/)
 - [boss tattoo rocky horror](https://beauty.allwomenstalk.com/these-tattoos-will-impress-any-movie-buff/)
 - [quarter life crisis movies](https://movies.allwomenstalk.com/your-quarter-life-crisis-as-told-in-the-movies/)
-- [movie that motivates you](https://movies.allwomenstalk.com/movies-thatll-motivate-you-to-be-a-better-person/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 - [9 Excellent Movies to Watch This Valentines Day .....](https://bilbr.com/9-cool-movies-to-watch-this-valentines-day/)
 

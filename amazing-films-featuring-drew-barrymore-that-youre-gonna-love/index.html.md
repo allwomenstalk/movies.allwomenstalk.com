@@ -3,7 +3,7 @@ title: "7 Amazing Films Featuring Drew Barrymore That Youre Gonna Love ..."
 description: "Riding in Cars with Boys; Music and Lyrics; Ever after: a Cinderella Story; Olive, the Other Reindeer; E.T. the Extra-Terrestrial; More ..."
 url: "https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Amazing Films Featuring Drew Barrymore That Youre Gonna Love ...
@@ -42,16 +42,16 @@ Now that you know which Drew Barrymore films to check out, it’s time to cozy o
 
 ## Related Posts
 
-- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
 - [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
-- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
-- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
-- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
+- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
 - [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
 - [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
+- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
+- [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 

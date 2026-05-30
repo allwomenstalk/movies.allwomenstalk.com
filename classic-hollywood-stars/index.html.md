@@ -3,7 +3,7 @@ title: "15 Classic Hollywood Stars That Were Original Beauty Goals ..."
 description: "Joan Crawford; Elizabeth Taylor; Marilyn Monroe; Grace Kelly; Lauren Bacall; More ..."
 url: "https://movies.allwomenstalk.com/classic-hollywood-stars/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 15 Classic Hollywood Stars That Were Original Beauty Goals ...
@@ -104,16 +104,16 @@ Who is your personal favourite classic Hollywood beauty? Let me know who else yo
 
 ## Related Posts
 
-- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
-- [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
-- [jamie dornan modeling](https://celebs.allwomenstalk.com/little-known-facts-about-jamie-dornan/)
-- [2018 coachella headliners](https://music.allwomenstalk.com/coachella-headliners/)
-- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
 - [celebrities born on february 4th](https://celebs.allwomenstalk.com/celebrities-born-in-february-4/)
-- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
+- [celebs born in 1976](https://celebs.allwomenstalk.com/celebrities-born-in-february/)
+- [lyia liu](https://fitness.allwomenstalk.com/celebrities-who-wear-waist-trainers/)
+- [hot dubai prince](https://love.allwomenstalk.com/hot-princes-who-are-still-eligible/)
 - [best housewives of all time](https://movies.allwomenstalk.com/the-best-real-housewives-of-beverly-hills/)
-- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
+- [2018 coachella headliners](https://music.allwomenstalk.com/coachella-headliners/)
+- [male us actors](https://movies.allwomenstalk.com/hottest-male-voice-actors/)
 - [most famous child actors](https://celebs.allwomenstalk.com/child-stars-who-changed-dramatically/)
+- [jamie dornan modeling](https://celebs.allwomenstalk.com/little-known-facts-about-jamie-dornan/)
+- [designer valentines day gifts](https://celebs.allwomenstalk.com/most-expensive-valentines-gifts-given-by-celebrities/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)
 - [8 Celebrities Who Have Aged Beautifully ...](https://celebs.allwomenstalk.com/celebrities-who-have-aged-beautifully/)
 

@@ -3,7 +3,7 @@ title: "15 Upcoming Movie Remakes That Might Be Really Great ..."
 description: "Carrie; Annie; Robocop; An American Werewolf in London; All Quiet on the Western Front; More ..."
 url: "https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 15 Upcoming Movie Remakes That Might Be Really Great ...
@@ -75,16 +75,16 @@ A lot of upcoming movie remakes do look really fantastic, but there are others â
 
 ## Related Posts
 
-- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
-- [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
-- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
-- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
-- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
+- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
+- [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
+- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 

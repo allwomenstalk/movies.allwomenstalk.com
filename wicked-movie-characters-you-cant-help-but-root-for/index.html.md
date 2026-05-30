@@ -3,7 +3,7 @@ title: "7 Wicked Movie Characters You Cant Help but Root for ..."
 description: "Shere Khan (Jungle Book); Norman Stansfield (Leon); Bridget Gregory (the Last Seduction); Hedley Lamarr (Blazing Saddles); Sheriff of Nottingham (Robin Hood); More ..."
 url: "https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Wicked Movie Characters You Cant Help but Root for ...
@@ -42,16 +42,16 @@ So if you also love the bad guys in movies, here's some more for you to root for
 
 ## Related Posts
 
-- [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
-- [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
 - [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
-- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
-- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
-- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
-- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
 - [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
+- [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
 - [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
+- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
+- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
+- [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
+- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
+- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
 

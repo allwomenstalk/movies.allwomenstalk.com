@@ -3,7 +3,7 @@ title: "7 Exciting Movie Sequels in 2013 ..."
 description: "The Hunger Games: Catching Fire; A Good Day to Die Hard; Star Trek into Darkness; Iron Man 3; The Hangover: Part III; More ..."
 url: "https://movies.allwomenstalk.com/exciting-movie-sequels-in/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Exciting Movie Sequels in 2013 ...
@@ -42,16 +42,16 @@ I'll be honest, I'm most excited about Catching Fire. A lot of people had mixed 
 
 ## Related Posts
 
-- [childrenmovies](https://lifestyle.allwomenstalk.com/must-watch-children-movies/)
-- [supernatural love movies](https://movies.allwomenstalk.com/exciting-supernatural-movies-of/)
 - [7 TV Shows Made into Movies ...](https://7fun.net/tv-shows-made-into-movies/)
-- [10 Shows That Should Be Made into Movies ...](https://movies.allwomenstalk.com/shows-that-should-be-made-into-movies/)
-- [8 Acclaimed Foreign Films to Watch ...](https://7fun.net/acclaimed-foreign-films-to-watch/)
+- [supernatural love movies](https://movies.allwomenstalk.com/exciting-supernatural-movies-of/)
 - [9 Best Movies about Dancing ...](https://movies.allwomenstalk.com/best-movies-about-dancing/)
-- [movies inspired by video games](https://movies.allwomenstalk.com/movies-inspired-by-video-games/)
-- [7 TV Shows That Would Make Great Movies ...](https://movies.allwomenstalk.com/tv-shows-that-would-make-great-movies/)
 - [7 TV Shows Made from Movies ...](https://movies.allwomenstalk.com/tv-shows-made-from-movies/)
+- [8 Acclaimed Foreign Films to Watch ...](https://7fun.net/acclaimed-foreign-films-to-watch/)
+- [childrenmovies](https://lifestyle.allwomenstalk.com/must-watch-children-movies/)
+- [10 Shows That Should Be Made into Movies ...](https://movies.allwomenstalk.com/shows-that-should-be-made-into-movies/)
 - [7 of My All-Time Favorite Movies ...](https://movies.allwomenstalk.com/of-my-all-time-favorite-movies/)
+- [7 TV Shows That Would Make Great Movies ...](https://movies.allwomenstalk.com/tv-shows-that-would-make-great-movies/)
+- [movies inspired by video games](https://movies.allwomenstalk.com/movies-inspired-by-video-games/)
 - [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
 - [The 7 Best Sequels of All Times ...](https://movies.allwomenstalk.com/the-best-sequels-of-all-times/)
 

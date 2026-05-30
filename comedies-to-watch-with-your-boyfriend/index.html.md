@@ -3,7 +3,7 @@ title: "8 Comedies to Watch with Your Boyfriend ..."
 description: "Wedding Crashers; The 40 Year Old Virgin; Animal House; Young Frankenstein; Grosse Point Blank; More ..."
 url: "https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Comedies to Watch with Your Boyfriend ...
@@ -46,15 +46,15 @@ So why not grab some DVDs, and have a movie night together? This selection of co
 
 ## Related Posts
 
-- [When I Fall in Love with a Film](https://allwomenstalk.com/when-i-fall-in-love-with-a-film/)
-- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
-- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
-- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
-- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
-- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
 - [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 - [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
+- [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
+- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
+- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
+- [When I Fall in Love with a Film](https://allwomenstalk.com/when-i-fall-in-love-with-a-film/)
+- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
+- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
+- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 - [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
 - [8 Classic Romantic Comedies ...](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 - [8 Comedies to Watch with Your Girlfriends ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)

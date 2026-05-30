@@ -3,7 +3,7 @@ title: "7 Things to Know about Anna and the King ..."
 description: "Not a Romance; Not Just a Teacher; Western King; Anna’s past; Mongkut the Monk; More ..."
 url: "https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Things to Know about Anna and the King ...
@@ -44,16 +44,16 @@ The story of Anna and the King is fascinating. While the movie was wonderful, th
 
 ## Related Posts
 
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
+- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
+- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
+- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
+- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
 - [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
 - [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
-- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
-- [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
-- [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
-- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
-- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
 - [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
+- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 

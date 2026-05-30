@@ -3,7 +3,7 @@ title: "7 of the Best Movie Food Fights Ever ..."
 description: "Blazing Saddles; Little Darlings; Animal House; PCU; Hook; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 of the Best Movie Food Fights Ever ...
@@ -42,16 +42,16 @@ What’s your favorite movie food fight? Have you ever been in a food fight? How
 
 ## Related Posts
 
+- [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
+- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
+- [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
+- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
 - [saddest rom coms](https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
+- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
 - [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
 - [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
-- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
-- [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
-- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
-- [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
-- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [7 Airlines That Serve the Best Food ...](https://travel.allwomenstalk.com/7-airlines-that-serve-the-best-food/)
 - [11 Memorable and Tasty Food Scenes in a Movie ...](https://movies.allwomenstalk.com/memorable-and-tasty-food-scenes-in-a-movie/)
 

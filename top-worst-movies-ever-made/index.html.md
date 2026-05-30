@@ -3,7 +3,7 @@ title: "Top 8 Worst Movies Ever Made ..."
 description: "Plan 9 from Outer Space; The Matrix 2 & 3; Spiderman 3; Southland Tales; White Chicks; More ..."
 url: "https://movies.allwomenstalk.com/top-worst-movies-ever-made/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Top 8 Worst Movies Ever Made ...
@@ -51,11 +51,11 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/12408896)
 - [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
 - [chick flicks best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
 - [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
 - [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)

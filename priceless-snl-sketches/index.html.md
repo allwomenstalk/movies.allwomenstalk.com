@@ -3,7 +3,7 @@ title: "20 Priceless SNL Sketches ..."
 description: "I Wish It Was Christmas Today; Wild and Crazy Guys; Celebrity Jeopardy; Buckwheat; Stuart Smalley; More ..."
 url: "https://movies.allwomenstalk.com/priceless-snl-sketches/"
 category: "movies"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 20 Priceless SNL Sketches ...
@@ -94,16 +94,16 @@ SNL is an iconic show, it's been around forever. Some years the cast and the ske
 
 ## Related Posts
 
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
-- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
 - [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
+- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
+- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [10 Funniest Songs Ever ...](https://allwomenstalk.com/10-funniest-songs-ever/)
 - [10 Funniest Animals ...](https://allwomenstalk.com/10-funniest-animals/)
 
