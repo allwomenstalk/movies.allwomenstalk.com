@@ -3,7 +3,7 @@ title: "7 of the Funniest Comedies to Watch on a Girls Night in ..."
 description: "Romy and Michele's High School Reunion; He’s Just Not That into You; Breakfast at Tiffany’s; Gentlemen Prefer Blondes; 500 Days of Summer; More ..."
 url: "https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 of the Funniest Comedies to Watch on a Girls Night in ...
@@ -42,15 +42,15 @@ There are, of course, dozens of other amazing comedies that would suit a GNI. Th
 
 ## Related Posts
 
-- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
-- [movies to watch when youre in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
-- [ferris buellers day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
-- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
 - [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
-- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
 - [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
-- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
+- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
 - [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
+- [movies to watch when youre in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
+- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
+- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [ferris buellers day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
 - [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)

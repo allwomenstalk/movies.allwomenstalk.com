@@ -3,7 +3,7 @@ title: "8 Signs Youre Addicted to Netflix ..."
 description: "Watching Netflix is More Desirable than Spending Time with Your Own …; You Prefer Binge-watching for a Day than Meeting with Actual Friends; When the Shows You Watch Impact on Your Mood; When Netflix and Chill Means Just That; You Lose Sleep, Track of Time and Your Grasp on Reality; More ..."
 url: "https://movies.allwomenstalk.com/signs-youre-addicted-to-netflix/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Signs Youre Addicted to Netflix ...
@@ -71,15 +71,15 @@ Be truthful now!
 ## Related Posts
 
 - [is it time for a new phone](https://lifestyle.allwomenstalk.com/telling-signs-its-time-to-get-a-new-phone/)
-- [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
-- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
-- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
-- [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
-- [signs youre a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
-- [should i drop a course](https://teen.allwomenstalk.com/signs-you-should-drop-that-class-asap/)
-- [lobster romantic meaning](https://love.allwomenstalk.com/this-is-how-you-know-youve-found-your-lobster/)
-- [signs you are a girly girl](https://inspiration.allwomenstalk.com/signs-that-youre-far-from-a-girly-girl/)
 - [signs you should not accept job offer](https://money.allwomenstalk.com/signs-you-shouldnt-actually-accept-a-job-offer/)
+- [signs you are a girly girl](https://inspiration.allwomenstalk.com/signs-that-youre-far-from-a-girly-girl/)
+- [lobster romantic meaning](https://love.allwomenstalk.com/this-is-how-you-know-youve-found-your-lobster/)
+- [should i drop a course](https://teen.allwomenstalk.com/signs-you-should-drop-that-class-asap/)
+- [sign for trouble](https://love.allwomenstalk.com/stop-running-at-the-first-sign-of-trouble/)
+- [when its time to move](https://love.allwomenstalk.com/signs-its-time-to-move-out/)
+- [signs im bisexual](https://love.allwomenstalk.com/signs-you-are-bisexual-for-girls-who-keep-getting-girl-crushes/)
+- [crystal clear signs](https://funny.allwomenstalk.com/crystal-clear-signs-that-youre-an-old-millennial/)
+- [signs youre a rebel](https://lifestyle.allwomenstalk.com/clear-cut-signs-youre-a-risk-taking-rebel/)
 - [10 Signs That You Need a Vacation ...](https://travel.allwomenstalk.com/10-signs-that-you-need-a-vacation/)
 - [8 Signs Youre Addicted to Facebook ...](https://allwomenstalk.com/8-signs-youre-addicted-to-facebook/)
 

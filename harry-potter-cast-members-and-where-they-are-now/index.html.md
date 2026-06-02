@@ -3,7 +3,7 @@ title: "7 Harry Potter Cast Members and Where They Are Now ..."
 description: "Daniel Radcliffe; Emma Watson; Rupert Grint; Tom Felton; Matthew Lewis; More ..."
 url: "https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Harry Potter Cast Members and Where They Are Now ...
@@ -58,16 +58,16 @@ The Harry Potter movies are movies that shaped my childhood and will stay with m
 
 ## Related Posts
 
-- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
-- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
-- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
-- [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
-- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
 - [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
-- [actors who havent won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
-- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
 - [hollywood bachelors](https://celebs.allwomenstalk.com/of-hollywoods-hottest-bachelors-and-bachelorettes/)
+- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
+- [actors who havent won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
+- [celebs on broadway](https://celebs.allwomenstalk.com/celebs-who-are-heading-to-broadway-this-year/)
+- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
 - [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
+- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
+- [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
 - [5 Evil Magic Users to Be ...](https://twilight.allwomenstalk.com/5-evil-magic-users-to-be/)
 - [7 Minor Harry Potter Characters ...](https://movies.allwomenstalk.com/minor-harry-potter-characters/)
 

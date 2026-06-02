@@ -3,7 +3,7 @@ title: "Sports Movies Even Non-Sporty Girls Can Appreciate for Their Romance Fac
 description: "Bend It like Beckham (2002); Love & Basketball (2000); Rocky (1976); Fever Pitch (2005); The Wrestler (2008); More ..."
 url: "https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Sports Movies Even Non\-Sporty Girls Can Appreciate for Their Romance Factor ...
@@ -56,16 +56,16 @@ Other sports movies with some romance to them you might also want to watch inclu
 
 ## Related Posts
 
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
+- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
+- [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
 - [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
 - [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
-- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
 - [th imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
-- [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
 - [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
-- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
-- [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
+- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
 - [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
+- [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

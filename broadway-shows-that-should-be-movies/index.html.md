@@ -3,7 +3,7 @@ title: "7 Broadway Shows That Should Be Movies ..."
 description: "Wicked; The Book of Mormon; Spring Awakening; The 25th Annual Putnam County Spelling Bee; Avenue Q; More ..."
 url: "https://movies.allwomenstalk.com/broadway-shows-that-should-be-movies/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Broadway Shows That Should Be Movies ...
@@ -56,15 +56,15 @@ It is pretty common for a Broadway musical to be adapted from a movie, but I thi
 
 ## Related Posts
 
-- [amanda seyfried musicals](https://movies.allwomenstalk.com/amazing-musicals-i-wouldnt-mind-watching-over-and-over-again/)
-- [7 Great Movies That Almost Didnt Make It to the Bi...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
-- [9 Movies That Are Just as Good as the Book ...](https://bilbr.com/movies-that-are-just-as-good-as-the-book/)
-- [loreal paris le stylo eye amour](https://movies.allwomenstalk.com/movies-with-the-best-new-years-scenes/)
-- [7 Superhero Movies You Must Watch if You Havent Al...](https://movies.allwomenstalk.com/superhero-movies-you-must-watch-if-you-havent-already/)
-- [7 Movies Based on Historic Events We Should All Wa...](https://movies.allwomenstalk.com/movies-based-on-historic-events-we-should-all-watch/)
-- [7 Classic Black-and-White Films You Should Check o...](https://movies.allwomenstalk.com/classic-black-and-white-films-you-should-check-out/)
-- [9 Brilliant Bad-but-Good Movies That Are Perfect f...](https://movies.allwomenstalk.com/brilliant-bad-but-good-movies-that-are-perfect-for-movie-night/)
 - [9 Best Movie Adaptations of Novels That You Will L...](https://bilbr.com/best-movie-adaptations-of-novels-that-you-will-love/)
+- [7 Classic Black-and-White Films You Should Check o...](https://movies.allwomenstalk.com/classic-black-and-white-films-you-should-check-out/)
+- [7 Superhero Movies You Must Watch if You Havent Al...](https://movies.allwomenstalk.com/superhero-movies-you-must-watch-if-you-havent-already/)
+- [9 Brilliant Bad-but-Good Movies That Are Perfect f...](https://movies.allwomenstalk.com/brilliant-bad-but-good-movies-that-are-perfect-for-movie-night/)
+- [loreal paris le stylo eye amour](https://movies.allwomenstalk.com/movies-with-the-best-new-years-scenes/)
+- [9 Movies That Are Just as Good as the Book ...](https://bilbr.com/movies-that-are-just-as-good-as-the-book/)
+- [7 Movies Based on Historic Events We Should All Wa...](https://movies.allwomenstalk.com/movies-based-on-historic-events-we-should-all-watch/)
+- [7 Great Movies That Almost Didnt Make It to the Bi...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
+- [amanda seyfried musicals](https://movies.allwomenstalk.com/amazing-musicals-i-wouldnt-mind-watching-over-and-over-again/)
 - [7 High Action Movies to Enjoy with Your Guy ...](https://movies.allwomenstalk.com/high-action-movies-to-enjoy-with-your-guy/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)

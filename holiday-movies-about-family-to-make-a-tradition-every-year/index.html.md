@@ -3,7 +3,7 @@ title: "Holiday Movies about Family to Make a Tradition to Watch Every Year ..."
 description: "The Family Stone; Happy Christmas; A Merry Friggin’ Christmas; The Godfather; Love, Actually; More ..."
 url: "https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Holiday Movies about Family  to Make a Tradition to Watch Every Year ...
@@ -42,16 +42,16 @@ What’s your favorite holiday movie about family? Let me know in the comments w
 
 ## Related Posts
 
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
-- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
+- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [5 Must See Movies This Thanksgiving Weekend ...](https://allwomenstalk.com/5-must-see-movies-this-thanksgiving-weekend/)
 - [8 Great Movies to Watch with Your Mom ...](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
 

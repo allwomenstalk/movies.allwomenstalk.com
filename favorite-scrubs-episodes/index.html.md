@@ -3,7 +3,7 @@ title: "7 Favorite Scrubs Episodes ..."
 description: "My Screw up; My Musical; My Last Words; My Own American Girl; My Way or the Highway; More ..."
 url: "https://movies.allwomenstalk.com/favorite-scrubs-episodes/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Favorite Scrubs Episodes ...
@@ -42,16 +42,16 @@ There are so many amazing “Scrubs” episodes, it was hard to choose just seve
 
 ## Related Posts
 
-- [7 Must See Cold Openings from the Office ...](https://movies.allwomenstalk.com/must-see-cold-openings-from-the-office/)
-- [9 Cory Monteith Glee Moments Well Never Forget ...](https://celebs.allwomenstalk.com/cory-monteith-glee-moments-well-never-forget/)
-- [7 Worst Throwbacks I Pray Never Come Back ...](https://fashion.allwomenstalk.com/worst-throwbacks-i-pray-never-come-back/)
-- [7 Great Animated TV Series for Adults That Wont Di...](https://movies.allwomenstalk.com/great-animated-tv-series-for-adults-that-wont-disappoint/)
-- [7 Plays That Should Be Brought Back to Broadway .....](https://movies.allwomenstalk.com/plays-that-should-be-brought-back-to-broadway/)
-- [loreal paris color le stylo bottomless](https://movies.allwomenstalk.com/shows-that-i-could-watch-over-and-over-again/)
-- [best season finales](https://movies.allwomenstalk.com/best-season-finales-ever/)
 - [7 Reality Shows I Actually Enjoy ...](https://movies.allwomenstalk.com/reality-shows-i-actually-enjoy/)
+- [7 Great Animated TV Series for Adults That Wont Di...](https://movies.allwomenstalk.com/great-animated-tv-series-for-adults-that-wont-disappoint/)
+- [7 Must See Cold Openings from the Office ...](https://movies.allwomenstalk.com/must-see-cold-openings-from-the-office/)
 - [7 What Would You do Videos ...](https://inspiration.allwomenstalk.com/what-would-you-do-videos/)
+- [best season finales](https://movies.allwomenstalk.com/best-season-finales-ever/)
+- [loreal paris color le stylo bottomless](https://movies.allwomenstalk.com/shows-that-i-could-watch-over-and-over-again/)
+- [9 Cory Monteith Glee Moments Well Never Forget ...](https://celebs.allwomenstalk.com/cory-monteith-glee-moments-well-never-forget/)
+- [7 Plays That Should Be Brought Back to Broadway .....](https://movies.allwomenstalk.com/plays-that-should-be-brought-back-to-broadway/)
 - [7 Addictive TV Shows That Are Worth Watching ...](https://celebs.allwomenstalk.com/addictive-tv-shows-that-are-worth-watching/)
+- [7 Worst Throwbacks I Pray Never Come Back ...](https://fashion.allwomenstalk.com/worst-throwbacks-i-pray-never-come-back/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Most Popular Medical TV Series ...](https://movies.allwomenstalk.com/most-popular-medical-tv-series/)
 

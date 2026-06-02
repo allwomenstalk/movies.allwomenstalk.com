@@ -3,7 +3,7 @@ title: "Binge Watch These 7 Movies over Your Winter Break ..."
 description: "Stuck in Love; Marie’s Story; Not Another Happy Ending; Silver Lining’s Playbook; Chocolat; More ..."
 url: "https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Binge Watch These 7 Movies over Your Winter Break ...
@@ -42,15 +42,15 @@ Winter break is the perfect time to veg out and watch insane amounts of Netflix!
 
 ## Related Posts
 
-- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
-- [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
 - [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
 - [horror movies you shouldnt watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
-- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
-- [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
 - [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
-- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
+- [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
+- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
+- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
+- [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
 - [disney movie old](https://movies.allwomenstalk.com/old-disney-movies-you-should-watch-before-you-die/)
+- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
 - [most secual movies](https://movies.allwomenstalk.com/the-most-sexually-charged-movies-of-all-time/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)

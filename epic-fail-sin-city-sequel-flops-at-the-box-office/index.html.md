@@ -3,7 +3,7 @@ title: "Epic Fail: Sin City Sequel Flops at the Box Office ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/epic-fail-sin-city-sequel-flops-at-the-box-office/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Epic Fail: Sin City Sequel Flops at the Box Office ...
@@ -20,16 +20,16 @@ I haven't seen it yet, but in spite of early reviews, I do plan to. Did you see 
 
 ## Related Posts
 
-- [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
-- [8 Horror Flicks Based on True Stories ...](https://movies.allwomenstalk.com/horror-flicks-based-on-true-stories/)
-- [7 Most Awesome John Waters Movies ...](https://movies.allwomenstalk.com/most-awesome-john-waters-movies/)
 - [7 Romantic Movies to Look Forward to ...](https://movies.allwomenstalk.com/romantic-movies-to-look-forward-to/)
 - [7 Things You Need to Know about the Paper Towns Mo...](https://movies.allwomenstalk.com/things-you-need-to-know-about-the-paper-towns-movie/)
+- [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
 - [7 Movies of 2015 That Are Already Stirring up Exci...](https://movies.allwomenstalk.com/movies-of-that-are-already-stirring-up-excitement/)
-- [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
-- [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
-- [First Trailer for One of Robin Williams Final Film...](https://movies.allwomenstalk.com/first-trailer-for-one-of-robin-williams-final-films-revealed/)
+- [7 Most Awesome John Waters Movies ...](https://movies.allwomenstalk.com/most-awesome-john-waters-movies/)
 - [7 Exciting Movies to Watch out for in 2015 ...](https://movies.allwomenstalk.com/exciting-movies-to-watch-out-for-in/)
+- [8 Horror Flicks Based on True Stories ...](https://movies.allwomenstalk.com/horror-flicks-based-on-true-stories/)
+- [Fun Flicks for Your Next Girls Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
+- [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
+- [First Trailer for One of Robin Williams Final Film...](https://movies.allwomenstalk.com/first-trailer-for-one-of-robin-williams-final-films-revealed/)
 - [The Hobbit Shooting in Jeopardy Once Again...](https://celebs.allwomenstalk.com/the-hobbit-shooting-in-jeopardy-once-again/)
 - [Hits  Misses at the Golden Globes](https://allwomenstalk.com/hits-misses-at-the-golden-globes/)
 

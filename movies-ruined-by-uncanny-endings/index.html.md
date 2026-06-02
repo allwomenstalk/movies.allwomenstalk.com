@@ -3,7 +3,7 @@ title: "7 Movies Ruined by Uncanny Endings ..."
 description: "Artificial Intelligence (2001); The Devil's Advocate (1997); The Wolverine (2013); The Lord of the Rings: the Return of the King (2003); I Am Legend (2007); More ..."
 url: "https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Movies Ruined by Uncanny Endings ...
@@ -50,16 +50,16 @@ Do you agree with my choices? Which other movies could have had better endings i
 
 ## Related Posts
 
-- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
 - [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
 - [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
 - [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
-- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
 - [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
 - [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
+- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 - [7 Movie Endings I Would Love to Change ...](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
 

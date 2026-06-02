@@ -3,7 +3,7 @@ title: "10 All Time Favorite TV Show Characters You Wish Were Your Best Friends 
 description: "Joey Tribbiani from Friends; Robin Scherbatsky from How I Met Your Mother; Barney Stinson from How I Met Your Mother; Jessica Day from New Girl; Leonard Hofstadter from the Big Bang Theory; More ..."
 url: "https://movies.allwomenstalk.com/all-time-favorite-tv-show-characters-you-wish-were-your-best-friends/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 All Time Favorite TV Show Characters You Wish Were Your Best Friends ...
@@ -60,16 +60,16 @@ Top Image Source: [hypable.com](https://www.hypable.com/new-girl-photo-shoot/)
 
 ## Related Posts
 
+- [popular tv shows of the 80s](https://movies.allwomenstalk.com/tv-shows-that-make-you-laugh-out-loud/)
+- [cult classic tv shows](https://movies.allwomenstalk.com/cult-tv-shows-worth-watching/)
 - [mischievous disney characters](https://movies.allwomenstalk.com/adorable-disney-characters/)
 - [random acts of kindness that cost money](https://lifestyle.allwomenstalk.com/random-acts-of-kindness/)
-- [7 oldest african tribes](https://travel.allwomenstalk.com/ancient-tribes-of-africa/)
-- [popular tv shows of the 80s](https://movies.allwomenstalk.com/tv-shows-that-make-you-laugh-out-loud/)
-- [all for good cause](https://lifestyle.allwomenstalk.com/organizations-you-should-know-about/)
-- [tv show proposals](https://movies.allwomenstalk.com/best-tv-proposals/)
-- [cult classic tv shows](https://movies.allwomenstalk.com/cult-tv-shows-worth-watching/)
-- [best bond villain](https://movies.allwomenstalk.com/best-bond-villains/)
 - [loreal paris le stylo shadow hollywood](https://movies.allwomenstalk.com/cartoons-made-for-adults/)
 - [funny bone movie](https://movies.allwomenstalk.com/shows-to-tickle-your-funny-bone/)
+- [all for good cause](https://lifestyle.allwomenstalk.com/organizations-you-should-know-about/)
+- [tv show proposals](https://movies.allwomenstalk.com/best-tv-proposals/)
+- [7 oldest african tribes](https://travel.allwomenstalk.com/ancient-tribes-of-africa/)
+- [best bond villain](https://movies.allwomenstalk.com/best-bond-villains/)
 - [10 Fall TV Shows I Cant Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 - [7 of My Favorite Fictional Characters ...](https://allwomenstalk.com/7-of-my-favorite-fictional-characters/)
 

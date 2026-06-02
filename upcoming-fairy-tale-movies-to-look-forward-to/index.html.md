@@ -3,7 +3,7 @@ title: "7 Upcoming Fairy Tale Movies to Look Forward to ..."
 description: "Maleficent; Jupiter Ascending; Into the Woods; Cinderella; Pan; More ..."
 url: "https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Upcoming Fairy Tale Movies to Look Forward to ...
@@ -44,15 +44,15 @@ I'm having a hard time deciding what I'm looking forward to most: a fairy tale m
 
 ## Related Posts
 
-- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
-- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
 - [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
-- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
 - [best of tyler perry movies](https://movies.allwomenstalk.com/tyler-perry-movies-that-teach-us-valuable-lessons/)
 - [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
+- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
+- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Upcoming Romantic Movies You Will Love ...](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)

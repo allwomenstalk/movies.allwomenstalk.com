@@ -3,7 +3,7 @@ title: "7 Entertaining Animated Non-Disney Movies from My Childhood ..."
 description: "Thumbelina; The Land before Time; The Iron Giant; The Swan Princess; Anastasia; More ..."
 url: "https://movies.allwomenstalk.com/entertaining-animated-non-disney-movies-from-my-childhood/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Entertaining Animated Non\-Disney Movies from My Childhood ...
@@ -42,16 +42,16 @@ Although Disney mainly rules the category of awesome animated movies, I still ha
 
 ## Related Posts
 
+- [9 Awesome TV Shows You Should Binge-Watch This Wee...](https://movies.allwomenstalk.com/awesome-tv-shows-you-should-binge-watch-this-weekend/)
+- [9 Compelling Movies Featuring Ryan Gosling to Look...](https://movies.allwomenstalk.com/compelling-movies-featuring-ryan-gosling-to-look-out-for/)
+- [7 Movies Based on Historic Events We Should All Wa...](https://movies.allwomenstalk.com/movies-based-on-historic-events-we-should-all-watch/)
 - [amanda seyfried musicals](https://movies.allwomenstalk.com/amazing-musicals-i-wouldnt-mind-watching-over-and-over-again/)
-- [7 Great Movies That Almost Didnt Make It to the Bi...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
-- [11 Eighties Movies Everyone Has to Watch at Least ...](https://movies.allwomenstalk.com/eighties-movies-everyone-has-to-watch-at-least-once/)
 - [7 Broadway Shows That Should Be Movies ...](https://movies.allwomenstalk.com/broadway-shows-that-should-be-movies/)
+- [11 Eighties Movies Everyone Has to Watch at Least ...](https://movies.allwomenstalk.com/eighties-movies-everyone-has-to-watch-at-least-once/)
+- [7 Great Movies That Almost Didnt Make It to the Bi...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
 - [loreal paris le stylo eye amour](https://movies.allwomenstalk.com/movies-with-the-best-new-years-scenes/)
 - [9 Brilliant Bad-but-Good Movies That Are Perfect f...](https://movies.allwomenstalk.com/brilliant-bad-but-good-movies-that-are-perfect-for-movie-night/)
 - [7 of the Most Anticipated Movies of 2014 ...](https://movies.allwomenstalk.com/of-the-most-anticipated-movies-of-2014-2/)
-- [7 Movies Based on Historic Events We Should All Wa...](https://movies.allwomenstalk.com/movies-based-on-historic-events-we-should-all-watch/)
-- [9 Awesome TV Shows You Should Binge-Watch This Wee...](https://movies.allwomenstalk.com/awesome-tv-shows-you-should-binge-watch-this-weekend/)
-- [9 Compelling Movies Featuring Ryan Gosling to Look...](https://movies.allwomenstalk.com/compelling-movies-featuring-ryan-gosling-to-look-out-for/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 - [My 7 Favourite Cartoons ...](https://movies.allwomenstalk.com/my-favourite-cartoons/)
 

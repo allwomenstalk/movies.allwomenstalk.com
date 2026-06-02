@@ -3,7 +3,7 @@ title: "9 Devastatingly Disastrous Movie Remakes ..."
 description: "Psycho; Piranha; The Ladykillers; Cape Fear; Dinner for Schmucks; More ..."
 url: "https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Devastatingly Disastrous Movie Remakes ...
@@ -52,16 +52,16 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/13736271)
 
 ## Related Posts
 
-- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
 - [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
-- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
-- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
-- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
-- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
-- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
 - [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
-- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
+- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
 - [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
+- [7 Top Zombie Flicks You Shouldnt Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
+- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
+- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
+- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
+- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
+- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 

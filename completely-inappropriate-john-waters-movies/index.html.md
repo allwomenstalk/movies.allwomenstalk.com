@@ -3,7 +3,7 @@ title: "7 Completely Inappropriate John Waters Movies ..."
 description: "Pink Flamingos; Cry-Baby; Pecker; Serial Mom; Hairspray; More ..."
 url: "https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Completely Inappropriate John Waters Movies ...
@@ -42,16 +42,16 @@ The thing I love most about the majority of **John Waters movies** is their unwi
 
 ## Related Posts
 
-- [dramatic bollywood movies](https://movies.allwomenstalk.com/top-beautifully-made-bollywood-films/)
-- [top most expensive movies](https://movies.allwomenstalk.com/the-most-expensive-movies-ever-made/)
-- [inspired by a true story movies](https://movies.allwomenstalk.com/great-movies-inspired-by-true-stories/)
+- [inspiring films](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)
 - [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
+- [dramatic bollywood movies](https://movies.allwomenstalk.com/top-beautifully-made-bollywood-films/)
 - [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
+- [top most expensive movies](https://movies.allwomenstalk.com/the-most-expensive-movies-ever-made/)
+- [best european movies ever](https://movies.allwomenstalk.com/new-european-movies-to-definitely-watch/)
 - [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
 - [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
+- [inspired by a true story movies](https://movies.allwomenstalk.com/great-movies-inspired-by-true-stories/)
 - [blockbusters 2012](https://movies.allwomenstalk.com/most-anticipated-blockbusters-for-everyones-got-to-see/)
-- [best european movies ever](https://movies.allwomenstalk.com/new-european-movies-to-definitely-watch/)
-- [inspiring films](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)
 - [5 Horrible Horror Movies to Miss ...](https://twilight.allwomenstalk.com/5-horrible-horror-movies-to-miss/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

@@ -3,7 +3,7 @@ title: "8 Influential Movie Mentors Who Shaped Iconic Stories"
 description: "Yoda from Star Wars; Professor Charles Xavier from X-Men; Gordon Gekko from Wall Street; Mr. Miyagi from The Karate Kid; More ..."
 url: "https://movies.allwomenstalk.com/top-movie-mentors/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Influential Movie Mentors Who Shaped Iconic Stories
@@ -28,16 +28,16 @@ Mr. Miyagi remains the gold standard for movie mentors. His famous "wax on, wax 
 
 ## Related Posts
 
-- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
 - [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
-- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
-- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
 - [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
+- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 

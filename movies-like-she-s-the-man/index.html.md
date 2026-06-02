@@ -3,7 +3,7 @@ title: "Movies like Shes the Man to Watch at Your Next Sleepover ..."
 description: "Easy a (2010); Raise Your Voice (2004); A Cinderella Story (2004); Stick It (2006); Bend It like Beckham (2002); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-she-s-the-man/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Movies like Shes the Man to Watch at Your Next Sleepover ...
@@ -54,16 +54,16 @@ These movies like She’s the Man are super entertaining and inspiring. What kin
 
 ## Related Posts
 
-- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
-- [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
-- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
-- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
-- [My Evening at the grindhouse ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
-- [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
-- [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
-- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
-- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
 - [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
+- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
+- [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
+- [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
+- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
+- [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
+- [My Evening at the grindhouse ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
+- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
+- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [10 Classic High School Movies to Watch with Friend...](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
 

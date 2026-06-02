@@ -3,7 +3,7 @@ title: "7 Fun Facts about Disneys the Little Mermaid You Didnt Know ..."
 description: "Alyssa Milano; Ursula and Triton; Carlotta and Cinderella; Divine; Flotsam and Jetsam; More ..."
 url: "https://movies.allwomenstalk.com/fun-facts-about-disneys-the-little-mermaid-you-didnt-know/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Fun Facts about Disneys the Little Mermaid You Didnt Know ...
@@ -56,16 +56,16 @@ There are so many fun facts about The Little Mermaid that my mind is just swimmi
 
 ## Related Posts
 
-- [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
-- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
-- [fun facts about lupus](https://health.allwomenstalk.com/facts-about-lupus-that-you-probably-didnt-know/)
 - [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
-- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
 - [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
-- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
+- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
 - [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
-- [fun fact about corn syrup](https://health.allwomenstalk.com/facts-about-high-fructose-corn-syrup-that-you-need-to-know/)
 - [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
+- [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
+- [fun fact about corn syrup](https://health.allwomenstalk.com/facts-about-high-fructose-corn-syrup-that-you-need-to-know/)
+- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
+- [fun facts about lupus](https://health.allwomenstalk.com/facts-about-lupus-that-you-probably-didnt-know/)
+- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [9 Interesting Facts about Mythology ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 

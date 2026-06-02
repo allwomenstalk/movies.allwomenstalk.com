@@ -3,7 +3,7 @@ title: "The Best Breakup Movies of All Time for Girls Who Love a Good Cry ..."
 description: "Kramer Vs. Kramer; The Way We Were; Breaking Upwards; Eternal Sunshine of the Spotless Mind; (500) Days of Summer; More ..."
 url: "https://movies.allwomenstalk.com/the-best-breakup-movies-of-all-time-for-girls-who-love-a-good-cry/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The Best Breakup Movies of All Time for Girls Who Love a Good Cry ...
@@ -112,16 +112,16 @@ A lesson in how to get rid of your psycho boyfriend AND your toxic friends. Free
 
 ## Related Posts
 
-- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
-- [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
-- [best mother movies](https://movies.allwomenstalk.com/movies-you-should-watch-with-your-mama-on-mothers-day/)
 - [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
-- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
-- [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
-- [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
 - [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
+- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
+- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
+- [best mother movies](https://movies.allwomenstalk.com/movies-you-should-watch-with-your-mama-on-mothers-day/)
+- [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
+- [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
+- [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

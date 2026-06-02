@@ -3,7 +3,7 @@ title: "Queen Bees from Movies and TV You Cant Help but Love ..."
 description: "Cher (Clueless); The Heathers (Heathers); The Plastics (Mean Girls); The Ashleys (Recess); Kate Sanders (Lizzie McGuire); More ..."
 url: "https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Queen Bees from Movies and TV You Cant Help but Love ...
@@ -68,16 +68,16 @@ Which Queen Bee would you be?
 
 ## Related Posts
 
-- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
-- [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
-- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
-- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
+- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
 - [what does nicole riot face tattoo say](https://beauty.allwomenstalk.com/these-feminist-tattoos-will-make-you-proud-to-be-a-woman/)
+- [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
 - [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
 - [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
 - [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
+- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
+- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
 - [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
-- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
+- [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 

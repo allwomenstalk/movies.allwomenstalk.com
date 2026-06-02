@@ -3,7 +3,7 @@ title: "21 True Crime Documentaries That Will Shock and Disturb You ..."
 description: "Dear Zachary: a Letter to a Son about His Father; The Jinx: the Life and Deaths of Robert Durst; The Thin Blue Line; The Paradise Lost Trilogy; West of Memphis; More ..."
 url: "https://movies.allwomenstalk.com/true-crime-shock-docs-that-will-keep-you-up-at-night/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 21 True Crime Documentaries That Will Shock and Disturb You ...
@@ -98,16 +98,16 @@ Hate, greed, insanity, revenge, passion, drugs – crime is everywhere, unfortun
 
 ## Related Posts
 
+- [antm best makeovers](https://movies.allwomenstalk.com/antms-most-unforgettable-makeovers-meltdowns-and-melodramas/)
+- [blackout arm tattoo meaning](https://funny.allwomenstalk.com/unfortunate-souls-who-really-really-regret-their-tattoos/)
+- [mark zuckerberg chinese](https://lifestyle.allwomenstalk.com/watch-mark-zuckerbergs-chinese-new-year-greeting-in-mandarin/)
+- [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
+- [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
 - [most addictive podcasts](https://lifestyle.allwomenstalk.com/extremely-addictive-podcasts-you-should-play-today/)
 - [famous kisses](https://love.allwomenstalk.com/historys-most-memorable-kisses/)
-- [antm best makeovers](https://movies.allwomenstalk.com/antms-most-unforgettable-makeovers-meltdowns-and-melodramas/)
-- [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
-- [downton abbey hair styles](https://movies.allwomenstalk.com/shows-that-downton-abbey-fans-will-flip-over/)
-- [mark zuckerberg chinese](https://lifestyle.allwomenstalk.com/watch-mark-zuckerbergs-chinese-new-year-greeting-in-mandarin/)
 - [stomach kisses](https://funny.allwomenstalk.com/yuk-stomach-churning-kisses-we-cant-stand/)
-- [tattoo skin stories](https://beauty.allwomenstalk.com/a-short-story-for-anyone-who-wants-a-tattoo/)
 - [cards against humanity funny](https://funny.allwomenstalk.com/the-funniest-cards-against-humanity-photos/)
-- [blackout arm tattoo meaning](https://funny.allwomenstalk.com/unfortunate-souls-who-really-really-regret-their-tattoos/)
+- [amazon scary stories to tell in the dark](https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [8 Top Impactful and Insightful Documentaries ...](https://movies.allwomenstalk.com/to-impactful-and-insightful-documentaries/)
 

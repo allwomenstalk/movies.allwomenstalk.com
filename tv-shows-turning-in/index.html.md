@@ -3,7 +3,7 @@ title: "10 TV Shows That Started 10 Years Ago in 2008 ..."
 description: "Breaking Bad (2008-2013); Sons of Anarchy (2008-2014); True Blood (2008-2014); The Mentalist (2008-2015); Fringe (2008-2013); More ..."
 url: "https://movies.allwomenstalk.com/tv-shows-turning-in/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 TV Shows That Started 10 Years Ago in 2008 ...
@@ -54,16 +54,16 @@ With the list done, it is expected that a list of shows that are turning twenty 
 
 ## Related Posts
 
-- [social media movies](https://movies.allwomenstalk.com/why-anyone-who-uses-social-media-should-watch-ingrid-goes-west/)
-- [phobia of disney](https://movies.allwomenstalk.com/fears-that-develop-from-watching-disney-movies/)
-- [fable forest](https://inspiration.allwomenstalk.com/the-fable-in-the-forest-by-erin-hanson/)
-- [tug of war relationship](https://love.allwomenstalk.com/love-tug-of-war/)
-- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
-- [we live in a world](https://lifestyle.allwomenstalk.com/we-live-in-a-fucked-up-world/)
-- [trapped in the tower](https://inspiration.allwomenstalk.com/trapped-by-erin-hanson/)
-- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
 - [thinking by walter d wintle pdf](https://inspiration.allwomenstalk.com/thinking-by-walter-d-wintle/)
+- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
+- [trapped in the tower](https://inspiration.allwomenstalk.com/trapped-by-erin-hanson/)
+- [fable forest](https://inspiration.allwomenstalk.com/the-fable-in-the-forest-by-erin-hanson/)
+- [social media movies](https://movies.allwomenstalk.com/why-anyone-who-uses-social-media-should-watch-ingrid-goes-west/)
+- [tug of war relationship](https://love.allwomenstalk.com/love-tug-of-war/)
+- [we live in a world](https://lifestyle.allwomenstalk.com/we-live-in-a-fucked-up-world/)
 - [why was toby fired](https://movies.allwomenstalk.com/times-the-offices-michael-scott-should-have-gone-to-jail/)
+- [phobia of disney](https://movies.allwomenstalk.com/fears-that-develop-from-watching-disney-movies/)
+- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
 

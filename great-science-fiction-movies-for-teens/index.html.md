@@ -3,7 +3,7 @@ title: "7 Great Science Fiction Movies for Teens ..."
 description: "Mortal Instruments: City of Bones; Ender’s Game; Star Wars; X-Men; E.T; More ..."
 url: "https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Great Science Fiction Movies for Teens ...
@@ -44,16 +44,16 @@ It is up to your child to decide what movies they want to love and what genres t
 
 ## Related Posts
 
-- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
-- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
-- [shirley valentine on netflix](https://movies.allwomenstalk.com/underrated-british-movies-that-deserve-some-serious-credit/)
+- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
-- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
-- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
+- [shirley valentine on netflix](https://movies.allwomenstalk.com/underrated-british-movies-that-deserve-some-serious-credit/)
 - [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
-- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
 - [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
+- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
+- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
+- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

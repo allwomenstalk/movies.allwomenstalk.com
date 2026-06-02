@@ -3,7 +3,7 @@ title: "7 of My All-Time Favorite Movies ..."
 description: "Pretty Woman; Sixteen Candles; Steel Magnolias; Shawshank Redemption; Monsters Inc; More ..."
 url: "https://movies.allwomenstalk.com/of-my-all-time-favorite-movies/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 of My All\-Time Favorite Movies ...
@@ -42,16 +42,16 @@ When I need to get away from it all, a movie is just the ticket, and these 7 mov
 
 ## Related Posts
 
-- [real paranormal movies](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
-- [10 Shows That Should Be Made into Movies ...](https://movies.allwomenstalk.com/shows-that-should-be-made-into-movies/)
-- [7 Romantic Comedies to Look Forward to in 2013 ...](https://7fun.net/romantic-comedies-to-look-forward-to-in/)
-- [9 Best Movies about Dancing ...](https://movies.allwomenstalk.com/best-movies-about-dancing/)
-- [movies inspired by video games](https://movies.allwomenstalk.com/movies-inspired-by-video-games/)
-- [8 Acclaimed Foreign Films to Watch ...](https://7fun.net/acclaimed-foreign-films-to-watch/)
 - [10 Must See Animated Movies ...](https://bilbr.com/must-see-animated-movies/)
+- [9 Best Movies about Dancing ...](https://movies.allwomenstalk.com/best-movies-about-dancing/)
+- [10 Shows That Should Be Made into Movies ...](https://movies.allwomenstalk.com/shows-that-should-be-made-into-movies/)
+- [movies inspired by video games](https://movies.allwomenstalk.com/movies-inspired-by-video-games/)
+- [7 Romantic Comedies to Look Forward to in 2013 ...](https://7fun.net/romantic-comedies-to-look-forward-to-in/)
+- [8 Acclaimed Foreign Films to Watch ...](https://7fun.net/acclaimed-foreign-films-to-watch/)
 - [7 TV Shows That Would Make Great Movies ...](https://movies.allwomenstalk.com/tv-shows-that-would-make-great-movies/)
-- [7 Great Health Documentaries to Watch ...](https://health.allwomenstalk.com/great-health-documentaries-to-watch/)
+- [real paranormal movies](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
 - [8 Most Anticipated Movies of 2013 ...](https://movies.allwomenstalk.com/most-anticipated-movies-of/)
+- [7 Great Health Documentaries to Watch ...](https://health.allwomenstalk.com/great-health-documentaries-to-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 

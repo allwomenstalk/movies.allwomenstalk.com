@@ -3,7 +3,7 @@ title: "9 of the Sweetest TV and Movie Proposals ..."
 description: "Jim and Pam – “the Office”; Julia and Robbie – “the Wedding Singer”; Michael and Holly – “the Office”; Scarlett and Rhett – “Gone with the Wind”; Monica and Chandler – “Friends”; More ..."
 url: "https://movies.allwomenstalk.com/of-the-sweetest-tv-and-movie-proposals/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 of the Sweetest TV and Movie Proposals ...
@@ -50,15 +50,15 @@ I can't be the only person who gets excited at the prospect of my favorite ficti
 
 ## Related Posts
 
+- [9 Fun Ways to Surprise Your Spouse ...](https://love.allwomenstalk.com/fun-ways-to-surprise-your-spouse/)
+- [7 Fantastic Ways to Show Your Support to Your Spou...](https://love.allwomenstalk.com/fantastic-ways-to-show-your-support-to-your-spouse/)
 - [shows to watch with your boyfriend](https://movies.allwomenstalk.com/tv-shows-to-watch-with-your-boyfriend-2/)
 - [signs your crush is your soulmate](https://love.allwomenstalk.com/things-your-soulmate-will-love-about-you/)
-- [unconventional dates](https://love.allwomenstalk.com/sweet-unconventional-dates-for-valentines-day/)
 - [how to be romantic on a budget](https://love.allwomenstalk.com/magical-ways-to-be-romantic-on-a-budget/)
-- [7 Best Date Ideas for Fall for a Perfect Time ...](https://love.allwomenstalk.com/best-date-ideas-for-fall-for-a-perfect-time/)
-- [9 Fun Ways to Surprise Your Spouse ...](https://love.allwomenstalk.com/fun-ways-to-surprise-your-spouse/)
-- [7 Lovely Ways to SurpRise Him and Keep the Spark A...](https://love.allwomenstalk.com/lovely-ways-to-surprise-him-and-keep-the-spark-alive/)
 - [7 Toasty and Warm Date Ideas for Cold Nights ...](https://love.allwomenstalk.com/toasty-and-warm-date-ideas-for-cold-nights/)
-- [7 Fantastic Ways to Show Your Support to Your Spou...](https://love.allwomenstalk.com/fantastic-ways-to-show-your-support-to-your-spouse/)
+- [unconventional dates](https://love.allwomenstalk.com/sweet-unconventional-dates-for-valentines-day/)
+- [7 Best Date Ideas for Fall for a Perfect Time ...](https://love.allwomenstalk.com/best-date-ideas-for-fall-for-a-perfect-time/)
+- [7 Lovely Ways to SurpRise Him and Keep the Spark A...](https://love.allwomenstalk.com/lovely-ways-to-surprise-him-and-keep-the-spark-alive/)
 - [7 Romantic Ideas for Fall Dates That You and Your ...](https://love.allwomenstalk.com/romantic-ideas-for-fall-dates-that-you-and-your-sweetie-will-love/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)

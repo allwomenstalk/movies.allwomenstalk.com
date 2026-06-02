@@ -3,7 +3,7 @@ title: "17 Shows You Should Watch if Youre Obsessed with British Boys ..."
 description: "Sherlock; Doctor Who; My Mad Fat Diary; Fawlty Towers; My Life in Film; More ..."
 url: "https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 17 Shows You Should Watch if Youre Obsessed with British Boys ...
@@ -82,16 +82,16 @@ Now you can find a new Brit to crush on! What's your favorite show with hot Brit
 
 ## Related Posts
 
-- [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
 - [ethan from 90210](https://movies.allwomenstalk.com/on-screen-couples-that-would-never-work-in-the-real-world/)
-- [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
-- [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
-- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
-- [talk shows nyc](https://travel.allwomenstalk.com/tv-shows-you-can-see-for-free-live-in-nyc/)
-- [beyonce twitter search](https://music.allwomenstalk.com/twitter-reactions-to-lemonade-every-beyonce-fan-must-see/)
 - [menstrual period gif](https://health.allwomenstalk.com/these-gifs-sum-up-period-week-perfectly/)
+- [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
 - [leighton meester and blake lively friends](https://celebs.allwomenstalk.com/these-on-screen-bffs-actually-hated-each-other-irl/)
 - [most dramatic reality shows](https://movies.allwomenstalk.com/of-the-best-trashy-yet-entertaining-tv-shows-to-watch/)
+- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
+- [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
+- [beyonce twitter search](https://music.allwomenstalk.com/twitter-reactions-to-lemonade-every-beyonce-fan-must-see/)
+- [talk shows nyc](https://travel.allwomenstalk.com/tv-shows-you-can-see-for-free-live-in-nyc/)
+- [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
 - [7 Reality Shows I Cant Miss ...](https://allwomenstalk.com/7-reality-shows-i-cant-miss/)
 - [8 Hottest British Celebrities ...](https://celebs.allwomenstalk.com/hottest-british-celebrities/)
 

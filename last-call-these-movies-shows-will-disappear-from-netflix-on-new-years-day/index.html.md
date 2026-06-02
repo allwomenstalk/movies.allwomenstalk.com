@@ -3,7 +3,7 @@ title: "Last Call! These 65 Movies & Shows Will Disappear from Netflix on New Ye
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/last-call-these-movies-shows-will-disappear-from-netflix-on-new-years-day/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Last Call! These 65 Movies & Shows Will Disappear from Netflix on New Years Day!
@@ -79,16 +79,16 @@ Are you upset about these movies leaving Netflix? Which ones will you be binge-w
 
 ## Related Posts
 
-- [7 Movies to Satisfy Your Wanderlust ...](https://movies.allwomenstalk.com/movies-to-satisfy-your-wanderlust/)
-- [The Best Movies to Watch after a Breakup ...](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup-2/)
-- [7 Fantastic Movies about Dance ...](https://movies.allwomenstalk.com/fantastic-movies-about-dance/)
-- [fashionista film](https://movies.allwomenstalk.com/most-fashionable-movies-every-fashionista-must-watch/)
+- [7 Classic Movies to Pull Style Inspiration from .....](https://movies.allwomenstalk.com/classic-movies-to-pull-style-inspiration-from/)
+- [honest trailers](https://movies.allwomenstalk.com/honest-movie-trailers-thatll-have-you-on-the-ground-laughing/)
 - [7 Recent Movies to Rent to Prevent Boredom ...](https://movies.allwomenstalk.com/recent-movies-to-rent-this-winter-to-prevent-boredom/)
 - [9 Movies That Will Inspire You to Pack up and Trav...](https://movies.allwomenstalk.com/movies-that-will-inspire-you-to-pack-up-and-travel-the-world/)
-- [honest trailers](https://movies.allwomenstalk.com/honest-movie-trailers-thatll-have-you-on-the-ground-laughing/)
-- [7 Horror Films You Should Not Watch Alone ...](https://7fun.net/horror-films-you-should-not-watch-alone/)
-- [7 Classic Movies to Pull Style Inspiration from .....](https://movies.allwomenstalk.com/classic-movies-to-pull-style-inspiration-from/)
+- [7 Fantastic Movies about Dance ...](https://movies.allwomenstalk.com/fantastic-movies-about-dance/)
+- [The Best Movies to Watch after a Breakup ...](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup-2/)
+- [7 Movies to Satisfy Your Wanderlust ...](https://movies.allwomenstalk.com/movies-to-satisfy-your-wanderlust/)
+- [fashionista film](https://movies.allwomenstalk.com/most-fashionable-movies-every-fashionista-must-watch/)
 - [15 Movies to Look Forward to in 2015 ...](https://bilbr.com/movies-to-look-forward-to-in/)
+- [7 Horror Films You Should Not Watch Alone ...](https://7fun.net/horror-films-you-should-not-watch-alone/)
 - [5 New Movies Coming out This Week ...](https://allwomenstalk.com/5-new-movies-coming-out-this-week/)
 - [5 New Movies Coming out This Week ...](https://allwomenstalk.com/5-new-movies-coming-out-this-week-2/)
 

@@ -3,7 +3,7 @@ title: "7 New Action Movies for 2014 ..."
 description: "Lone Survivor; 300: Rise of an Empire; Need for Speed; The Expendables 3; Edge of Tomorrow; More ..."
 url: "https://movies.allwomenstalk.com/new-action-movies-for/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 New Action Movies for 2014 ...
@@ -42,16 +42,16 @@ There are even more action movies out in 2014, so if you love this type of movie
 
 ## Related Posts
 
-- [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
-- [movie about roman empire](https://movies.allwomenstalk.com/movies-about-ancient-rome-i-highly-recommend/)
-- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
-- [great friends movie](https://movies.allwomenstalk.com/great-films-to-watch-with-your-best-friend/)
-- [things that only happen in movies](https://movies.allwomenstalk.com/things-that-only-happen-in-movies/)
 - [films with teachers](https://movies.allwomenstalk.com/best-movies-about-teachers-and-learning-youll-love/)
+- [raunchy comedies movies](https://movies.allwomenstalk.com/of-the-best-side-splitting-comedies-you-cant-afford-to-miss/)
+- [things that only happen in movies](https://movies.allwomenstalk.com/things-that-only-happen-in-movies/)
+- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
+- [movie about roman empire](https://movies.allwomenstalk.com/movies-about-ancient-rome-i-highly-recommend/)
+- [great friends movie](https://movies.allwomenstalk.com/great-films-to-watch-with-your-best-friend/)
+- [best idris elba movies](https://movies.allwomenstalk.com/brilliant-movies-featuring-idris-elba-that-youve-got-to-watch/)
+- [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
 - [films scarlett johansson](https://movies.allwomenstalk.com/extravagant-films-featuring-scarlett-johansson-that-showcase-her-talent/)
 - [weird romance movies](https://movies.allwomenstalk.com/unconventional-romantic-movies-that-are-a-bit-twisted/)
-- [raunchy comedies movies](https://movies.allwomenstalk.com/of-the-best-side-splitting-comedies-you-cant-afford-to-miss/)
-- [best idris elba movies](https://movies.allwomenstalk.com/brilliant-movies-featuring-idris-elba-that-youve-got-to-watch/)
 - [10 Best Action Movies of 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 

@@ -3,7 +3,7 @@ title: "7 Times the Movies Got History Wrong ..."
 description: "Braveheart; Enigma; Pocahontas; 300; Pearl Harbor; More ..."
 url: "https://movies.allwomenstalk.com/times-the-movies-got-history-wrong/"
 category: "movies"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Times the Movies Got History Wrong ...
@@ -42,15 +42,15 @@ If you watch a movie based on historical events, never take it as gospel that an
 
 ## Related Posts
 
-- [Favorite Couples in the Movies ...](https://bilbr.com/favorite-couples-in-the-movies/)
-- [best comedy holiday movies](https://movies.allwomenstalk.com/funniest-holiday-movies-for-christmas-chuckles/)
-- [Must-Watch Netflix Movies in the Fall ...](https://movies.allwomenstalk.com/must-watch-netflix-movies-in-the-fall/)
-- [17 Movies from 2015 to Put on Your Watch List ...](https://movies.allwomenstalk.com/movies-from-to-put-on-your-watch-list/)
-- [loreal paris eyeshadow mega blinged and](https://food.allwomenstalk.com/the-best-wines-to-go-with-your-favorite-netflix-shows/)
 - [The 25 2016 Movies That You Should Be Excited to S...](https://bilbr.com/the-movies-that-you-should-be-excited-to-see/)
-- [35 Movie Sequels to Be Excited about in 2016 ...](https://bilbr.com/movie-sequels-to-be-excited-about-in/)
 - [riche stylo smoky hollywood](https://movies.allwomenstalk.com/this-is-when-one-word-in-the-movies-becomes-iconic/)
+- [loreal paris eyeshadow mega blinged and](https://food.allwomenstalk.com/the-best-wines-to-go-with-your-favorite-netflix-shows/)
+- [Favorite Couples in the Movies ...](https://bilbr.com/favorite-couples-in-the-movies/)
 - [24 Movies We All Want Made into TV Shows ...](https://movies.allwomenstalk.com/movies-we-all-want-made-into-tv-shows/)
+- [35 Movie Sequels to Be Excited about in 2016 ...](https://bilbr.com/movie-sequels-to-be-excited-about-in/)
+- [Must-Watch Netflix Movies in the Fall ...](https://movies.allwomenstalk.com/must-watch-netflix-movies-in-the-fall/)
+- [best comedy holiday movies](https://movies.allwomenstalk.com/funniest-holiday-movies-for-christmas-chuckles/)
+- [17 Movies from 2015 to Put on Your Watch List ...](https://movies.allwomenstalk.com/movies-from-to-put-on-your-watch-list/)
 - [the Movies That Will Get You into the Holiday Spir...](https://movies.allwomenstalk.com/the-movies-that-will-get-you-into-the-holiday-spirit/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
