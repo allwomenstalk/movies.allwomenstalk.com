@@ -1,12 +1,12 @@
 ---
-title: "Queen Bees from Movies and TV You Cant Help but Love ..."
+title: "Queen Bees from Movies and TV You Can't Help but Love ..."
 description: "Cher (Clueless); The Heathers (Heathers); The Plastics (Mean Girls); The Ashleys (Recess); Kate Sanders (Lizzie McGuire); More ..."
 url: "https://movies.allwomenstalk.com/queen-bees-from-movies-and-tv-you-cant-help-but-love/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Queen Bees from Movies and TV You Cant Help but Love ...
+# Queen Bees from Movies and TV You Can't Help but Love ...
 
 I love a movie with a strong female character. And every teen movie/teen centric TV series has one or more queen bees to hang its hat on. Love them or hate them, many of the plots simply wouldn’t work without them. Let’s take a look at some of the most memorable queen bees from the movies and TV and then tell me who you love and who you want to bitch slap.
 
@@ -68,15 +68,15 @@ Which Queen Bee would you be?
 
 ## Related Posts
 
-- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
+- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
+- [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
+- [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
 - [what does nicole riot face tattoo say](https://beauty.allwomenstalk.com/these-feminist-tattoos-will-make-you-proud-to-be-a-woman/)
+- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
+- [best paying jobs for females](https://money.allwomenstalk.com/the-best-paying-jobs-for-women-in/)
 - [literary heroines](https://books.allwomenstalk.com/every-woman-should-look-up-to-these-literary-heroines/)
 - [inspirational barbies](https://celebs.allwomenstalk.com/inspirational-dolls-that-beat-barbies/)
 - [classic female movie stars](https://movies.allwomenstalk.com/the-greatest-female-movie-characters/)
-- [sarah scribbles boyfriend](https://funny.allwomenstalk.com/what-its-like-to-be-a-woman-in-the-modern-world-in-comics/)
-- [gender revals](https://parenting.allwomenstalk.com/awesome-gender-reveals/)
-- [dragon tattoos outline](https://beauty.allwomenstalk.com/drop-dead-gorgeous-dragon-tattoos/)
-- [site:allwomenstalk.com](https://love.allwomenstalk.com/ridiculous-myths-about-bisexual-women/)
 - [best female sitcom characters](https://movies.allwomenstalk.com/the-best-female-buddy-sitcoms-that-make-you-appreciate-your-bff/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)

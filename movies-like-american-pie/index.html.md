@@ -3,7 +3,7 @@ title: "Wild Movies like American Pie You Should Watch before Leaving for Colleg
 description: "American Pie – Presents Series (2005-2009); Project X (2012); Euro Trip (2004); Superbad (2007); Accepted (2006); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-american-pie/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Wild Movies like American Pie You Should Watch before Leaving for College ...
@@ -55,15 +55,15 @@ These movies like American Pie are hilarious and enjoyable. They remind you to l
 ## Related Posts
 
 - [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
-- [Movies Opening Today March 16 2007](https://allwomenstalk.com/movies-opening-today-march/)
-- [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
-- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
-- [My Evening at the grindhouse ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
-- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
-- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [Film Review: “300″](https://allwomenstalk.com/film-review-300/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
-- [Film Review: 300](https://allwomenstalk.com/film-review-300/)
-- [Movies Opening Today March 23 2007 ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
+- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
+- [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
+- [Movies Opening Today (March 2, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
+- [Movies Opening Today (March 16, 2007)](https://allwomenstalk.com/movies-opening-today-march/)
+- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [Movies Opening Today (March 23, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
+- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
 - [10 Classic High School Movies to Watch with Friend...](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
 - [15 Fabulous Chick Flicks to Watch during Sleepover...](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
 

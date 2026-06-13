@@ -3,7 +3,7 @@ title: "10 Cult TV Shows Worth Watching ..."
 description: "Lost; Buffy; Firefly; Pushing Daisies; Arrested Development; More ..."
 url: "https://movies.allwomenstalk.com/cult-tv-shows-worth-watching/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 10 Cult TV Shows Worth Watching ...
@@ -54,16 +54,16 @@ Cult TV shows are few and far between, but when they come around there’s no st
 
 ## Related Posts
 
-- [popular tv shows of the 80s](https://movies.allwomenstalk.com/tv-shows-that-make-you-laugh-out-loud/)
-- [prime suspect cancelled](https://movies.allwomenstalk.com/shows-cancelled-before-their-time/)
-- [sitcoms set in nyc](https://movies.allwomenstalk.com/ways-life-in-nyc-is-different-from-tv-shows/)
-- [fictional president movies](https://movies.allwomenstalk.com/of-the-best-fictional-presidents/)
-- [loreal paris le stylo shadow hollywood](https://movies.allwomenstalk.com/cartoons-made-for-adults/)
 - [best bond villain](https://movies.allwomenstalk.com/best-bond-villains/)
-- [7 oldest african tribes](https://travel.allwomenstalk.com/ancient-tribes-of-africa/)
 - [funny bone movie](https://movies.allwomenstalk.com/shows-to-tickle-your-funny-bone/)
-- [currencies no longer in circulation](https://money.allwomenstalk.com/currencies-that-have-disappeared/)
+- [fictional president movies](https://movies.allwomenstalk.com/of-the-best-fictional-presidents/)
 - [the 60s tv series](https://movies.allwomenstalk.com/enjoyable-60s-tv-series/)
+- [7 oldest african tribes](https://travel.allwomenstalk.com/ancient-tribes-of-africa/)
+- [loreal paris le stylo shadow hollywood](https://movies.allwomenstalk.com/cartoons-made-for-adults/)
+- [currencies no longer in circulation](https://money.allwomenstalk.com/currencies-that-have-disappeared/)
+- [sitcoms set in nyc](https://movies.allwomenstalk.com/ways-life-in-nyc-is-different-from-tv-shows/)
+- [prime suspect cancelled](https://movies.allwomenstalk.com/shows-cancelled-before-their-time/)
+- [popular tv shows of the 80s](https://movies.allwomenstalk.com/tv-shows-that-make-you-laugh-out-loud/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

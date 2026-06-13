@@ -1,12 +1,12 @@
 ---
-title: "10 Best Action Movies of 2010"
+title: "10 Best Action Movies of 2010 …"
 description: "The Expendables; Machete; Iron Man 2; Kick Ass; Bitch Slap; More ..."
 url: "https://movies.allwomenstalk.com/best-action-movies-of/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 Best Action Movies of 2010
+# 10 Best Action Movies of 2010 …
 
 When it comes to movies, my tastes are not what would be labelled conventionally feminine. In fact, my idea of cinematic hell would be sitting through even ten minutes of a chick flick; I’d much rather watch an action movie any day. Here are my pick of the action movies from last year – they may not be great films, but there’s plenty of action.
 
@@ -56,16 +56,16 @@ Top Photo Credit: [*Nobodycares*](https://www.flickr.com/photos/ijustbuildem/475
 
 ## Related Posts
 
-- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
-- [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
+- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
+- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
+- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
 - [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
 - [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
-- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
-- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
-- [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
-- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
+- [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 - [10 Romantic Movies of 2011 ...](https://7fun.net/romantic-movies-of-2011/)
 

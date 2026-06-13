@@ -3,7 +3,7 @@ title: "7 Roles That Would Have Gone to Other Actors ..."
 description: "Tom Cruise as Iron Man; Gwyneth Paltrow as Rose DeWitt; Russell Crowe as Wolverine; Britney Spears as Allie Hamilton; David Boreanaz as Batman; More ..."
 url: "https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Roles That Would Have Gone to Other Actors ...
@@ -56,16 +56,16 @@ Come to think of it, the job of casting actors for the main roles is one of the 
 
 ## Related Posts
 
-- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
-- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
-- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
-- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
-- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
-- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
-- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
 - [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
 - [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
+- [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
+- [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)
+- [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
+- [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
+- [toby regbo shirtless](https://celebs.allwomenstalk.com/teen-celebrities-worth-fangirling-over/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Potential Actors for James Bonds Role That Will Probably Never Happen ..."
+title: "7 Potential Actors for James Bond's Role That Will Probably Never Happen ..."
 description: "Liam Neeson; Ricky Gervais; Anthony Hopkins; Christian Bale; Robbie Williams; More ..."
 url: "https://movies.allwomenstalk.com/potential-actors-for-james-bonds-role-that-will-probably-never-happen/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Potential Actors for James Bonds Role That Will Probably Never Happen ...
+# 7 Potential Actors for James Bond's Role That Will Probably Never Happen ...
 
 After Liam Neeson rather sweetly revealed why he turned down one of Hollywood’s most coveted roles, I started thinking about actors for James Bond’s role that will probably never happen. Now I had to have a lot of discussions with legitimate James Bond fans to devise this list. It took a lot of agreement, but we did finally agree on potential actors for James Bond’s role that will probably never happen. These guys may not be up for the role, but I think they’d make fun Daniel Craig substitutes anyway.
 
@@ -57,14 +57,14 @@ I hope Daniel Craig will reign for a little longer. Maybe he will even beat Roge
 ## Related Posts
 
 - [kristin davis adopted child](https://celebs.allwomenstalk.com/celebrities-who-have-adopted-kids/)
-- [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
-- [who is ariana grande husband](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
-- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
 - [that wish would go away](https://celebs.allwomenstalk.com/celebrities-we-wish-would-go-away/)
-- [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
-- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
 - [how did tori kelly get famous](https://celebs.allwomenstalk.com/celebrities-who-have-praised-tori-kellys-talents/)
 - [obsession idris elba](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-hbos-girls/)
+- [who is ariana grande husband?](https://celebs.allwomenstalk.com/celebs-who-have-praised-ariana-grandes-talent/)
+- [louise lasser banned from snl](https://celebs.allwomenstalk.com/stars-banned-from-saturday-night-live/)
+- [who did scooter braun manage](https://celebs.allwomenstalk.com/celebs-who-have-scooter-braun-as-a-manager/)
+- [types of celebrities jobs](https://celebs.allwomenstalk.com/celebrities-who-had-interesting-careers-before-they-became-famous/)
+- [celebs in nashville](https://movies.allwomenstalk.com/celebs-from-nashville-who-love-to-live-tweet-during-the-show/)
 - [the prettiest hair in the world](https://hair.allwomenstalk.com/male-celebrities-with-great-hair/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [7 Best James Bond Actors ...](https://movies.allwomenstalk.com/7-best-james-bond-actors/)

@@ -1,12 +1,12 @@
 ---
-title: "11 90s Movies You Must Watch before You Die ..."
+title: "11 90's Movies You Must Watch before You Die ..."
 description: "Ghost (1990); Bill and Ted's Bogus Journey (1991); Flatliners; My Girl (1991); Groundhog Day (1993); More ..."
 url: "https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 11 90s Movies You Must Watch before You Die ...
+# 11 90's Movies You Must Watch before You Die ...
 
 The 90s was a great decade, and there are so many epic 90's movies you must watch that it's hard to list just a few! The decade that gave us Ghost (that pottery scene!), Flatliners and Jumanji also gave us a whole host of other 90's movies you must watch - so here are 11 that you simply have to see before you die.
 
@@ -58,16 +58,16 @@ So there you have it, 11 movies from the 90s that everyone should see before the
 
 ## Related Posts
 
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [twisted mind movies](https://movies.allwomenstalk.com/movies-with-twisted-plots-that-will-blow-your-mind/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
 - [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
 - [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
-- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
 - [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
+- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [best bingeworthy shows on netflix](https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 

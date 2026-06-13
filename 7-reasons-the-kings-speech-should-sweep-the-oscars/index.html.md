@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons the Kings Speech Should Sweep the Oscars ..."
+title: "7 Reasons the King's Speech Should Sweep the Oscars ..."
 description: "It Highlights Triumph over Disability; Royals Are Human Too; Colin Firth Deserves It; Because It’s a Costume Drama; Because I Don’t Really Think Much to the Competition; More ..."
 url: "https://movies.allwomenstalk.com/7-reasons-the-kings-speech-should-sweep-the-oscars/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons the Kings Speech Should Sweep the Oscars ...
+# 7 Reasons the King's Speech Should Sweep the Oscars ...
 
 Yes, I am coming at this with a very partisan point of view being British but I hope I can add just a soupcon of objectivity. After all, the contribution Britain makes to US and world cinema is always recognised by the amount of Golden Globes, SAG and Oscar nominations Brits receive, it’s just the conversion rate to actual award that is lacking.
 
@@ -44,17 +44,17 @@ Top Photo Credit: _Light Reflections_
 
 ## Related Posts
 
-- [7 Reasons I Heart Highlights ...](https://hair.allwomenstalk.com/7-reasons-i-heart-highlights/)
 - [i like spring](https://gardening.allwomenstalk.com/5-reasons-to-love-spring/)
-- [i love the fall](https://gardening.allwomenstalk.com/5-reasons-to-love-the-fall/)
-- [5 Reasons I like Perennials ...](https://gardening.allwomenstalk.com/5-reasons-i-like-perennials/)
-- [merlin the series](https://movies.allwomenstalk.com/reasons-to-watch-merlin-series/)
 - [why do people like lady gaga](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
-- [mac makeup product](https://makeup.allwomenstalk.com/reasons-i-love-m-a-c/)
-- [5 Reasons Why You Should like Lady Bugs ...](https://gardening.allwomenstalk.com/5-reasons-why-you-should-like-lady-bugs/)
-- [5 Reasons I like Koi Fish ...](https://gardening.allwomenstalk.com/5-reasons-i-like-koi-fish/)
 - [8 Reasons Celebrity Apprentice Keeps Pulling Me in...](https://celebs.allwomenstalk.com/8-reasons-celebrity-apprentice-keeps-pulling-me-in/)
-- [5 Reasons Youll like the Twilight Movie ...](https://twilight.allwomenstalk.com/5-reasons-youll-like-the-twilight-movie/)
+- [5 Reasons Why You Should like Lady Bugs ...](https://gardening.allwomenstalk.com/5-reasons-why-you-should-like-lady-bugs/)
+- [merlin the series](https://movies.allwomenstalk.com/reasons-to-watch-merlin-series/)
+- [mac makeup product](https://makeup.allwomenstalk.com/reasons-i-love-m-a-c/)
+- [7 Reasons I Heart Highlights ...](https://hair.allwomenstalk.com/7-reasons-i-heart-highlights/)
+- [5 Reasons I like Perennials ...](https://gardening.allwomenstalk.com/5-reasons-i-like-perennials/)
+- [i love the fall](https://gardening.allwomenstalk.com/5-reasons-to-love-the-fall/)
+- [5 Reasons I like Koi Fish ...](https://gardening.allwomenstalk.com/5-reasons-i-like-koi-fish/)
+- [5 Reasons You'll like the Twilight Movie ...](https://twilight.allwomenstalk.com/5-reasons-youll-like-the-twilight-movie/)
 - [Excellent Reasons Why Silent Films Are Amazing ...](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
 
 ## Site Information

@@ -3,7 +3,7 @@ title: "7 Upcoming Sequels and Prequels Releasing in 2014 ..."
 description: "300: Rise of an Empire, March 7; Legends of Oz: Dorthy’s Return, May 9; X-Men: Days of Future past, May 23; 22 Jump Street, June 13; Sin City: a Dame to Kill for, August 22; More ..."
 url: "https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Upcoming Sequels and Prequels Releasing in 2014 ...
@@ -42,16 +42,16 @@ The movies that I have mentioned are only a few of the sequels and prequels that
 
 ## Related Posts
 
-- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
-- [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
-- [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
-- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
-- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
-- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
-- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
-- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
-- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
+- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
+- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
+- [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
+- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
+- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
+- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
+- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
+- [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
 - [7 Upcoming Romantic Movies You Will Love ...](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [9 Cool Movies Coming out in 2011 ...](https://allwomenstalk.com/cool-movies-coming-out-in/)
 

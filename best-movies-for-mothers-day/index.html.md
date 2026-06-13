@@ -1,12 +1,12 @@
 ---
-title: "7 Best Movies for Mothers Day ..."
+title: "7 Best Movies for Mother's Day ..."
 description: "The Blind Side; The Joy Luck Club; Mamma Mia!; Stepmom; Postcards from the Edge; More ..."
 url: "https://movies.allwomenstalk.com/best-movies-for-mothers-day/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Best Movies for Mothers Day ...
+# 7 Best Movies for Mother's Day ...
 
 My collection of movies for Mother's Day consists of VHS tapes, DVDs and of course, soft files in my computer. I recently browsed through 20 of them to choose three movies for a Mother's Day film marathon with my husband. I ended up with seven choices, all of which I picked because they manage to tug at your heartstrings but still include the elements of fun and humor in the overall storyline. Here are the movies for Mother's Day I plan to watch in one go (no, I'm not sleeping!).
 
@@ -42,18 +42,18 @@ It’s going to be my first Mother’s Day with my own kids by my side (I was st
 
 ## Related Posts
 
-- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
-- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
 - [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
 - [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
+- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
+- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
 - [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
-- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
-- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [7 Best Movies for a Girls Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
+- [7 Best Movies for a Girls' Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 
 ## Site Information
 

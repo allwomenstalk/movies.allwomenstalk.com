@@ -1,12 +1,12 @@
 ---
-title: "Need a Good Cry? 7 RomComs Youll Need Tissues to Get through ..."
+title: "Need a Good Cry? 7 RomComs You'll Need Tissues to Get through ..."
 description: "Stuck in Love; Obvious Child; Love, Rosie; The Giant Mechanical Man; Notting Hill; More ..."
 url: "https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Need a Good Cry? 7 RomComs Youll Need Tissues to Get through ...
+# Need a Good Cry? 7 RomComs You'll Need Tissues to Get through ...
 
 If you know me at all, you know that I am a romantic comedy aficionado. You name it, and I have seen it, and I can also provide you with an in-depth analysis of why or why not I liked it. While I consider romantic comedies movies that make me laugh, sometimes we all just want to watch a romantic comedy that will make us cry. If you’re currently looking for your next movie for those days that you’re looking to have a cry session, this list has everything you could ever want. (And, spoiler alert: a lot of these options are on Netflix, making your next movie night even easier!)
 
@@ -42,16 +42,16 @@ What are your favorite romantic comedies when you need a good cry? Let me know i
 
 ## Related Posts
 
-- [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
-- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
-- [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
 - [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
-- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
 - [princesses in movies](https://movies.allwomenstalk.com/grab-a-bucket-of-popcorn-and-your-bucketlist-9-princess-movies-to-see-before-you-die/)
+- [last line of gone with the wind movie](https://movies.allwomenstalk.com/the-end-best-last-lines-in-the-movies/)
+- [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
+- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
+- [jim carrey martial arts](https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/)
+- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
+- [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
 - [films for sleepovers](https://movies.allwomenstalk.com/so-bad-that-theyre-good-awful-movies-to-enjoy-at-your-next-sleepover/)
 - [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
-- [last line of gone with the wind movie](https://movies.allwomenstalk.com/the-end-best-last-lines-in-the-movies/)
-- [jim carrey martial arts](https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/)
 - [7 Greatest Comfort Movies Ever ...](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Things We Learned from Historys down East Dickering ..."
+title: "7 Things We Learned from History's \"down East Dickering\" ..."
 description: "Everyone Has a Price; Everything is for Sale; Start High; Keep Your Friends Close; Never Act like You Need It; More ..."
 url: "https://movies.allwomenstalk.com/things-we-learned-from-historys-down-east-dickering/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Things We Learned from Historys down East Dickering ...
+# 7 Things We Learned from History's "down East Dickering" ...
 
 If you're not familiar with it, “Down East Dickering” is a show that premiered on the History channel during late spring. It is, in my humble opinion, the best thing that has ever happened. I'm officially in love with narrator and dickerer Tony Bennet, and his adorable dog, Duke. “Down East Dickering” takes place in Maine, and follows several groups of men who make their livings by bartering and dickering, using their wits, talents, and Uncle Henry's, a weekly publication where people place ads because they need to buy something, sell something, get something done, and so on. It's a new breed of reality show, filled with colorful characters and a surprising number of lessons to learn.
 
@@ -42,16 +42,16 @@ Sometimes you just have to walk away from a dicker – especially when you're go
 
 ## Related Posts
 
-- [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
-- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
-- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
-- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
-- [love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
 - [old disney cartoons shows](https://movies.allwomenstalk.com/old-disney-tv-shows-that-i-wish-came-back/)
+- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
+- [andrew davies: rewriting the classics](https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/)
+- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
+- [the real mccoy sketch show](https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/)
+- [@love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
+- [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
 - [girl meets world free online](https://movies.allwomenstalk.com/ways-girl-meets-world-is-living-up-to-boy-meets-world/)
 - [tales of survival](https://inspiration.allwomenstalk.com/tales-of-survival-you-wont-believe/)
-- [the real mccoy sketch show](https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/)
-- [andrew davies: rewriting the classics](https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/)
+- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
 - [8 Things Celebs Can Teach You about Dating ...](https://celebs.allwomenstalk.com/things-celebs-can-teach-you-about-dating/)
 - [10 Cool Things about Men ...](https://love.allwomenstalk.com/10-cool-things-about-men/)
 

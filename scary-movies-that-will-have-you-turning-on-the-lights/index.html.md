@@ -3,7 +3,7 @@ title: "7 Scary Movies That Will Have You Turning on the Lights ..."
 description: "The Echo (2008); Sinister (2012); Ju-on: the Grudge (2002); The Woman in Black (2012); The Awakening (2011); More ..."
 url: "https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Scary Movies That Will Have You Turning on the Lights ...
@@ -42,16 +42,16 @@ If you're going to watch any of these, make sure you at least have someone to ke
 
 ## Related Posts
 
-- [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
-- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
-- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
 - [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
 - [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
-- [goldie hawn 90s](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
 - [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
+- [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
 

@@ -1,12 +1,12 @@
 ---
-title: "81 Refashioned Re-envisaged and Minimalist Movie Posters ..."
+title: "81 Refashioned, Re-envisaged and Minimalist Movie Posters ..."
 description: "Peter Pan; Thor; The Wizard of Oz; The Walking Dead; Inception; More ..."
 url: "https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 81 Refashioned Re\-envisaged and Minimalist Movie Posters ...
+# 81 Refashioned, Re\-envisaged and Minimalist Movie Posters ...
 
 When I was producing my list of original movie posters, I came across an art genre I had never seen before. I had never imagined that there was such a wealth of fabulous art in movie posters that were different from the official and originals produced by the studios and distributors. There are some very clever artists and graphic designers out there who have created some excellent and fascinating minimalist movie posters.
 
@@ -632,16 +632,16 @@ I’ve been really impressed by the creativity of these movie posters. ‘m wond
 
 ## Related Posts
 
-- [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
-- [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
-- [jack black rock](https://movies.allwomenstalk.com/reasons-why-school-of-rock-is-the-best-jack-black-film-ever/)
-- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
-- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
-- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
 - [films on disney plus uk](https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/)
-- [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
-- [film about a nanny](https://movies.allwomenstalk.com/movies-about-nannies/)
+- [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
+- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
+- [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
 - [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
+- [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
+- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
+- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
+- [jack black rock](https://movies.allwomenstalk.com/reasons-why-school-of-rock-is-the-best-jack-black-film-ever/)
+- [film about a nanny](https://movies.allwomenstalk.com/movies-about-nannies/)
 - [5 Cool Twilight Posters ...](https://twilight.allwomenstalk.com/5-cool-twilight-posters/)
 - [3 Vintage Inspired Wedding Looks ...](https://wedding.allwomenstalk.com/3-vintage-inspired-wedding-looks/)
 

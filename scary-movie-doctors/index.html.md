@@ -3,7 +3,7 @@ title: "8 Scary Movie Doctors ..."
 description: "Dr. Frankenstein; Dr. Christian Szell; Dr. Henry Jekyll; Dr. Hannibal Lecter; Dr. Jed Hill; More ..."
 url: "https://movies.allwomenstalk.com/scary-movie-doctors/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 8 Scary Movie Doctors ...
@@ -50,16 +50,16 @@ Top Photo Credit: _peppergrasss_
 
 ## Related Posts
 
-- [7 Hauntings in Salem MA ...](https://paranormal.allwomenstalk.com/hauntings-in-salem-ma/)
-- [psychological thrillers movies](https://movies.allwomenstalk.com/pulsating-psychological-thrillers/)
-- [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
+- [7 Hauntings in Salem, MA ...](https://paranormal.allwomenstalk.com/hauntings-in-salem-ma/)
 - [iconic superheroes](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
-- [7 Ghost Stories Supposedly Proven ...](https://paranormal.allwomenstalk.com/ghost-stories-supposedly-proven/)
 - [characters with glasses in harry potter](https://movies.allwomenstalk.com/minor-harry-potter-characters/)
-- [batfink theme](https://movies.allwomenstalk.com/my-favourite-cartoons/)
-- [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
+- [psychological thrillers movies](https://movies.allwomenstalk.com/pulsating-psychological-thrillers/)
+- [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
+- [7 Ghost Stories Supposedly Proven ...](https://paranormal.allwomenstalk.com/ghost-stories-supposedly-proven/)
 - [7 Non-English TV Series That Used to Be Popular .....](https://movies.allwomenstalk.com/non-english-tv-series-that-used-to-be-popular/)
+- [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
+- [batfink theme](https://movies.allwomenstalk.com/my-favourite-cartoons/)
 - [8 Creepy Castles ...](https://travel.allwomenstalk.com/creepy-castles/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 

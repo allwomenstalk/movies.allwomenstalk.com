@@ -1,12 +1,12 @@
 ---
-title: "9 Awesome Disney Characters Who Should Appear on Once upon a Time ..."
+title: "9 Awesome Disney Characters Who Should Appear on \"Once upon a Time\" ..."
 description: "Ariel – “the Little Mermaid”; Jasmine – “Aladdin”; Tiana – “the Princess & the Frog”; Rapunzel – “Tangled”; Merlin – \"the Sword in the Stone\"; More ..."
 url: "https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 9 Awesome Disney Characters Who Should Appear on Once upon a Time ...
+# 9 Awesome Disney Characters Who Should Appear on "Once upon a Time" ...
 
 Ever since I first heard about the original premise for the show, I have been making a list of all of the Disney characters who should appear on "Once Upon a Time." With every angst-filled episode comes the anticipation of the next set of classic figures from everyone's favorite fairy tales that the writers could possibly depict. I applaud the show for being able to keep up with such a diverse cast! These Disney characters who should appear on “Once Upon a Time” are sure to add more depth to this incredibly intricate television program.
 
@@ -68,16 +68,16 @@ Ultimately, I know that I will continue watching this brilliant show regardless 
 
 ## Related Posts
 
-- [pokemon names turtle](https://lifestyle.allwomenstalk.com/original-pokemon-you-cant-help-but-love/)
+- [tv best friends](https://movies.allwomenstalk.com/awesome-tv-best-friends-you-and-your-bestie-should-admire/)
+- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
 - [miley cyrus inappropriate](https://celebs.allwomenstalk.com/craziest-miley-cyrus-moments-that-never-cease-to-amuse-us/)
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
 - [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
-- [tv best friends](https://movies.allwomenstalk.com/awesome-tv-best-friends-you-and-your-bestie-should-admire/)
 - [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
-- [day dreams about night things](https://lifestyle.allwomenstalk.com/common-daydreams-weve-all-had-when-bored/)
 - [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
-- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
+- [day dreams about night things](https://lifestyle.allwomenstalk.com/common-daydreams-weve-all-had-when-bored/)
+- [pokemon names turtle](https://lifestyle.allwomenstalk.com/original-pokemon-you-cant-help-but-love/)
+- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [10 Best Disney Princesses ...](https://allwomenstalk.com/7-best-disney-princesses/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Surprising Things You Didnt Know about Pretty Woman ..."
+title: "7 Surprising Things You Didn't Know about \"Pretty Woman\" ..."
 description: "Pretty Woman Was Originally Titled \"$3000\"; Julia’s Head Was Superimposed on the Body of Shelley Michelle for the Movie Poster; The Opera They Saw is Called “La Traviata”; The Necklace Scene Wasn’t Planned; Richard Gere Played a Piano Piece He Wrote; More ..."
 url: "https://movies.allwomenstalk.com/surprising-things-you-didnt-know-about-pretty-woman/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Surprising Things You Didnt Know about Pretty Woman ...
+# 7 Surprising Things You Didn't Know about "Pretty Woman" ...
 
 If you love romantic comedies and if Richard Gere and Julia Roberts are one of your favorite movie couples, then I’m sure that there are a lot of things you didn’t know about “Pretty Woman” that you can’t wait to find out. Pretty Woman is one of those modern classics that you have to see, if you haven’t already. It’s a modern day Cinderella story that launched the career of Julia Roberts and that quickly became one of the most popular and beloved movies out there. Here are 7 surprising things you didn’t know about “Pretty Woman” that I’m sure you’ll be very pleased to find out:
 
@@ -48,17 +48,17 @@ A very interesting fact about this movie is that the beautiful necklace that was
 ## Related Posts
 
 - [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
-- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
 - [how many hairs are in your eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-your-eyebrows/)
-- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
-- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
-- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
 - [fun facts about eczema](https://skincare.allwomenstalk.com/facts-about-eczema-that-might-surprise-you/)
+- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
 - [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
 - [amazing facts about hair](https://hair.allwomenstalk.com/fun-facts-and-bits-of-trivia-about-hair/)
+- [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
 - [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
 - [5 Must See Scenes from the Movie ...](https://twilight.allwomenstalk.com/5-must-see-scenes-from-the-movie/)
-- [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
+- [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 
 ## Site Information
 

@@ -3,7 +3,7 @@ title: "10 Great Books Becoming Movies in 2018 ..."
 description: "Peter Rabbit; Every Day; Red Sparrow; A Wrinkle in Time; Love, Simon; More ..."
 url: "https://movies.allwomenstalk.com/books-becoming-movies-in/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 10 Great Books Becoming Movies in 2018 ...
@@ -52,15 +52,15 @@ That’s right, another version of "The Jungle Book" is coming out! In compariso
 
 ## Related Posts
 
+- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
 - [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
-- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
-- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
 - [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
+- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
 - [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
 - [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
 - [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
-- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
 - [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Movies Based on Books ...](https://movies.allwomenstalk.com/movies-based-on-books/)

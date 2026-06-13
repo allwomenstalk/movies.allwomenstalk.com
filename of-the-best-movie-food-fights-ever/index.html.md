@@ -3,7 +3,7 @@ title: "7 of the Best Movie Food Fights Ever ..."
 description: "Blazing Saddles; Little Darlings; Animal House; PCU; Hook; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 of the Best Movie Food Fights Ever ...
@@ -42,16 +42,16 @@ What’s your favorite movie food fight? Have you ever been in a food fight? How
 
 ## Related Posts
 
-- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
-- [saddest rom coms](https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/)
 - [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
-- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
 - [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
-- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
-- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
-- [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
 - [top 50 highest-grossing movies in the world](https://movies.allwomenstalk.com/the-highest-grossing-movies-of-all-time/)
+- [taboo 1979 movie](https://movies.allwomenstalk.com/hottest-and-trendiest-movies-that-broke-sexual-taboos/)
+- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
+- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
+- [saddest rom coms](https://movies.allwomenstalk.com/need-a-good-cry-romcoms-youll-need-tissues-to-get-through/)
+- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
+- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
 - [7 Airlines That Serve the Best Food ...](https://travel.allwomenstalk.com/7-airlines-that-serve-the-best-food/)
 - [11 Memorable and Tasty Food Scenes in a Movie ...](https://movies.allwomenstalk.com/memorable-and-tasty-food-scenes-in-a-movie/)
 

@@ -3,7 +3,7 @@ title: "7 Dastardly Christmas Movie Villains ..."
 description: "The Grinch; Bad Santa; Frank Cross (Scrooged); Jack Frost (the Santa Clause 3); Hans Gruber (Die Hard); More ..."
 url: "https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Dastardly Christmas Movie Villains ...
@@ -42,14 +42,14 @@ So enjoy these Christmas-themed movies (although do be careful about whom you wa
 
 ## Related Posts
 
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
-- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
 - [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
-- [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
+- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)

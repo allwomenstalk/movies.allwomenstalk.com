@@ -1,12 +1,12 @@
 ---
-title: "Shonda Rhimes Hot Cast Teaches Us How to Get Away with Murder ..."
+title: "Shonda Rhimes' Hot Cast Teaches Us How to Get Away with Murder ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Shonda Rhimes Hot Cast Teaches Us How to Get Away with Murder ...
+# Shonda Rhimes' Hot Cast Teaches Us How to Get Away with Murder ...
 
 Shonda Rhimes is well-known for breaking our hearts via “Grey's Anatomy” and for keeping us on the edges of our seats via “Scandal.” She's quickly taking over the ABC line-up, with a brand new show on the docket: “How to Get Away with Murder.” This show promises to be phenomenal for a number of reasons: a strong female protagonist, of which there are still far too few; a solid, talented cast; and an interesting premise. The general attractiveness of the cast is a shallow thing to look forward to, of course, but in this case, it's also warranted. This also promises to be another Shonda joint filled with people who are as beautiful as they are talented.
 
@@ -16,17 +16,17 @@ Are you a sucker for a Shonda Rhimes show? Will you be watching the new series?
 
 ## Related Posts
 
-- [youtubers like bethany mota](https://movies.allwomenstalk.com/relatable-youtubers-you-must-add-to-your-subscription-box/)
 - [can cancelled shows come back](https://movies.allwomenstalk.com/tv-shows-that-came-back-on-after-being-cancelled/)
-- [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
-- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
 - [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
-- [rast game of thrones](https://movies.allwomenstalk.com/seemingly-important-game-of-thrones-characters-george-r-r-martin-has-killed/)
-- [ice bucket fails](https://funny.allwomenstalk.com/lets-watch-the-best-ever-ice-bucket-challenge-fails-shall-we/)
+- [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
 - [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
+- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
 - [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
+- [ice bucket fails](https://funny.allwomenstalk.com/lets-watch-the-best-ever-ice-bucket-challenge-fails-shall-we/)
+- [youtubers like bethany mota](https://movies.allwomenstalk.com/relatable-youtubers-you-must-add-to-your-subscription-box/)
+- [rast game of thrones](https://movies.allwomenstalk.com/seemingly-important-game-of-thrones-characters-george-r-r-martin-has-killed/)
 - [best songs about siblings](https://music.allwomenstalk.com/successful-bands-with-siblings/)
-- [Kate Winslets Hollywood Life ...](https://allwomenstalk.com/kate-winslets-hollywood-life/)
+- [Kate Winslet's Hollywood Life ...](https://allwomenstalk.com/kate-winslets-hollywood-life/)
 - [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
 
 ## Site Information

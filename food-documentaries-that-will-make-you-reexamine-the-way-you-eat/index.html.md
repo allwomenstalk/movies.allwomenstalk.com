@@ -3,7 +3,7 @@ title: "7 Food Documentaries That Will Make You Reexamine the Way You Eat ..."
 description: "Fat, Sick and Nearly Dead; Forks over Knives; Food Inc; Super Size Me; Vegucated; More ..."
 url: "https://movies.allwomenstalk.com/food-documentaries-that-will-make-you-reexamine-the-way-you-eat/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Food Documentaries That Will Make You Reexamine the Way You Eat ...
@@ -56,16 +56,16 @@ Most of these films can be found on Netflix or you can watch them for free onlin
 
 ## Related Posts
 
+- [paprika sibo](https://food.allwomenstalk.com/foods-to-avoid-if-you-have-ibs/)
+- [best food for sunburn](https://food.allwomenstalk.com/delicious-foods-that-fight-sunburn/)
+- [liquid the black forest rasa apa](https://food.allwomenstalk.com/vegan-oatmeal-recipes-that-are-healthy-and-taste-amazing/)
 - [healthy portable meals](https://food.allwomenstalk.com/healthy-and-portable-snacks-that-will-fuel-you-when-traveling/)
-- [can i eat cucumbers with ibs](https://health.allwomenstalk.com/fruits-and-vegetables-that-will-worsen-ibs-and-what-you-can-eat-instead/)
-- [whats the cheapest vegetable](https://food.allwomenstalk.com/cheap-veggies-to-buy-on-a-budget-and-still-eat-well/)
+- [what's the cheapest vegetable](https://food.allwomenstalk.com/cheap-veggies-to-buy-on-a-budget-and-still-eat-well/)
+- [what is the healthiest breakfast to eat](https://food.allwomenstalk.com/foods-that-are-good-for-a-healthy-breakfast/)
+- [power foods](https://food.allwomenstalk.com/new-power-foods-to-eat-for-a-stronger-you/)
 - [health nut near me](https://lifestyle.allwomenstalk.com/healthy-restaurants-that-cater-to-health-nuts-like-myself/)
 - [types of msg](https://food.allwomenstalk.com/super-sneaky-sources-of-msg-in-foods-that-you-should-avoid/)
-- [power foods](https://food.allwomenstalk.com/new-power-foods-to-eat-for-a-stronger-you/)
-- [liquid the black forest rasa apa](https://food.allwomenstalk.com/vegan-oatmeal-recipes-that-are-healthy-and-taste-amazing/)
-- [paprika sibo](https://food.allwomenstalk.com/foods-to-avoid-if-you-have-ibs/)
-- [what is the healthiest breakfast to eat](https://food.allwomenstalk.com/foods-that-are-good-for-a-healthy-breakfast/)
-- [best food for sunburn](https://food.allwomenstalk.com/delicious-foods-that-fight-sunburn/)
+- [can i eat cucumbers with ibs](https://health.allwomenstalk.com/fruits-and-vegetables-that-will-worsen-ibs-and-what-you-can-eat-instead/)
 - [7 Ways to save Money on Eating out ...](https://money.allwomenstalk.com/ways-to-save-money-on-eating-out/)
 - [7 Ways to save Money Eating out ...](https://allwomenstalk.com/7-ways-to-save-money-eating-out/)
 

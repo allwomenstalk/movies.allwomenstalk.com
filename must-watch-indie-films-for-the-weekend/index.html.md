@@ -3,7 +3,7 @@ title: "7 Must-Watch Indie Films for the Weekend ..."
 description: "Wild Target, 2009; Hanna, 2011; Zombieland, 2009; Don Jon, 2013; The House Bunny, 2008; More ..."
 url: "https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Must\-Watch Indie Films for the Weekend ...
@@ -42,16 +42,16 @@ There’s nothing quite like watching a movie that you’ve never heard of, and 
 
 ## Related Posts
 
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
-- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
-- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
 - [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
-- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
 - [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
 - [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
-- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
+- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
+- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

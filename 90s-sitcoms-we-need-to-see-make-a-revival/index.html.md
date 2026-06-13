@@ -1,12 +1,12 @@
 ---
-title: "7 90s Sitcoms We Need to See Make a Revival ..."
+title: "7 '90s Sitcoms We Need to See Make a Revival ..."
 description: "Full House; Boy Meets World; Friends; Who’s the Boss?; Sister, Sister; More ..."
 url: "https://movies.allwomenstalk.com/90s-sitcoms-we-need-to-see-make-a-revival/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 90s Sitcoms We Need to See Make a Revival ...
+# 7 '90s Sitcoms We Need to See Make a Revival ...
 
 Everyone loves '90s sitcoms, and in 2014, it’s about time a few of them came back for a reunion show (or season, we’re not picky). A few of our favorite '90s sitcoms are coming back, while others are vehemently against a reunion. Either way, we can always dream of these would-be glorious reunions one day coming to fruition!
 
@@ -42,15 +42,15 @@ What was your favorite '90s sitcom? Which show do you need to see make a revival
 
 ## Related Posts
 
-- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
-- [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
-- [sarah hughes skater wedding](https://celebs.allwomenstalk.com/great-olympic-ice-skaters-from-past-olympics/)
-- [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
 - [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
+- [sarah hughes skater wedding](https://celebs.allwomenstalk.com/great-olympic-ice-skaters-from-past-olympics/)
 - [wales myths and legends](https://lifestyle.allwomenstalk.com/welsh-myths-and-legends-to-rival-hollywood/)
-- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
+- [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
+- [tlc dating shows](https://movies.allwomenstalk.com/interesting-and-bizarre-shows-on-tlc/)
+- [awesome tv shows](https://movies.allwomenstalk.com/entertaining-but-eclectic-tv-series-for-your-next-binge-watch/)
 - [tv bromances](https://movies.allwomenstalk.com/tv-bromances-that-i-cant-get-enough-of/)
 - [american stereotypes in europe](https://travel.allwomenstalk.com/stereotypes-of-americans-held-by-other-countries/)
+- [outstanding scientists](https://lifestyle.allwomenstalk.com/most-outstanding-scientists-who-have-made-lifesaving-discoveries/)
 - [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
 - [7 Old TV Shows Worth Watching Again ...](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 - [7 Funniest Television Shows of All Time ...](https://allwomenstalk.com/7-funniest-television-shows-of-all-times/)

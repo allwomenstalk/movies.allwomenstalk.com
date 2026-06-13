@@ -1,12 +1,12 @@
 ---
-title: "8 Absolutely Awesome Trailers for New Movies I Cant Wait to See ..."
+title: "8 Absolutely Awesome Trailers for New Movies I Can't Wait to See ..."
 description: "The Hunger Games; The Muppet Movie; Hugo; The Best Exotic Marigold Hotel; Underworld: Awakening; More ..."
 url: "https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Absolutely Awesome Trailers for New Movies I Cant Wait to See ...
+# 8 Absolutely Awesome Trailers for New Movies I Can't Wait to See ...
 
 Last week, I saw the extended trailer for “The Hunger Games” on GMA, and I have to admit, it made me misty-eyed. I can’t wait to see it in March! I had to add it to my list of must-see new movies. It also got me thinking… what other new movies are coming out that I can’t wait to see? I did a little research and here they are… here are the trailers for 8 movies I can’t wait to see.
 
@@ -72,16 +72,16 @@ Top Photo Credit: [Isai Alvarado Photography](https://www.flickr.com/photos/lasg
 
 ## Related Posts
 
-- [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
-- [caddyshack party theme](https://movies.allwomenstalk.com/movie-night-party-ideas-that-rock/)
 - [kevin smith best movies](https://movies.allwomenstalk.com/kevin-smith-movies-i-love/)
+- [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
 - [dermot mulroony](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
-- [like what you see movie](https://movies.allwomenstalk.com/ways-to-know-if-youll-like-a-movie/)
-- [movie sequels better than original](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
-- [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
-- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [favorite movie characters](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
+- [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
+- [movie sequels better than original](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
+- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
+- [like what you see movie](https://movies.allwomenstalk.com/ways-to-know-if-youll-like-a-movie/)
+- [caddyshack party theme](https://movies.allwomenstalk.com/movie-night-party-ideas-that-rock/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 

@@ -1,12 +1,12 @@
 ---
-title: "Movies to Look Forward to in 2018 Part II ..."
+title: "Movies to Look Forward 🤗 to in 2018 Part II ..."
 description: "The Predator; A Star is Born; X-Men: Dark Phoenix; Fantastic Beasts: the Crimes of Grindelwald; Ralph Breaks the Internet: Wreck-It Ralph 2; More ..."
 url: "https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Movies to Look Forward  to in 2018 Part II ...
+# Movies to Look Forward 🤗 to in 2018 Part II ...
 
 You didn’t think that one article about **upcoming movies in 2018** would be enough, did you!? With so many new releases every single week in Hollywood and beyond, it is almost impossible to try to keep on top of everything but fear not, we’ve got a few more of the highest profile and most anticipated films that are going to be making their way to your local screens this year. 2018 is shaping up to be a mega year for cinema, and we can’t wait! Here are some more **movies to look forward to in 2018**.
 
@@ -38,16 +38,16 @@ Some truly great **movies to look forward to in 2018**. Yes?
 
 ## Related Posts
 
-- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
-- [Movies to Look Forward  to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
+- [Movies to Look Forward 🤗 to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
 - [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
-- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
-- [best chick flicks](https://7fun.net/best-ever-chick-flicks-every-girl-should-see-at-least-once/)
-- [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
-- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
-- [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
-- [20 Movies to Look Forward to Watching in 2019 ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-watching-in/)
+- [5 Movies That Are Perfect for Girl's Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
 - [Top 7 Realistic College Movies and TV Shows Perfec...](https://movies.allwomenstalk.com/realistic-college-movies-series/)
+- [20 best christmas movies](https://movies.allwomenstalk.com/the-best-christmas-movies-ever-made-that-need-to-be-on-your-watch-list-this-year/)
+- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
+- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
+- [20 Movies to Look Forward to Watching in 2019 ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-watching-in/)
+- [best chick flicks](https://7fun.net/best-ever-chick-flicks-every-girl-should-see-at-least-once/)
+- [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
 - [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 

@@ -1,12 +1,12 @@
 ---
-title: "15 Sad TV Deaths Im Still Not over ..."
+title: "15 Sad TV Deaths I'm Still Not over ..."
 description: "Paul Hennessy; J.T. Yorke; Joyce Summers; George O’Malley; Dr. Mark Greene; More ..."
 url: "https://movies.allwomenstalk.com/sad-tv-deaths-im-still-not-over/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 15 Sad TV Deaths Im Still Not over ...
+# 15 Sad TV Deaths I'm Still Not over ...
 
 When you watch as much TV as I do, it’s almost guaranteed that you will see your fair share of sad TV deaths. Seeing characters die is almost always sad, but there are some that will stick with you for a long time after the episode has aired. Maybe it’s because of the character that dies, the way it’s done, or the way the other characters react. Here are fifteen sad TV deaths I’m still not over.
 
@@ -75,17 +75,17 @@ This was a really hard article to write. Not for lack of ideas or because I didn
 ## Related Posts
 
 - [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
-- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
 - [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
-- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
-- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
-- [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
-- [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
 - [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
-- [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
+- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
+- [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
 - [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
+- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
+- [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
+- [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
-- [10 Fall TV Shows I Cant Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
+- [10 Fall TV Shows I Can't Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 
 ## Site Information
 

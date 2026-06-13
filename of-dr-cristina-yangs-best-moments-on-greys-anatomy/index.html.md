@@ -1,12 +1,12 @@
 ---
-title: "9 of Dr. Cristina Yangs Best Moments on Greys Anatomy ..."
+title: "9 of Dr. Cristina Yang's Best Moments on Grey's Anatomy ..."
 description: "You're My Person; Dancing It out; The Runaway Groom; The Vigil; Venting in the Vent; More ..."
 url: "https://movies.allwomenstalk.com/of-dr-cristina-yangs-best-moments-on-greys-anatomy/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 9 of Dr. Cristina Yangs Best Moments on Greys Anatomy ...
+# 9 of Dr. Cristina Yang's Best Moments on Grey's Anatomy ...
 
 You may be remembering Cristina Yang's best moments because as I write this, Grey's just had its season finale. Fans have said their goodbyes to the brilliant Dr. Yang, played by the incomparable Sandra Oh. I've watched Grey's Anatomy since its premiere, and Cristina has always been my favorite character. She brought something special not just to the show, but to TV in general. She broke stereotypes, followed her passions, and forged her own paths. Her goodbye was bittersweet, because it's hard not to be thrilled for the character. These are some of Cristina Yang's best moments, the moments that stand out to me. Please share yours as well.
 
@@ -50,16 +50,16 @@ Cristina has always been a standout on the show, and I'll miss seeing her every 
 
 ## Related Posts
 
-- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
+- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
 - [manuel bonaduce](https://celebs.allwomenstalk.com/matt-bomer-set-to-guest-star-on-ahs/)
 - [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
-- [parks and recreation bloopers season 3](https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/)
-- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
-- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
 - [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
-- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
 - [vanessa hudgens heels](https://fashion.allwomenstalk.com/best-vanessa-hudgens-looks/)
-- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
+- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
+- [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
+- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
+- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
+- [parks and recreation bloopers season 3](https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [9 Memorable TV Theme Songs ...](https://lifestyle.allwomenstalk.com/memorable-tv-theme-songs/)
 

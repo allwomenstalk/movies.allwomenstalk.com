@@ -3,7 +3,7 @@ title: "7 Long Running British Soap Operas ..."
 description: "Coronation Street; Eastenders; Emmerdale; Hollyoaks; Doctors; More ..."
 url: "https://movies.allwomenstalk.com/long-running-british-soap-operas/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Long Running British Soap Operas ...
@@ -42,16 +42,16 @@ As I am not a soap fan – I have dabbled with a few over the years and dip in a
 
 ## Related Posts
 
-- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
-- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
 - [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
-- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
+- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
+- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
 - [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
+- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
 - [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
+- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
 - [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
 - [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
-- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
-- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
+- [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

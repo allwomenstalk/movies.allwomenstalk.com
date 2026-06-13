@@ -3,7 +3,7 @@ title: "Adorable Pixar Shorts for Girls Who Are Still Kids at Heart ..."
 description: "Luxo Jr; Day & Night; Tin Toy; Geri’s Game; For the Birds; More ..."
 url: "https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Adorable Pixar Shorts for Girls Who Are Still Kids at Heart ...
@@ -54,18 +54,18 @@ Pixar Shorts just go to show that sometimes you don’t need full-length films t
 
 ## Related Posts
 
-- [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
-- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
-- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
-- [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
-- [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
-- [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
-- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
-- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
 - [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
 - [hot men movie](https://movies.allwomenstalk.com/hot-men-with-accents-star-in-these-thrilling-movies/)
+- [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
+- [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
+- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
+- [movies for single girls](https://movies.allwomenstalk.com/movies-thatll-make-you-love-the-single-life/)
+- [what is considered a chick flick](https://movies.allwomenstalk.com/the-problem-with-chick-flicks/)
+- [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
+- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
+- [high school romance comedy movies](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
 - [The Best Gifts for Girls That Can Touch Their Soul...](https://allwomenstalk.com/best-gifts-for-girls/)
-- [19 Adorable DIY Valentines Day Ideas for Kids ...](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
+- [19 Adorable DIY Valentine's Day Ideas for Kids ...](https://diy.allwomenstalk.com/adorable-diy-valentines-day-ideas-for-kids/)
 
 ## Site Information
 

@@ -1,12 +1,12 @@
 ---
-title: "11 Movies That Flopped Much to Everyones Surprise ..."
+title: "11 Movies That Flopped, Much to Everyone's Surprise ..."
 description: "John Carter (2012); The Fifth Estate (2013); Mars Needs Moms (2011); Speed Racer (2008); R.I.P.D (2013); More ..."
 url: "https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 11 Movies That Flopped Much to Everyones Surprise ...
+# 11 Movies That Flopped, Much to Everyone's Surprise ...
 
 The people that bought a ticket to these movies that flopped didn't know it, but their ticket was also valid for a one-way trip to Turkeytown. And not the good kind of Turkey, the one that gives you a food-baby at Thanksgiving. For a lot of these movies that flopped it was a surprise, as they seemed to have everything going for them. When push came to shove however, their box office results gave them a nice old shove off a cliff and into the sea, where they floated so far that not even big name stars with impressive abs could swim out and save them. Read on and find out which movies took a dive into oceans of debt.
 
@@ -59,15 +59,15 @@ While it's true that these movies made less money than an off-key busker, it doe
 ## Related Posts
 
 - [best audrey hepburn film](https://movies.allwomenstalk.com/of-audrey-hepburns-greatest-films/)
-- [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
+- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
 - [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
+- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
+- [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
 - [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
 - [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
-- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
-- [controversial movies of all time](https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/)
-- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
-- [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
 - [watch room in rome movie](https://movies.allwomenstalk.com/best-movies-to-watch-before-you-go-to-italy/)
+- [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
+- [controversial movies of all time](https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

@@ -3,7 +3,7 @@ title: "History Buffs Need to See These Netflix Period Pieces ..."
 description: "Miss Fisher's Murder Mysteries; Grand Hotel; The Paradise; Land Girls; The Bletchley Circle; More ..."
 url: "https://movies.allwomenstalk.com/history-buffs-need-to-see-these-netflix-period-pieces/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # History Buffs Need to See These Netflix Period Pieces ...
@@ -42,16 +42,16 @@ I love finding new period pieces to obsess over, so if you have any more recomme
 
 ## Related Posts
 
+- [7 Quintessential Summer Movies That Celebrate the ...](https://movies.allwomenstalk.com/quintessential-summer-movies-that-celebrate-the-season/)
+- [10 Great Movies Any Young Adult Can Relate to in L...](https://bilbr.com/great-movies-young-adults-can-relate-to/)
+- [elise rainier and lorraine warren](https://movies.allwomenstalk.com/horror-fanatics-will-love-these-movies/)
+- [Movies That Comic Book Lovers Cannot Miss in 2016/...](https://bilbr.com/movies-that-comic-book-lovers-cannot-miss-in-20162017/)
 - [Movies Based on True Stories Hitting Theaters in 2...](https://movies.allwomenstalk.com/movies-based-on-true-stories-hitting-theatres-in/)
 - [Movies for Girls Who Just Need a Good Cry Fest ...](https://bilbr.com/movies-that-will-jerk-more-tears-than-cutting-an-onion/)
-- [Movies That Comic Book Lovers Cannot Miss in 20162...](https://bilbr.com/movies-that-comic-book-lovers-cannot-miss-in-20162017/)
-- [7 Movies Made by Women That You Should See This Su...](https://movies.allwomenstalk.com/movies-made-by-women-that-you-should-see-this-summer/)
-- [7 Quintessential Summer Movies That Celebrate the ...](https://movies.allwomenstalk.com/quintessential-summer-movies-that-celebrate-the-season/)
 - [Hilarious Explanations of Your Favorite Films ...](https://movies.allwomenstalk.com/hilarious-explanations-of-your-favorite-films/)
-- [elise rainier and lorraine warren](https://movies.allwomenstalk.com/horror-fanatics-will-love-these-movies/)
-- [10 Great Movies Any Young Adult Can Relate to in L...](https://bilbr.com/great-movies-young-adults-can-relate-to/)
 - [Movies You and Your BFF Need to Watch This Weekend...](https://7fun.net/movies-to-watch-with-your-bffs-this-weekend/)
 - [loreal paris color riche le stylo shadow eternal s...](https://movies.allwomenstalk.com/romcoms-that-dont-insult-your-intelligence/)
+- [7 Movies Made by Women That You Should See This Su...](https://movies.allwomenstalk.com/movies-made-by-women-that-you-should-see-this-summer/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 - [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)
 

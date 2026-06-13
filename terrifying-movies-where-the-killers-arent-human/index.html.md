@@ -1,12 +1,12 @@
 ---
-title: "Terrifying Movies Where the Killers Arent Human ..."
+title: "Terrifying Movies Where the Killers Aren't Human ..."
 description: "Jaws; Snakes on a Plane; The Birds; Piranha; Deep Blue Sea; More ..."
 url: "https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Terrifying Movies Where the Killers Arent Human ...
+# Terrifying Movies Where the Killers Aren't Human ...
 
 I love a good horror movie with a menacing killer or two on the loose, wreaking havoc wherever they go, and there are some terrifying movies where the killers aren't human that you're sure to love. For some reason, the human mind loves to be terrified and there are films that promise thrills and spills galore with a little gore thrown in for good measure. From B movies in the 1950s with strange blob-like creatures to life-threatening leviathans, the movie industry has cashed in from the outset on our fears of all creatures great and without empathy. Here are my favorite terrifying movies where the killers have a pulse but not necessarily two legs!
 
@@ -42,14 +42,14 @@ These are my favorite movies where the killers aren't human, which are yours?
 
 ## Related Posts
 
+- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
 - [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
+- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
+- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
 - [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
 - [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
 - [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
-- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
-- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
-- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
-- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
 - [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
 - [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)

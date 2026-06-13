@@ -3,7 +3,7 @@ title: "In Celebration of Meryl Streep. Happy Birthday!"
 description: "Kramer Vs Kramer (1979); The Devil Wears Prada (2006); Dancing at Lughnasa (1998); Sophie’s Choice (1982); Holocaust (1978); More ..."
 url: "https://movies.allwomenstalk.com/so-many-choices-the-best-meryl-streep-movies/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # In Celebration of Meryl Streep. Happy Birthday!
@@ -103,17 +103,17 @@ Personally, I'm looking forward to her performance in the new Mary Poppins movie
 
 ## Related Posts
 
-- [Breast Cancer Awareness in New Jersey - Tamela Bee...](https://allwomenstalk.com/breast-cancer-awareness-new-jersey-tamela-beene-story/)
-- [6 Photos of Happy Birthday Claire](https://celebs.allwomenstalk.com/happy-birthday-claire-2/)
-- [kylie cosmetics losing money](https://celebs.allwomenstalk.com/the-rise-and-rise-of-kylie-jenner/)
-- [gigi hadid ab workout](https://fitness.allwomenstalk.com/how-gigi-hadid-gets-through-the-dreaded-plank-position/)
-- [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
 - [spunk shooting](https://wedding.allwomenstalk.com/a-spunk-filled-engagement-shoot-in-nyc/)
-- [twilight characters powers](https://twilight.allwomenstalk.com/a-biography-on-bella-swan-the-twilight-character-not-kristen-stewert/)
+- [gigi hadid ab workout](https://fitness.allwomenstalk.com/how-gigi-hadid-gets-through-the-dreaded-plank-position/)
 - [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
+- [kylie cosmetics losing money](https://celebs.allwomenstalk.com/the-rise-and-rise-of-kylie-jenner/)
+- [6 Photos of Happy Birthday Claire!](https://celebs.allwomenstalk.com/happy-birthday-claire-2/)
+- [Breast Cancer Awareness in New Jersey - Tamela Bee...](https://allwomenstalk.com/breast-cancer-awareness-new-jersey-tamela-beene-story/)
 - [kristen stewart brother cameron](https://twilight.allwomenstalk.com/a-biography-on-kristen-stewart/)
+- [twilight characters powers](https://twilight.allwomenstalk.com/a-biography-on-bella-swan-the-twilight-character-not-kristen-stewert/)
 - [bethenny frankel pregnancy](https://celebs.allwomenstalk.com/bethenny-pregnant-in-the-city/)
-- [Hallows Eve](https://allwomenstalk.com/hallows-eve/)
+- [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
+- [Hallows Eve!](https://allwomenstalk.com/hallows-eve/)
 - [Oscar Memories: Silver Screen Beauties ...](https://allwomenstalk.com/oscar-memories-silver-screen-beauties/)
 
 ## Site Information

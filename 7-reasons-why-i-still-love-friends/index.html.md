@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons Why I Still Love Friends ..."
+title: "7 Reasons Why I Still Love 'Friends' ..."
 description: "The Characters Are Still Endearing; The Women Dress Really Well; Phoebe’s Songs Are Still Hilarious; The Occasional Flashbacks to Monica’s Fat Days; The Opening Sequence; More ..."
 url: "https://movies.allwomenstalk.com/7-reasons-why-i-still-love-friends/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons Why I Still Love Friends ...
+# 7 Reasons Why I Still Love 'Friends' ...
 
 Friends, the show that took the world by storm, about six single 20 something friends living in New York, still survives on hundreds and hundreds of reruns. Very often two to three channels at a time broadcast Friends episodes and even though we’ve seen them all, we still love to watch it. Here are 7 reasons why I still love Friends.
 
@@ -45,14 +45,14 @@ Top image source: [theage.com.au](https://www.theage.com.au/ffximage/2005/01/19/
 ## Related Posts
 
 - [8 Reasons to Believe in Aliens ...](https://paranormal.allwomenstalk.com/8-reasons-to-believe-in-aliens/)
-- [mac makeup product](https://makeup.allwomenstalk.com/reasons-i-love-m-a-c/)
-- [why do people like lady gaga](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
-- [5 Reasons I like Perennials ...](https://gardening.allwomenstalk.com/5-reasons-i-like-perennials/)
-- [7 Reasons the Kings Speech Should Sweep the Oscars...](https://movies.allwomenstalk.com/7-reasons-the-kings-speech-should-sweep-the-oscars/)
 - [8 Reasons Celebrity Apprentice Keeps Pulling Me in...](https://celebs.allwomenstalk.com/8-reasons-celebrity-apprentice-keeps-pulling-me-in/)
-- [merlin the series](https://movies.allwomenstalk.com/reasons-to-watch-merlin-series/)
 - [movies like harry potter reddit](https://movies.allwomenstalk.com/reasons-to-watch-harry-potter-movies/)
 - [5 Reasons I like Koi Fish ...](https://gardening.allwomenstalk.com/5-reasons-i-like-koi-fish/)
+- [7 Reasons the King's Speech Should Sweep the Oscar...](https://movies.allwomenstalk.com/7-reasons-the-kings-speech-should-sweep-the-oscars/)
+- [merlin the series](https://movies.allwomenstalk.com/reasons-to-watch-merlin-series/)
+- [why do people like lady gaga](https://celebs.allwomenstalk.com/7-reasons-i-adore-lady-gaga/)
+- [5 Reasons I like Perennials ...](https://gardening.allwomenstalk.com/5-reasons-i-like-perennials/)
+- [mac makeup product](https://makeup.allwomenstalk.com/reasons-i-love-m-a-c/)
 - [i love the fall](https://gardening.allwomenstalk.com/5-reasons-to-love-the-fall/)
 - [5 Reasons Why I Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-twilight/)
 - [10 Reasons to Love Jennifer Aniston ...](https://allwomenstalk.com/10-reasons-to-love-jennifer-aniston/)

@@ -3,7 +3,7 @@ title: "Totally Crazy Roommates from Films That Will Make You Appriciate Yours .
 description: "Brynn – Bridesmaids (2011); Nomi Malone – Showgirls (1995); Lara Holleran – the Rules of Attraction (2002); Hedra Carlson – Single White Female (1992); Maggie Feller – in Her Shoes (2005); More ..."
 url: "https://movies.allwomenstalk.com/movie-roommates-you-really-wouldnt-want-to-be-stuck-with/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Totally Crazy Roommates from Films That Will Make You Appriciate Yours ...
@@ -68,16 +68,16 @@ I’m pretty sure none of you have ever had to deal with roommates this bad but 
 
 ## Related Posts
 
-- [when you fall asleep first at the sleepover](https://love.allwomenstalk.com/etiquette-for-sleeping-at-your-boyfriends-house/)
-- [i want to live alone but cant afford it](https://lifestyle.allwomenstalk.com/sharing-tips-for-ladies-who-cant-afford-to-live-alone/)
 - [how to get an apartment](https://money.allwomenstalk.com/how-to-turn-your-apartment-into-a-money-making-machine/)
 - [get off on the right foot](https://teen.allwomenstalk.com/how-to-get-off-on-the-right-foot-with-your-roommate/)
-- [dark secrets.com](https://lifestyle.allwomenstalk.com/deep-dark-secrets-you-share-with-your-roommate/)
-- [what to bring to sleepover at boyfriends](https://love.allwomenstalk.com/dont-forget-these-essentials-when-you-sleep-over-his-house/)
+- [when you fall asleep first at the sleepover](https://love.allwomenstalk.com/etiquette-for-sleeping-at-your-boyfriends-house/)
 - [roommate with benefits choices](https://teen.allwomenstalk.com/ways-to-get-off-to-a-good-start-with-your-roommate/)
-- [decorating first apartment](https://diy.allwomenstalk.com/real-world-101-how-to-decorate-your-first-apartment/)
-- [things to do with your boyfriend at his house](https://love.allwomenstalk.com/necessities-to-leave-in-your-boyfriends-bathroom/)
 - [how to celebrate moving in together](https://love.allwomenstalk.com/know-the-pros-and-cons-of-moving-in-together-before-you-take-that-leap/)
+- [i want to live alone but can't afford it](https://lifestyle.allwomenstalk.com/sharing-tips-for-ladies-who-cant-afford-to-live-alone/)
+- [what to bring to sleepover at boyfriend's](https://love.allwomenstalk.com/dont-forget-these-essentials-when-you-sleep-over-his-house/)
+- [dark secrets.com](https://lifestyle.allwomenstalk.com/deep-dark-secrets-you-share-with-your-roommate/)
+- [things to do with your boyfriend at his house](https://love.allwomenstalk.com/necessities-to-leave-in-your-boyfriends-bathroom/)
+- [decorating first apartment](https://diy.allwomenstalk.com/real-world-101-how-to-decorate-your-first-apartment/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [9 Amazing Quotes from Movies That I Can Relate to ...](https://movies.allwomenstalk.com/amazing-quotes-from-movies-that-i-can-relate-to/)
 

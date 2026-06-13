@@ -3,7 +3,7 @@ title: "9 Classic Film Musicals to Watch ..."
 description: "Across the Universe; Fiddler on the Roof; Mary Poppins; Sweeney Todd: the Demon Barber of Fleet Street; The Rocky Horror Picture Show; More ..."
 url: "https://movies.allwomenstalk.com/classic-film-musicals-you-must-watch/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 9 Classic Film Musicals to Watch ...
@@ -30,16 +30,16 @@ There are just some **classic film musicals you must watch**. Feel like you need
 
 ## Related Posts
 
-- [Movies to Look Forward  to in 2018 Part II ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/)
-- [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
-- [New Movies to Watch in March 2018 ...](https://movies.allwomenstalk.com/new-movies-to-watch-in-march/)
-- [Movies to Look Forward  to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
-- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
-- [5 Movies That Are Perfect for Girls Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
 - [Be a Star when You Stay in One of These Hotels fro...](https://travel.allwomenstalk.com/be-a-star-when-you-stay-in-one-of-these-hotels-from-the-movies/)
+- [New Movies to Watch in March 2018 ...](https://movies.allwomenstalk.com/new-movies-to-watch-in-march/)
 - [Top 10 Rom Coms Everyone Needs to See ...](https://7fun.net/romcoms-everyone-should-see/)
-- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
+- [Movies to Look Forward 🤗 to in 2018 Part II ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/)
+- [Movies to Look Forward 🤗 to in 2018 Part I ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-i/)
 - [zorro sprinkhaan](https://movies.allwomenstalk.com/movies-that-are-20-years-old-in-2018/)
+- [downton abbey myers briggs](https://movies.allwomenstalk.com/everything-you-need-to-know-about-the-new-downton-abbey-movie/)
+- [The Must See Movies This December ...](https://movies.allwomenstalk.com/the-must-see-movies-this-december/)
+- [Top 10 Movies for Romantics This Christmas ...](https://movies.allwomenstalk.com/top-movies-for-romantics-this-christmas/)
+- [5 Movies That Are Perfect for Girl's Night in ...](https://movies.allwomenstalk.com/movies-that-are-perfect-for-girls-night-in/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Reasons to Be Excited about ABCs Resurrection ..."
+title: "7 Reasons to Be Excited about ABC's \"Resurrection\" ..."
 description: "The Cast; A Little Realism; It's Sort of Stephen King Inspired; But without the Pet Sematary Connotations; No Zombies; More ..."
 url: "https://movies.allwomenstalk.com/reasons-to-be-excited-about-abcs-resurrection/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Reasons to Be Excited about ABCs Resurrection ...
+# 7 Reasons to Be Excited about ABC's "Resurrection" ...
 
 ABC's Resurrection gives me the heebie-jeebies, and I love that. You'll never hear me say that I don't watch a lot of TV; I watch TV all the time. I don't always watch good TV, granted, and you might be tempted to question my choices here, as well, since a lot of critics are calling ABC's Resurrection a cut-rate, Americanized version of The Returned (although Resurrection is based on The Returned, by Jason Mott, while Les Revenants is based on a movie – yes? I think), but bear with me. You should be excited about this show, if you like being creeped out and having your imagination tickled. You might totally disagree with me, and that's cool. But if you walk away from this feeling at least a little bit intrigued, then on Sundays, somewhere out there, we'll be watching the same creepshow.
 
@@ -42,16 +42,16 @@ Not everyone will enjoy ABC's Resurrection, and for all I know, it's going to ge
 
 ## Related Posts
 
-- [7 Awesome Reasons to Love Jennel Garcia ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jennel-garcia/)
-- [what is penny dreadful about](https://movies.allwomenstalk.com/reasons-to-watch-showtimes-penny-dreadful/)
-- [7 Reasons Why Emma Stone is BFF Material ...](https://celebs.allwomenstalk.com/reasons-why-emma-stone-is-bff-material/)
 - [xcx love](https://celebs.allwomenstalk.com/reasons-to-love-pop-star-charli-xcx/)
 - [7 Fantastic Reasons to Love Shailene Woodley ...](https://celebs.allwomenstalk.com/fantastic-reasons-to-love-shailene-woodley/)
-- [breaking bad pawn shop](https://movies.allwomenstalk.com/why-we-still-love-breaking-bad/)
 - [leslie knope personality type](https://celebs.allwomenstalk.com/reasons-why-leslie-knope-is-a-great-role-model/)
-- [7 Reasons Why Amy Poehler Would Be the Perfect BFF...](https://celebs.allwomenstalk.com/reasons-why-amy-poehler-would-be-the-perfect-bff/)
+- [7 Reasons Why Emma Stone is BFF Material ...](https://celebs.allwomenstalk.com/reasons-why-emma-stone-is-bff-material/)
 - [7 Awesome Reasons to Love Jaime King ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jaime-king/)
+- [7 Awesome Reasons to Love Jennel Garcia ...](https://celebs.allwomenstalk.com/awesome-reasons-to-love-jennel-garcia/)
+- [7 Reasons Why Amy Poehler Would Be the Perfect BFF...](https://celebs.allwomenstalk.com/reasons-why-amy-poehler-would-be-the-perfect-bff/)
 - [7 Reasons Why You Need to Start Watching Witches o...](https://movies.allwomenstalk.com/reasons-why-you-need-to-start-watching-witches-of-east-end/)
+- [what is penny dreadful about](https://movies.allwomenstalk.com/reasons-to-watch-showtimes-penny-dreadful/)
+- [breaking bad pawn shop](https://movies.allwomenstalk.com/why-we-still-love-breaking-bad/)
 - [5 Reasons to Love Zombies ...](https://twilight.allwomenstalk.com/5-reasons-to-love-zombies/)
 - [7 Reasons to Watch CSI ...](https://allwomenstalk.com/7-reasons-to-watch-csi/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 of the Best Dramatic Performances by Comedians Thatll Blow Your Mind ..."
+title: "7 of the Best Dramatic Performances by Comedians That'll Blow Your Mind ..."
 description: "Jim Carrey - Eternal Sunshine of the Spotless Mind; Steve Carell - Little Miss Sunshine; Mo’Nique - Precious; Adam Sandler - Reign over Me; Bill Murray - Lost in Translation; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 of the Best Dramatic Performances by Comedians Thatll Blow Your Mind ...
+# 7 of the Best Dramatic Performances by Comedians That'll Blow Your Mind ...
 
 I love watching dramatic performances by comedians. It shows a completely different side of them and really showcases their acting abilities. It’s been said that the best comedy comes from pain, so maybe that’s why taking on these serious roles came so easily to them? Take a look at some of the best dramatic performances by comedians! Tell me if you agree.
 
@@ -42,16 +42,16 @@ This sums up my list for the best dramatic performances by comedians. Keep in mi
 
 ## Related Posts
 
-- [bones nigel murray actor](https://movies.allwomenstalk.com/hot-guys-on-bones-who-take-our-breath-away/)
-- [lie to me canceled](https://movies.allwomenstalk.com/tv-shows-that-were-canceled-way-before-their-time/)
-- [7 Best Fan Vidders on YouTube ...](https://celebs.allwomenstalk.com/best-fan-vidders-on-youtube/)
-- [english comediennes](https://funny.allwomenstalk.com/british-comediennes-you-might-like-to-get-to-know/)
-- [best dysfunctional family tv shows](https://movies.allwomenstalk.com/of-the-most-dysfunctional-tv-couples/)
+- [britain's favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
-- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
 - [tv shows from the 2000s](https://movies.allwomenstalk.com/staple-american-shows-of-the-2000s/)
+- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
+- [best dysfunctional family tv shows](https://movies.allwomenstalk.com/of-the-most-dysfunctional-tv-couples/)
+- [lie to me canceled](https://movies.allwomenstalk.com/tv-shows-that-were-canceled-way-before-their-time/)
+- [english comediennes](https://funny.allwomenstalk.com/british-comediennes-you-might-like-to-get-to-know/)
+- [7 Best Fan Vidders on YouTube ...](https://celebs.allwomenstalk.com/best-fan-vidders-on-youtube/)
+- [bones nigel murray actor](https://movies.allwomenstalk.com/hot-guys-on-bones-who-take-our-breath-away/)
 - [miley cyrus lip sync battle](https://music.allwomenstalk.com/of-the-most-memorable-lip-syncing-fails/)
-- [britains favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [Top 7 Romantic Comedies ...](https://movies.allwomenstalk.com/top-romantic-comedies/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 

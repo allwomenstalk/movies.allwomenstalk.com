@@ -1,12 +1,12 @@
 ---
-title: "8 Colin Firth Movies I Cant Get Enough of ..."
+title: "8 Colin Firth Movies I Can't Get Enough of ..."
 description: "Valmont; Pride and Prejudice; Bridget Jones's Diary; A Single Man; The Importance of Being Earnest; More ..."
 url: "https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Colin Firth Movies I Cant Get Enough of ...
+# 8 Colin Firth Movies I Can't Get Enough of ...
 
 Colin Firth is far and away one of my favorite actors of all time. He's all upright and stodgy and sexy and proper and British – and he's an amazing thespian, at that. There are tons of his movies that I can – and do – watch over and over and over. You can basically check out his IMDb list to see all of them. For now, however, here are the top 8 Colin Firth movies I can't get enough of.
 
@@ -70,16 +70,16 @@ I haven't yet seen The King's Speech, but I can't wait. I know it's going to be 
 
 ## Related Posts
 
-- [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
-- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
-- [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
-- [what food to buy for a movie night](https://movies.allwomenstalk.com/best-snacks-for-movie-night-with-the-girls/)
 - [random list of movies](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
-- [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
+- [sexiest movie characters female](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 - [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
-- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
 - [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
+- [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
+- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
+- [what food to buy for a movie night](https://movies.allwomenstalk.com/best-snacks-for-movie-night-with-the-girls/)
+- [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
+- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

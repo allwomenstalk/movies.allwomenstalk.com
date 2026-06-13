@@ -3,7 +3,7 @@ title: "10 Awesome Brad Pitt Movies ..."
 description: "Mr. & Mrs. Smith; Fight Club; Ocean's Movies; Se7en; Meet Joe Black; More ..."
 url: "https://movies.allwomenstalk.com/awesome-brad-pitt-movies/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 10 Awesome Brad Pitt Movies ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21363707)
 
 ## Related Posts
 
-- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
+- [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
 - [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
+- [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
 - [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
-- [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
+- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
-- [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
-- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
+- [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
 - [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 

@@ -1,12 +1,12 @@
 ---
-title: "Jennifer Aniston Sparks Oscar Buzz in New Cake Trailer ..."
+title: "Jennifer Aniston Sparks Oscar Buzz in New \"Cake\" Trailer ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/jennifer-aniston-sparks-oscar-buzz-in-new-cake-trailer/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Jennifer Aniston Sparks Oscar Buzz in New Cake Trailer ...
+# Jennifer Aniston Sparks Oscar Buzz in New "Cake" Trailer ...
 
 There's a lot of buzz behind Daniel Barnz's new film and after seeing the first, official trailer, it's easy to see why! The trailer features a makeup-free Jennifer Aniston, who plays the role of Claire - a woman who becomes obsessed with the suicide of a member from her chronic pain support group (Anna Kendrick). She befriends the woman's widower (Sam Worthington) but as everything is turned upside down for her, she begins to see the woman around when she needs her most.
 
@@ -17,17 +17,17 @@ Lucy Punch, Chris Messina, Felicity Huffman, William H. Macy, Mamie Gummer, and 
 ## Related Posts
 
 - [helen mirren casual clothes](https://celebs.allwomenstalk.com/gorgeous-at-every-age-a-peek-inside-helen-mirrens-lookbook/)
-- [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
-- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
-- [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
-- [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
-- [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
-- [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
-- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
-- [This is What Kim Kardashian Would Print with a 3D ...](https://celebs.allwomenstalk.com/this-is-what-kim-kardashian-would-print-with-a-3d-printer/)
 - [victoria secret models no makeup](https://makeup.allwomenstalk.com/the-power-of-makeup-wait-til-you-see-these-victoria-secrets-models-au-naturel/)
-- [Angelina Reveals Her Latest Talent](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
-- [Meg Ryan and Matthew Perry in New Romance](https://allwomenstalk.com/meg-ryan-and-matthew-perry-in-new-romance/)
+- [solange photoshoot](https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/)
+- [This is What Kim Kardashian Would Print with a 3D ...](https://celebs.allwomenstalk.com/this-is-what-kim-kardashian-would-print-with-a-3d-printer/)
+- [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
+- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
+- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
+- [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
+- [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
+- [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
+- [Angelina Reveals Her Latest Talent…](https://celebs.allwomenstalk.com/angelina-reveals-her-latest-talent/)
+- [Meg Ryan and Matthew Perry in New Romance?](https://allwomenstalk.com/meg-ryan-and-matthew-perry-in-new-romance/)
 
 ## Site Information
 

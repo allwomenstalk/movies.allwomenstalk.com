@@ -3,7 +3,7 @@ title: "The 7 Best Sequels of All Times ..."
 description: "The Dark Knight; Terminator 2: Judgment Day; Quantum of Solace; Toy Story 2; X2: X-Men United; More ..."
 url: "https://movies.allwomenstalk.com/the-best-sequels-of-all-times/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # The 7 Best Sequels of All Times ...
@@ -44,16 +44,16 @@ Top image source: [screensavers.brothersoft.com](https://goo.gl/ES4JoI)
 
 ## Related Posts
 
-- [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
+- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [chick flicks best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
-- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
-- [john williams movie soundtracks](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
-- [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
 - [les choristes where to watch](https://movies.allwomenstalk.com/fabulous-french-films/)
 - [films to watch when sad](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
-- [movies that shouldnt be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [john williams movie soundtracks](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
+- [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
+- [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
+- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

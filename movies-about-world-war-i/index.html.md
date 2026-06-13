@@ -3,7 +3,7 @@ title: "7 Heart-Wrenching Movies about World War 1 Everyone Should See ..."
 description: "War Horse (2011); Regeneration (1997); Flyboys (2006); Gallipoli (1981); Paths of Glory (1957); More ..."
 url: "https://movies.allwomenstalk.com/movies-about-world-war-i/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Heart\-Wrenching Movies about World War 1 Everyone Should See ...
@@ -56,15 +56,15 @@ Movies about the First World War are disturbing yet educational, emotional yet a
 
 ## Related Posts
 
-- [movies where actors really did it](https://movies.allwomenstalk.com/movies-featuring-real-life-related-actors/)
-- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
 - [comedian movie on netflix](https://movies.allwomenstalk.com/quirky-comedies-on-netflix-for-movie-night/)
 - [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
 - [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
-- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
-- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
 - [robin williams height](https://movies.allwomenstalk.com/looking-forward-to-robin-williams-future-films/)
 - [films made in canada](https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/)
+- [movies about reporters](https://movies.allwomenstalk.com/insightful-movies-for-aspiring-journalists/)
+- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
+- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
+- [movies where actors really did it](https://movies.allwomenstalk.com/movies-featuring-real-life-related-actors/)
 - [minimalist movie](https://movies.allwomenstalk.com/refashioned-re-envisaged-and-minimalist-movie-posters/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)

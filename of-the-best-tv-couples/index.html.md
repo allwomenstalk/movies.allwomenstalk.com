@@ -3,7 +3,7 @@ title: "10 of the Best TV Couples ..."
 description: "Amy and Rory; Jim and Pam; Mulder and Scully; Jim and Melinda; Ross and Rachel; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-tv-couples/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 10 of the Best TV Couples ...
@@ -54,16 +54,16 @@ The best TV couples are the ones that make us laugh, cry, and get angry, happy, 
 
 ## Related Posts
 
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
 - [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
-- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
 - [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [The Top 10 Leading Men of All Time ...](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
 

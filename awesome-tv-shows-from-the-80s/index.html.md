@@ -1,12 +1,12 @@
 ---
-title: "8 Awesome TV Shows from the 80s ..."
+title: "8 Awesome TV Shows from the 80's ..."
 description: "The Facts of Life; Cheers; Family Ties; The Cosby Show; Miami Vice; More ..."
 url: "https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 8 Awesome TV Shows from the 80s ...
+# 8 Awesome TV Shows from the 80's ...
 
 TV shows from the 80’s were about big hair, crazy clothes, and being in a place where everyone knew your name! It was a time when we could connect with the issues of dealing with growing teen questions or getting away from our problems by hanging out at the local bar. TV shows from the 80’s gave us wholesome characters that we didn't mind watching together with our parents. Here are a few of my favorites.
 
@@ -62,16 +62,16 @@ Did you watch any of these TV shows from the 80’s? Did I forget any of your fa
 
 ## Related Posts
 
-- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
+- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
 - [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
 - [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
 - [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
-- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
+- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

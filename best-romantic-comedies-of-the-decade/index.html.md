@@ -3,7 +3,7 @@ title: "20 Best Romantic Comedies of the Decade ..."
 description: "High Fidelity; Vicky Cristina Barcelona; Lars and the Real Girl; Something Borrowed; Celeste and Jesse Forever; More ..."
 url: "https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 20 Best Romantic Comedies of the Decade ...
@@ -94,16 +94,16 @@ Romantic comedies are light, heartwarming, sweet, and surprisingly funny. Someti
 
 ## Related Posts
 
-- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
-- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
-- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
-- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
+- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
 - [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
+- [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
+- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
+- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 

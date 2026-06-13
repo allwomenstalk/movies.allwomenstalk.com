@@ -3,7 +3,7 @@ title: "7 Sweet TV Quotes about Love ..."
 description: "\"and if You Ever Decided to Leave Me I Would Go and Find You and Bring You Home Because You Would Be Wrong.\" – Mad about You; \"Because She's Your Lobster… It's a Known Fact That Lobsters Fall in Love and Mate for Life. You Know What? You Can Actually See Old Lobster Couples Walkin' around Their Tank, You Know, Holding Claws…\" – Friends; \"You and I Are Meant to Be Together. Period. the End. Cue Happy Ending Music.\" – Dawson’s Creek; \"I Was Just a Guy Who Had a Crush on a Girl, Who Had a Boyfriend. and I Had to do the Hardest Thing That I’ve Ever Had to do, Which Was Just to Wait… a Lot of People Told Me I Was Crazy to Wait This Long for a Date with a Girl I Work with but I Think, Even then I Knew That I Was Waiting for My Wife.\" – the Office; \"Together or Not at All.\" – Doctor Who; More ..."
 url: "https://movies.allwomenstalk.com/sweet-tv-quotes-about-love/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Sweet TV Quotes about Love ...
@@ -42,18 +42,18 @@ Trying to choose these quotes was extremely difficult because there are so many 
 
 ## Related Posts
 
-- [unexpected valentines day gifts](https://love.allwomenstalk.com/unexpected-valentines-day-gifts-for-your-lover/)
-- [valentines day decor ideas](https://diy.allwomenstalk.com/delightful-valentines-day-decor/)
-- [highly romantic scenes](https://movies.allwomenstalk.com/most-romantic-scenes-on-tv/)
 - [tell yourself i love you](https://lifestyle.allwomenstalk.com/ways-to-tell-yourself-i-love-you/)
-- [singles on valentines day](https://love.allwomenstalk.com/valentines-day-tips-for-singles/)
 - [shows to watch with your boyfriend](https://movies.allwomenstalk.com/tv-shows-to-watch-with-your-boyfriend/)
-- [gifts for preppy guys](https://love.allwomenstalk.com/valentines-day-gifts-to-get-your-man/)
+- [valentines day decor ideas](https://diy.allwomenstalk.com/delightful-valentines-day-decor/)
 - [10 pleasure coupons for him ideas](https://love.allwomenstalk.com/low-cost-ideas-for-valentines-day/)
+- [singles on valentine's day](https://love.allwomenstalk.com/valentines-day-tips-for-singles/)
 - [homemade valentines gift for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts-for-your-man/)
+- [highly romantic scenes](https://movies.allwomenstalk.com/most-romantic-scenes-on-tv/)
 - [most aphrodisiac foods](https://food.allwomenstalk.com/amazing-aphrodisiac-meals-for-valentines-day/)
+- [gifts for preppy guys](https://love.allwomenstalk.com/valentines-day-gifts-to-get-your-man/)
+- [unexpected valentine's day gifts](https://love.allwomenstalk.com/unexpected-valentines-day-gifts-for-your-lover/)
 - [7 Different Kinds of Love ...](https://allwomenstalk.com/7-different-kinds-of-love/)
-- [7 Ways to Say I Love You ...](https://allwomenstalk.com/7-ways-to-say-i-love-you/)
+- [7 Ways to Say 'I Love You' ...](https://allwomenstalk.com/7-ways-to-say-i-love-you/)
 
 ## Site Information
 

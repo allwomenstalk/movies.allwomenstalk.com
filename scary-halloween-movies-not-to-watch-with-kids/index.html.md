@@ -1,12 +1,12 @@
 ---
-title: "7 Scary Halloween Movies Not to Watch with Kids ..."
+title: "7 Scary Halloween Movies Not to Watch with Kids 🧒 ..."
 description: "Halloween; The Exorcist; The Shining; Alien; Aliens; More ..."
 url: "https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Scary Halloween Movies Not to Watch with Kids  ...
+# 7 Scary Halloween Movies Not to Watch with Kids 🧒 ...
 
 Get those old VHS tapes and VCDs out of the treasure trove as we celebrate the spookiest time of the year with **scary Halloween movies**. Dust off every bit of dirt that covers those precious finds and let us all sit down for an evening of screams and chills. Halloween is here and little kids will be out to scare up treats. But before you press that play button, make sure that you’re not playing any of these **scary Halloween movies** in the presence of children. Don’t tell me I didn't warn you:
 
@@ -42,16 +42,16 @@ Have you prepared any horror films that you are planning to watch this Halloween
 
 ## Related Posts
 
-- [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
-- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
-- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
-- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
-- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
-- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
-- [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
 - [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
+- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
+- [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
+- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
+- [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
+- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
+- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
+- [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
+- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Horrible Horror Movies to Miss ...](https://twilight.allwomenstalk.com/5-horrible-horror-movies-to-miss/)
 

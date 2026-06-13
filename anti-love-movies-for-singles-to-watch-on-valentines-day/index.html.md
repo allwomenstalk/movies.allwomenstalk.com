@@ -1,12 +1,12 @@
 ---
-title: "7 anti-Love Movies for Singles to Watch on Valentines Day ..."
+title: "7 anti-Love Movies for Singles to Watch on Valentine's Day ..."
 description: "Becoming Jane; The Stepford Wives; Fatal Attraction; Revolutionary Road; The Other Woman; More ..."
 url: "https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 anti\-Love Movies for Singles to Watch on Valentines Day ...
+# 7 anti\-Love Movies for Singles to Watch on Valentine's Day ...
 
 You can still celebrate Valentine's Day, even if you're single. You're just going to do it a little bit differently than all of your couple friends. Instead of giving someone chocolate and watching romantic movies, you should be eating chocolate and watching cynical movies. They'll help you remember that being in a relationship isn't always a party. Sometimes, it's just plain torturous. Here are some of the best anti-love movies to watch this Valentine's Day if you're feeling extra gloomy:
 
@@ -42,16 +42,16 @@ Valentine's Day shouldn't be a miserable time for all of you single ladies. It's
 
 ## Related Posts
 
+- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
+- [best tv shows you haven't seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
+- [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
+- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
 - [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
 - [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
-- [best tv shows you havent seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
 - [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
 - [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
-- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
-- [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
-- [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
-- [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [Top 7 Romantic Comedies ...](https://movies.allwomenstalk.com/top-romantic-comedies/)
 

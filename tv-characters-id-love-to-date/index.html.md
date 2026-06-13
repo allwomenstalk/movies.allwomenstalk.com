@@ -1,12 +1,12 @@
 ---
-title: "10 TV Characters Id Love to Date ..."
+title: "10 TV Characters I'd Love to Date ..."
 description: "Nick Miller; Rory Williams; Jim Halpert; Sam Winchester; Jason Stackhouse; More ..."
 url: "https://movies.allwomenstalk.com/tv-characters-id-love-to-date/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 TV Characters Id Love to Date ...
+# 10 TV Characters I'd Love to Date ...
 
 I thought this would be the easiest article to write since it’s just TV characters I’d love to date, but I was very wrong! If you watch as much TV as I do, you tend to get a lot of crushes, so picking just ten was no picnic. There are so many lovable guys on TV these days! So let’s take a look at some, but definitely not all, of the TV characters I’d love to date.
 
@@ -54,16 +54,16 @@ It was so hard to narrow down all of my TV crushes to just ten! I’m sure there
 
 ## Related Posts
 
-- [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
-- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
-- [celebrities get tired of](https://celebs.allwomenstalk.com/celebrities-im-not-quite-tired-of-hearing-about-yet/)
-- [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
-- [7 Movie Stars That Started on TV ...](https://movies.allwomenstalk.com/movie-stars-that-started-on-tv/)
 - [celebrity fashion icons](https://celebs.allwomenstalk.com/celebrity-style-icons-who-have-earned-their-title/)
-- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
+- [7 Movie Stars That Started on TV ...](https://movies.allwomenstalk.com/movie-stars-that-started-on-tv/)
+- [8 Shocking Celebrity Scandals from the past Year ....](https://celebs.allwomenstalk.com/shocking-celebrity-scandals-from-the-past-year/)
+- [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
 - [9 Most Successful Youtube Personalities That We Lo...](https://celebs.allwomenstalk.com/most-successful-youtube-personalities-that-we-love/)
-- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
 - [worst celebrity breakups](https://celebs.allwomenstalk.com/of-the-worst-celebrity-breakups/)
+- [riche le stylo always pearly](https://celebs.allwomenstalk.com/celebrities-who-may-have-had-plastic-surgery/)
+- [10 Hottest Looking Celebrities on the Red Carpet ....](https://celebs.allwomenstalk.com/hottest-looking-celebrities-on-the-red-carpet/)
+- [riche le stylo emerald](https://movies.allwomenstalk.com/celebrities-created-by-reality-shows/)
+- [celebrities get tired of](https://celebs.allwomenstalk.com/celebrities-im-not-quite-tired-of-hearing-about-yet/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 

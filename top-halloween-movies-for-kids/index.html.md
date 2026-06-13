@@ -1,12 +1,12 @@
 ---
-title: "Top 10 Halloween Movies for Kids ..."
+title: "Top 10 Halloween Movies for Kids 🧒 ..."
 description: "The Nightmare before Christmas; Corpse Bride; Casper; The Witches; It’s the Great Pumpkin Charlie Brown; More ..."
 url: "https://movies.allwomenstalk.com/top-halloween-movies-for-kids/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Top 10 Halloween Movies for Kids  ...
+# Top 10 Halloween Movies for Kids 🧒 ...
 
 Whether you’re a kid at heart, have a child or children of your own, or you’re babysitting tonight here are the top ten best Halloween movies for kids.
 
@@ -52,15 +52,15 @@ Saving the best for last, this is a classic worth watching again and again year 
 
 ## Related Posts
 
-- [right left halloween game](https://lifestyle.allwomenstalk.com/halloween-games-for-kids/)
-- [DIY Halloween Decor Ideas - Spook Up Your Home wit...](https://allwomenstalk.com/diy-halloween-decor-ideas-spook-up-your-home-efavormart/)
-- [Its THAT Time Your Costume Didnt Work out](https://allwomenstalk.com/its-that-time-your-costume-didnt-work-out/)
-- [samhain decorations diy](https://lifestyle.allwomenstalk.com/celebrating-samhain/)
-- [decorations for halloween cakes](https://baking.allwomenstalk.com/halloween-cakes-decorations-ideas/)
-- [Bad Celeb Costumes - Dont Attempt at Home](https://allwomenstalk.com/bad-celeb-costumes-dont-attempt-at-home/)
-- [Behind the Scenes: My Halloween Party ...](https://allwomenstalk.com/behind-the-scenes-my-halloween-party/)
-- [the cat in the hat costume](https://diy.allwomenstalk.com/simple-halloween-costumes-you-can-do-yourself/)
+- [Bad Celeb Costumes - Don't Attempt at Home!](https://allwomenstalk.com/bad-celeb-costumes-dont-attempt-at-home/)
+- [It's THAT Time, Your Costume Didn't Work outâ€¦](https://allwomenstalk.com/its-that-time-your-costume-didnt-work-out/)
 - [addams family zodiac](https://movies.allwomenstalk.com/the-best-halloween-movie-for-your-zodiac-sign/)
+- [the cat in the hat costume](https://diy.allwomenstalk.com/simple-halloween-costumes-you-can-do-yourself/)
+- [samhain decorations diy](https://lifestyle.allwomenstalk.com/celebrating-samhain/)
+- [Behind the Scenes: My Halloween Party ...](https://allwomenstalk.com/behind-the-scenes-my-halloween-party/)
+- [DIY Halloween Decor Ideas - Spook Up Your Home wit...](https://allwomenstalk.com/diy-halloween-decor-ideas-spook-up-your-home-efavormart/)
+- [decorations for halloween cakes](https://baking.allwomenstalk.com/halloween-cakes-decorations-ideas/)
+- [right left halloween game](https://lifestyle.allwomenstalk.com/halloween-games-for-kids/)
 - [Think Pink in October ...](https://allwomenstalk.com/think-pink-in-october/)
 - [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
 - [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)

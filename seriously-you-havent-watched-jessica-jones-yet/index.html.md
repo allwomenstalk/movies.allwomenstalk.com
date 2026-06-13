@@ -1,12 +1,12 @@
 ---
-title: "Seriously? You Havent Watched Jessica Jones Yet?"
+title: "Seriously? You Haven't Watched Jessica Jones Yet?"
 description: "David Tennant!; The Rest of the Cast; The Love Interest; Sexy Times!; Crossover Potential; More ..."
 url: "https://movies.allwomenstalk.com/seriously-you-havent-watched-jessica-jones-yet/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Seriously? You Havent Watched Jessica Jones Yet?
+# Seriously? You Haven't Watched Jessica Jones Yet?
 
 Marvel characters are enjoying a rich vein of screen time right now – both movies and TV. (I quite enjoyed Agent Carter – did you?) There’s a recent offering I think you should get familiar with if you aren’t already. Get onto Netflix and get your fix of Jessica Jones – you’ll be hooked! Binge watch alert!
 
@@ -42,18 +42,18 @@ Have you seen it yet? What do you think?
 
 ## Related Posts
 
-- [how to know if breakup was a mistake](https://love.allwomenstalk.com/was-your-breakup-actually-a-mistake/)
-- [the benefits of talking to strangers](https://lifestyle.allwomenstalk.com/what-are-the-benefits-of-talking-to-total-strangers/)
-- [color riche stylo smoky infinite sky](https://apps.allwomenstalk.com/would-you-play-kendall-and-kylies-new-game/)
-- [contour neck makeup](https://makeup.allwomenstalk.com/would-you-actually-contour-your-neck/)
+- [Is Masturbation Good for You?](https://love.allwomenstalk.com/is-masturbation-good-for-you/)
 - [Is Your Cup of Coffee Really Shrinking Your Breast...](https://health.allwomenstalk.com/is-your-cup-of-coffee-really-shrinking-your-breasts/)
-- [what is sexy woman](https://love.allwomenstalk.com/what-actually-makes-a-sexy-woman-sexy/)
-- [best friend jealous of my relationship](https://love.allwomenstalk.com/is-your-best-friend-secretly-jealous-of-your-engagement/)
-- [Is Masturbation Good for You](https://love.allwomenstalk.com/is-masturbation-good-for-you/)
-- [im the crazy one](https://love.allwomenstalk.com/are-you-actually-the-crazy-one-in-your-relationship/)
+- [how to know if breakup was a mistake](https://love.allwomenstalk.com/was-your-breakup-actually-a-mistake/)
 - [are freckles pretty](https://makeup.allwomenstalk.com/would-you-wear-fake-freckles-on-your-face/)
+- [best friend jealous of my relationship](https://love.allwomenstalk.com/is-your-best-friend-secretly-jealous-of-your-engagement/)
+- [i'm the crazy one](https://love.allwomenstalk.com/are-you-actually-the-crazy-one-in-your-relationship/)
+- [color riche stylo smoky infinite sky](https://apps.allwomenstalk.com/would-you-play-kendall-and-kylies-new-game/)
+- [what is sexy woman](https://love.allwomenstalk.com/what-actually-makes-a-sexy-woman-sexy/)
+- [contour neck makeup](https://makeup.allwomenstalk.com/would-you-actually-contour-your-neck/)
+- [the benefits of talking to strangers](https://lifestyle.allwomenstalk.com/what-are-the-benefits-of-talking-to-total-strangers/)
 - [Reading Veronica Mars](https://allwomenstalk.com/reading-veronica-mars/)
-- [Does Natasha Lyonne Have a Beastiality Fetish](https://allwomenstalk.com/does-natasha-lyonne-have-a-beastiality-fetish/)
+- [Does Natasha Lyonne Have a Beastiality Fetish?](https://allwomenstalk.com/does-natasha-lyonne-have-a-beastiality-fetish/)
 
 ## Site Information
 

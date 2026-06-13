@@ -3,7 +3,7 @@ title: "7 Movies Based on the Novels of Agatha Christie ..."
 description: "Death on the Nile; Murder on the Orient Express; Murder at the Gallop; The Mirror Cracked; Appointment with Death; More ..."
 url: "https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Movies Based on the Novels of Agatha Christie ...
@@ -42,18 +42,18 @@ I’m looking forward to next year. 2015 will be the 125th anniversary of Agatha
 
 ## Related Posts
 
+- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
 - [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
+- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
 - [movies where actors really did it](https://movies.allwomenstalk.com/movies-featuring-real-life-related-actors/)
 - [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
-- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
-- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
-- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
-- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
 - [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
+- [فيلم بريطاني ملكي](https://movies.allwomenstalk.com/movies-about-british-kings-and-queens/)
+- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
+- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
+- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 of My Favorite Jane Austen Movies ...](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
-- [7 Best Book to Movie Adaptations ...](https://allwomenstalk.com/7-best-book-to-movie-adaptations/)
 
 ## Site Information
 

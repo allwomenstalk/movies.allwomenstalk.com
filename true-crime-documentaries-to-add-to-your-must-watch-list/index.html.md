@@ -3,7 +3,7 @@ title: "7 True Crime Documentaries to Add to Your Must-Watch List ..."
 description: "Paradise Lost: the Child Murders at Robin Hood Hills; The Jeffrey Dahmer Files; Deliver Us from Evil; The Thin Blue Line; The Cove; More ..."
 url: "https://movies.allwomenstalk.com/true-crime-documentaries-to-add-to-your-must-watch-list/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 True Crime Documentaries to Add to Your Must\-Watch List ...
@@ -43,15 +43,15 @@ I hope you’ll enjoy these true crime documentaries as much as I do. These docu
 ## Related Posts
 
 - [9 Marvelous Movies Set in New York ...](https://bilbr.com/marvelous-movies-set-in-new-york/)
-- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
-- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
-- [7 Films to Get You in the Christmas Spirit ...](https://bilbr.com/films-to-get-you-in-the-christmas-spirit/)
-- [riche stylo smoky unforgettable lilac](https://movies.allwomenstalk.com/of-the-best-book-to-movie-adaptations/)
-- [7 Real Life Whistleblowers Portrayed in the Movies...](https://movies.allwomenstalk.com/real-life-whistleblowers-portrayed-in-the-movies/)
 - [11 Absolutely Classic Movies That Originally Bombe...](https://bilbr.com/absolutely-classic-movies-that-originally-bombed/)
+- [7 Films to Get You in the Christmas Spirit ...](https://bilbr.com/films-to-get-you-in-the-christmas-spirit/)
+- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
 - [7 Festive Romantic Comedies You Need to Watch This...](https://movies.allwomenstalk.com/festive-romantic-comedies-you-need-to-watch-this-holiday-season/)
+- [7 Real Life Whistleblowers Portrayed in the Movies...](https://movies.allwomenstalk.com/real-life-whistleblowers-portrayed-in-the-movies/)
 - [13 of the Most Anticipated Movies of 2014 ...](https://bilbr.com/of-the-most-anticipated-movies-of/)
+- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
 - [7 Upcoming Winter Movies to Look Forward to ...](https://bilbr.com/upcoming-winter-movies-to-look-forward-to/)
+- [riche stylo smoky unforgettable lilac](https://movies.allwomenstalk.com/of-the-best-book-to-movie-adaptations/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [7 Shockingly True Crime Documentaries ...](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
 

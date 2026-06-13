@@ -3,7 +3,7 @@ title: "11 Times Hollywood Got Gay Love Right ..."
 description: "The Broken Hearts Club: a Romantic Comedy (2000); Trick (1999); Maurice (1987); The Trip (2002); The Birdcage (1996); More ..."
 url: "https://movies.allwomenstalk.com/times-hollywood-got-gay-love-right/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 11 Times Hollywood Got Gay Love Right ...
@@ -58,16 +58,16 @@ Filmmakers have been portraying gay love through their work for decades and itâ€
 
 ## Related Posts
 
-- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
-- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
-- [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
+- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
 - [middle aged male actors](https://movies.allwomenstalk.com/these-hot-british-actors-will-get-your-pulse-racing/)
-- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
 - [affleck and garner having a cozy moment](https://celebs.allwomenstalk.com/ben-affleck-and-jennifer-garners-cutest-moments/)
+- [whoopi goldberg avpd](https://celebs.allwomenstalk.com/successful-stars-with-mental-disorders/)
 - [cute celebrity couples](https://celebs.allwomenstalk.com/the-cutest-new-celebrity-couples-of/)
 - [riche le stylo glistening](https://hair.allwomenstalk.com/check-out-these-gorg-celebs-whove-rocked-rainbow-hair/)
-- [david beckham swag](https://celebs.allwomenstalk.com/times-david-beckham-proved-hes-hot-hot-hot/)
+- [ariana grande doughnut drama](https://celebs.allwomenstalk.com/arianas-not-alone-here-are-some-other-celebs-eating-donuts/)
 - [ariana grande workout clothes](https://fitness.allwomenstalk.com/sweat-in-style-check-out-these-celebs-in-workout-gear/)
+- [sensational beginnings](https://movies.allwomenstalk.com/actors-with-terrible-tv-beginnings/)
+- [celebs in open marriages](https://celebs.allwomenstalk.com/inspiring-celeb-marriages-that-are-actually-long-lasting/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)
 

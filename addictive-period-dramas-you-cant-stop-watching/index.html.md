@@ -1,12 +1,12 @@
 ---
-title: "7 Addictive Period Dramas You Cant Stop Watching ..."
+title: "7 Addictive Period Dramas You Can't Stop Watching ..."
 description: "The Tudors; The Village; Downton Abbey; Mr Selfridge; The White Queen; More ..."
 url: "https://movies.allwomenstalk.com/addictive-period-dramas-you-cant-stop-watching/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Addictive Period Dramas You Cant Stop Watching ...
+# 7 Addictive Period Dramas You Can't Stop Watching ...
 
 Generally, period dramas are a far cry from reality. We all know that Henry VIII was a far cry from Jonathan Rhys Meyers on the hotness scale. I’m willing to bet Mr Selfridge didn’t rock a mustache as well as Jeremy Piven either. Still, there is something so addictive about period dramas, I just can’t turn away from them. If you don’t feel the same, you clearly do not know what you are missing. For fellow addicts and period newbies alike, here are my most addictive favorites.
 
@@ -57,16 +57,16 @@ I can’t really put my finger on just why I love period dramas so much. In real
 ## Related Posts
 
 - [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
-- [cw television shows](https://movies.allwomenstalk.com/cw-tv-shows-you-cant-possibly-miss-out-on/)
-- [political cartoons about teddy roosevelt](https://lifestyle.allwomenstalk.com/famous-political-cartoons-about-theodore-roosevelt/)
 - [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
 - [characters with disabilities](https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/)
-- [britains favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
-- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
+- [britain's favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
+- [political cartoons about teddy roosevelt](https://lifestyle.allwomenstalk.com/famous-political-cartoons-about-theodore-roosevelt/)
 - [tv shows from the 2000s](https://movies.allwomenstalk.com/staple-american-shows-of-the-2000s/)
 - [ahs season 4](https://movies.allwomenstalk.com/ideas-for-season-4-of-american-horror-story/)
-- [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
+- [cw television shows](https://movies.allwomenstalk.com/cw-tv-shows-you-cant-possibly-miss-out-on/)
+- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
+- [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [7 New Romantic Movies You Have to Watch ...](https://allwomenstalk.com/7-new-romantic-movies-you-have-to-watch/)
 
 ## Site Information

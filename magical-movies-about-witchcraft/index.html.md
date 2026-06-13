@@ -3,7 +3,7 @@ title: "9 Magical Movies about Witchcraft ..."
 description: "Hocus Pocus; The Witches of Eastwick; The Craft; The Crucible; Practical Magic; More ..."
 url: "https://movies.allwomenstalk.com/magical-movies-about-witchcraft/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 9 Magical Movies about Witchcraft ...
@@ -52,16 +52,16 @@ Top Image Source: _sky.com_
 
 ## Related Posts
 
-- [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
-- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
-- [nice movies to watch with your boyfriend](https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/)
-- [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
-- [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
 - [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
-- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
 - [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
 - [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
+- [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
+- [nice movies to watch with your boyfriend](https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/)
+- [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
+- [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
+- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
+- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
 - [5 Cool Werewolf Movies ...](https://twilight.allwomenstalk.com/5-cool-werewolf-movies/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

@@ -3,7 +3,7 @@ title: "11 Actors Who Turned down Legendary Roles ..."
 description: "Dana Delany; Sarah Michelle Gellar; John Travolta; Matthew Broderick; Tom Cruise; More ..."
 url: "https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 11 Actors Who Turned down Legendary Roles ...
@@ -82,16 +82,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
-- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
-- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
-- [jesse johnson shirtless](https://celebs.allwomenstalk.com/hottest-sons-of-celebrities-that-you-need-to-know-about/)
 - [rainforest cate](https://celebs.allwomenstalk.com/celebrities-who-support-the-rainforest/)
+- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
+- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
+- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
+- [bikram yoga celebrities](https://celebs.allwomenstalk.com/celebrities-who-love-yoga/)
 - [neon blue hair](https://celebs.allwomenstalk.com/fabulous-celebrities-with-neon-colored-hair/)
 - [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
-- [most successful child actor](https://celebs.allwomenstalk.com/most-successful-child-stars-that-we-cant-get-enough-of/)
-- [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
-- [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [jesse johnson shirtless](https://celebs.allwomenstalk.com/hottest-sons-of-celebrities-that-you-need-to-know-about/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 

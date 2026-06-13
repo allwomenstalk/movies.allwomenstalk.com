@@ -1,12 +1,12 @@
 ---
-title: "Women of Game of Thrones We Love or Hate Part 2 of 2 ..."
+title: "Women of Game of Thrones We Love or Hate (Part 2 of 2) ..."
 description: "Myranda (Charlotte Hope) - Hate; Osha (Natalia Tena) and Meera Reed (Ellie Kendrick) - Love; Shae (Sibel Kekilli) - Hate; Arya Stark (Maisie Williams) - Love; Catelyn Stark (Michelle Fairley) - Love; More ..."
 url: "https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate-2/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Women of Game of Thrones We Love or Hate Part 2 of 2 ...
+# Women of Game of Thrones We Love or Hate \(Part 2 of 2\) ...
 
 I'm back with the second installment of **females in Game of Thrones we love or hate**. Currently, Game of Thrones is one of my favorite shows that is ongoing. It is just so well written. To reach out to other fans of the series, I posted a list of all female characters from the show, stating which ones I love and which ones I hate. The first half of the list has been posted and now here is the second half of the women who are awesome and who are horrible from Game of Thrones. Again, there are spoilers as I explain why the characters are wonderful or not. Also, the videos might reveal some important information in the show. Here are the **females in Game of Thrones we love or hate**.
 
@@ -58,16 +58,16 @@ So that is the complete list. Share in the comments which characters you love an
 
 ## Related Posts
 
-- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
-- [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
-- [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
-- [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
-- [myrcella game of thrones actress](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate/)
-- [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
 - [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
+- [myrcella game of thrones actress](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate/)
+- [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
+- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
 - [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
 - [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
-- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
+- [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
+- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
+- [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
+- [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [A Tale of Two Women](https://allwomenstalk.com/a-tale-of-two-women/)
 

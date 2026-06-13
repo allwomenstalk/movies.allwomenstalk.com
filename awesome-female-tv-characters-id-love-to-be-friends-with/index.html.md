@@ -1,12 +1,12 @@
 ---
-title: "10 Awesome Female TV Characters Id Love to Be Friends with ..."
+title: "10 Awesome Female TV Characters I'd Love to Be Friends with ..."
 description: "Lily Aldren; Jessica Day; Kenzi; Phoebe Buffay; Veronica Mars; More ..."
 url: "https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 Awesome Female TV Characters Id Love to Be Friends with ...
+# 10 Awesome Female TV Characters I'd Love to Be Friends with ...
 
 There are so many awesome female TV characters on air these days that picking just ten that I’d want to be friends with was really tough. I couldn’t make a list of just characters I’d like to be friends with because there are so many I had to split it between men and women. Out of all of the awesome female TV characters, the following ten are my absolute favorites.
 
@@ -54,18 +54,18 @@ This list was a lot harder to write than I thought it would be! I had such a har
 
 ## Related Posts
 
-- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
 - [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)
-- [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
-- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
+- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
 - [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
+- [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
 - [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
+- [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
+- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
 - [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
 - [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
 - [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
-- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
 - [8 Powerful Women Characters on TV ...](https://allwomenstalk.com/8-powerful-women-characters-on-tv/)
-- [5 Fictional Characters Id Love to Have Coffee with...](https://allwomenstalk.com/5-fictional-characters-id-love-to-have-coffee-with/)
+- [5 Fictional Characters I'd Love to Have Coffee wit...](https://allwomenstalk.com/5-fictional-characters-id-love-to-have-coffee-with/)
 
 ## Site Information
 

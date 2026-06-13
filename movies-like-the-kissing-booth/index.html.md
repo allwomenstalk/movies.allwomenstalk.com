@@ -3,7 +3,7 @@ title: "Movies like the Kissing Booth You Should Watch with Your Bestie ..."
 description: "The Edge of Seventeen (2016); To All the Boys I’ve Loved before (2018); The First Time (2012); Wild Child (2008); Naomi and Ely’s No Kiss List (2015); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-the-kissing-booth/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Movies like the Kissing Booth You Should Watch with Your Bestie ...
@@ -55,15 +55,15 @@ These are super fun movies like The Kissing booth that you and your bestie will 
 ## Related Posts
 
 - [modern movies like pride and prejudice](https://movies.allwomenstalk.com/movies-like-pride-and-prejudice/)
-- [movies like stronger](https://movies.allwomenstalk.com/movies-like-me-before-you/)
-- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
 - [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
+- [similar movies to sydney white](https://movies.allwomenstalk.com/movies-like-she-s-the-man/)
 - [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
-- [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
+- [movies like stronger](https://movies.allwomenstalk.com/movies-like-me-before-you/)
 - [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
+- [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
 - [movies like the favourite](https://movies.allwomenstalk.com/movies-like-the-proposal/)
-- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
 - [movie like perks of being a wallflower](https://movies.allwomenstalk.com/movies-like-the-perks-of-being-a-wallflower/)
+- [seventeen 2011 movie](https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/)
 - [8 Comedies to Watch with Your Boyfriend ...](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
 - [10 Classic High School Movies to Watch with Friend...](https://movies.allwomenstalk.com/classic-high-school-movies-to-watch-with-friends/)
 

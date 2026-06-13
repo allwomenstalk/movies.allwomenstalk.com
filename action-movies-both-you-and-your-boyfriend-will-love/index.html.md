@@ -3,7 +3,7 @@ title: "7 Action Movies Both You and Your Partner Will Love"
 description: "The A-Team; Red 2; Parker; More ..."
 url: "https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Action Movies Both You and Your Partner Will Love
@@ -24,18 +24,18 @@ If you're a fan of high-stakes heists, _Parker_ is a solid pick. Jason Statham p
 
 ## Related Posts
 
-- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
+- [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
 - [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
+- [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
+- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
 - [to make you feel my love movie](https://movies.allwomenstalk.com/romantic-films-thatll-make-you-feel-the-love/)
 - [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
+- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
-- [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
-- [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
 - [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
 - [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
-- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
+- [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 
 ## Site Information
 

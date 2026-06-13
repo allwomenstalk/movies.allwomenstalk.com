@@ -1,12 +1,12 @@
 ---
-title: "The Best Movies to Watch when Youre Home on a Sick Day ..."
+title: "The Best Movies to Watch when You're Home on a Sick Day 🤒 ..."
 description: "The Princess Bride; Office Space; Ferris Bueller’s Day off; Harold and Maude; The Royal Tenenbaums; More ..."
 url: "https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# The Best Movies to Watch when Youre Home on a Sick Day  ...
+# The Best Movies to Watch when You're Home on a Sick Day 🤒 ...
 
 On a sick day I love to crawl into bed, pull the covers up to my nose and get lost in a movie. Maybe I can cope with one, or maybe it turns into a movie marathon. I usually choose between classic sick day movies, something obscure or something I probably should have watched years ago. Maybe one of these:
 
@@ -145,17 +145,17 @@ What’s your favorite sick day movie?
 ## Related Posts
 
 - [films about being single](https://love.allwomenstalk.com/the-best-movies-about-being-single/)
-- [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
-- [funny movie scene](https://movies.allwomenstalk.com/the-best-i-quit-moments-from-the-movies/)
-- [boss tattoo rocky horror](https://beauty.allwomenstalk.com/these-tattoos-will-impress-any-movie-buff/)
-- [horror movies you shouldnt watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
-- [country love movies](https://movies.allwomenstalk.com/movies-about-love-that-dont-actually-suck/)
-- [movie that motivates you](https://movies.allwomenstalk.com/movies-thatll-motivate-you-to-be-a-better-person/)
 - [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
 - [quarter life crisis movies](https://movies.allwomenstalk.com/your-quarter-life-crisis-as-told-in-the-movies/)
+- [movie that motivates you](https://movies.allwomenstalk.com/movies-thatll-motivate-you-to-be-a-better-person/)
+- [horror movies you shouldn't watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
+- [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
 - [seduces movie](https://movies.allwomenstalk.com/the-sexiest-seduction-scenes-from-movies/)
+- [country love movies](https://movies.allwomenstalk.com/movies-about-love-that-dont-actually-suck/)
+- [boss tattoo rocky horror](https://beauty.allwomenstalk.com/these-tattoos-will-impress-any-movie-buff/)
+- [funny movie scene](https://movies.allwomenstalk.com/the-best-i-quit-moments-from-the-movies/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
-- [9 Excellent Movies to Watch This Valentines Day .....](https://bilbr.com/9-cool-movies-to-watch-this-valentines-day/)
+- [9 Excellent Movies to Watch This Valentine's Day ....](https://bilbr.com/9-cool-movies-to-watch-this-valentines-day/)
 
 ## Site Information
 

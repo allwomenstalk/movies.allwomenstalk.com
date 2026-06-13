@@ -1,12 +1,12 @@
 ---
-title: "10 of Tim Burtons Greatest Characters ..."
+title: "10 of Tim Burton's Greatest Characters ..."
 description: "Edward Scissorhands; Sally (the Nightmare before Christmas); Beetlejuice; Catwoman (Batman Returns); The Hatter (Alice in Wonderland); More ..."
 url: "https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 10 of Tim Burtons Greatest Characters ...
+# 10 of Tim Burton's Greatest Characters ...
 
 When you watch a Tim Burton movie, you always have to prepare yourself for the unexpected. Even the most mundane, everyday subject turns to whimsical, wacky, surreal or even completely off the wall in his hands. He is a master of weirdness and quirky. I love his kooky characters, especially these:
 
@@ -72,16 +72,16 @@ Which is your favorite Tim Burton movie and character? (They don’t have to be 
 
 ## Related Posts
 
-- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
 - [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
-- [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
-- [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
-- [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
-- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
 - [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
 - [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
 - [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
+- [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
 - [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
+- [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
+- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
+- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
+- [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)
 - [5 Interesting Twilight Characters ...](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
 

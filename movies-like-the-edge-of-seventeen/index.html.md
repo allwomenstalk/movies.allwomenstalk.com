@@ -3,7 +3,7 @@ title: "Movies like the Edge of Seventeen for Young Girls Stepping into Womanhoo
 description: "The Perks of Being a Wallflower (2012); The Art of Getting by (2011); The Breakfast Club (1985); Sixteen Candles (1984); The Fault in Our Stars (2014); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-the-edge-of-seventeen/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # Movies like the Edge of Seventeen for Young Girls Stepping into Womanhood ...
@@ -62,16 +62,16 @@ These movies like The Edge of Seventeen are great choices for young girls wantin
 
 ## Related Posts
 
-- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
-- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
 - [similar to 500 days of summer](https://movies.allwomenstalk.com/movies-like-500-days-of-summer/)
-- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
-- [My Evening at the grindhouse ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
-- [Movies Opening Today March 2 2007 ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
-- [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
+- [movies like what is a woman](https://movies.allwomenstalk.com/movies-like-easy-a/)
 - [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
 - [american pie rated](https://movies.allwomenstalk.com/movies-like-american-pie/)
+- [Movies Opening Today (March 2, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
+- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [movies like 10 things](https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/)
+- [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
+- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
 - [7 Awesome Movies with an All Female Cast ...](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
 - [7 Teen Movies Every Girl Should See at Least Once ...](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 

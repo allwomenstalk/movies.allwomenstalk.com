@@ -1,12 +1,12 @@
 ---
-title: "Top 5 Times Michael Scott from the Office Should Have Gone to Jail ..."
+title: "Top 5 🤚 Times Michael Scott from \"the Office\" Should Have Gone to Jail ..."
 description: "Attempted Theft; Misleading Police/Falsely Accusing an Innocent Person; Assault/Attempted Murder; Another Assualt; Sexual Harassment/Assault; More ..."
 url: "https://movies.allwomenstalk.com/times-the-offices-michael-scott-should-have-gone-to-jail/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Top 5  Times Michael Scott from the Office Should Have Gone to Jail ...
+# Top 5 🤚 Times Michael Scott from "the Office" Should Have Gone to Jail ...
 
 There are so many **times The Office's Michael Scott should have gone to jail**. The multi-award-winning comedy series The Office is a hilarious “mockumentary” following Dunder-Mifflin paper company’s Scranton branch. Steve Carell’s iconic character of Michael Scott from The Office is infamous for doing things that he probably shouldn’t. It makes for amusing moments on a fictitious television show. However, in real life, some of these actions probably would at least have him charged, fined, and/or fired. Such as ordering several exotic dancers to the workplace, holding a casino night in the warehouse, claiming the ship was sinking on the booze cruise, serving alcohol at office parties, and the like. Yet, some of the Scranton Regional Managers decisions should have landed him behind bars. Here are the top 5 **times The Office's Michael Scott should have gone to jail**. Also, just a fair warning, there will be spoilers ahead!
 
@@ -46,18 +46,18 @@ Did we miss anything? What is your favorite cringe-worthy Michael Scott moment?
 
 ## Related Posts
 
-- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
-- [wendy yap](https://inspiration.allwomenstalk.com/lifes-journey-by-wendy-yap/)
-- [erin hanson face](https://inspiration.allwomenstalk.com/that-burn-bridges-by-erin-hanson/)
-- [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
-- [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
 - [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
+- [wendy yap](https://inspiration.allwomenstalk.com/lifes-journey-by-wendy-yap/)
 - [when does iris get her powers](https://movies.allwomenstalk.com/times-iris-west-proved-you-didnt-need-powers-to-be-a-hero/)
-- [mothers are special poems](https://parenting.allwomenstalk.com/to-my-very-special-mother-by-erin-hanson/)
 - [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
+- [mothers are special poems](https://parenting.allwomenstalk.com/to-my-very-special-mother-by-erin-hanson/)
+- [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
+- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
+- [erin hanson face](https://inspiration.allwomenstalk.com/that-burn-bridges-by-erin-hanson/)
+- [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
 - [not eric hanson poem](https://inspiration.allwomenstalk.com/who-would-remember-by-erin-hanson/)
 - [5 Cool Edward Quotes ...](https://twilight.allwomenstalk.com/5-cool-edward-quotes/)
-- [7 People Who Shouldnt Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
+- [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 
 ## Site Information
 

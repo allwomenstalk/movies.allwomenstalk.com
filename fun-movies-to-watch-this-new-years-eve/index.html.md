@@ -1,12 +1,12 @@
 ---
-title: "7 Fun Movies to Watch This New Years Eve ..."
+title: "7 Fun Movies to Watch This New Year's Eve ..."
 description: "New Year’s Eve; When Harry Met Sally; Love Actually; Hairspray (1988); Bridget Jones: the Edge of Reason; More ..."
 url: "https://movies.allwomenstalk.com/fun-movies-to-watch-this-new-years-eve/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Fun Movies to Watch This New Years Eve ...
+# 7 Fun Movies to Watch This New Year's Eve ...
 
 December 31st is here and if you aren’t able to participate in the festivities then kick back at home with your loved ones and choose a few movies to watch this New Year’s Eve. There are a number of fantastic movies I love to watch at this time of year – some are holiday themed, some are not. Perhaps you are a bit burnt out from Christmas activity or simply want to chill at home. If you are looking for a few suggestions, we have a list of seven fun movies to watch this New Year’s Eve while relaxing at home.
 
@@ -44,15 +44,15 @@ These are just a few fun movie options to check out this New Year’s Eve. There
 
 ## Related Posts
 
-- [best romantic action movies](https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/)
-- [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
-- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
 - [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
+- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
+- [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
+- [best romantic action movies](https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/)
 - [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
+- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
 - [to make you feel my love movie](https://movies.allwomenstalk.com/romantic-films-thatll-make-you-feel-the-love/)
 - [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
-- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [8 Reasons to Go to the Movies This Year ...](https://7fun.net/8-reasons-to-go-to-the-movies-this-year/)

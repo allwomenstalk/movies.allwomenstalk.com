@@ -1,12 +1,12 @@
 ---
-title: "7 Items of Movie News Youre Going to Love ..."
+title: "7 Items of Movie News You're Going to Love ..."
 description: "Harry Potter Spin off; Cruella De Vil is Back; 4th Narnia Installment; Star Wars Episode VII; The Bronze Horseman; More ..."
 url: "https://movies.allwomenstalk.com/items-of-movie-news-youre-going-to-love/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Items of Movie News Youre Going to Love ...
+# 7 Items of Movie News You're Going to Love ...
 
 If you’re an avid fan of films and love going to the cinema, or a Netflix (or similar) addict, you probably also spend time following the latest movie news. You love to hear new movie announcements, news about who is going to be cast as your favorite characters, if there is going to be an adaptation of your best book, or whether there will be a sequel to a favorite movie. I’ve gathered up some of the most recent pieces of movie news I think you’re going to be pleased to know.
 
@@ -42,18 +42,18 @@ So, as they say… that’s all, folks. Well for now anyway! Have you got any mo
 
 ## Related Posts
 
-- [13 of the Most Anticipated Movies of 2014 ...](https://bilbr.com/of-the-most-anticipated-movies-of/)
-- [7 True Crime Documentaries to Add to Your Must-Wat...](https://movies.allwomenstalk.com/true-crime-documentaries-to-add-to-your-must-watch-list/)
-- [7 Marvelous Ed Norton Movies That Make Us Love Him...](https://movies.allwomenstalk.com/marvelous-ed-norton-movies-that-make-us-love-him/)
-- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
+- [7 Films to Get You in the Christmas Spirit ...](https://bilbr.com/films-to-get-you-in-the-christmas-spirit/)
 - [7 Real Life Whistleblowers Portrayed in the Movies...](https://movies.allwomenstalk.com/real-life-whistleblowers-portrayed-in-the-movies/)
-- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
+- [7 Marvelous Ed Norton Movies That Make Us Love Him...](https://movies.allwomenstalk.com/marvelous-ed-norton-movies-that-make-us-love-him/)
 - [11 Absolutely Classic Movies That Originally Bombe...](https://bilbr.com/absolutely-classic-movies-that-originally-bombed/)
+- [13 of the Most Anticipated Movies of 2014 ...](https://bilbr.com/of-the-most-anticipated-movies-of/)
 - [9 of the Greatest Ever Movie Love Stories ...](https://bilbr.com/of-the-greatest-ever-movie-love-stories/)
 - [7 Upcoming Winter Movies to Look Forward to ...](https://bilbr.com/upcoming-winter-movies-to-look-forward-to/)
-- [7 Films to Get You in the Christmas Spirit ...](https://bilbr.com/films-to-get-you-in-the-christmas-spirit/)
+- [7 Top Disney Live Action Movies That I Can Watch o...](https://bilbr.com/top-disney-live-action-movies-that-i-can-watch-over-and-over/)
+- [7 True Crime Documentaries to Add to Your Must-Wat...](https://movies.allwomenstalk.com/true-crime-documentaries-to-add-to-your-must-watch-list/)
+- [krystal mcmahon](https://food.allwomenstalk.com/popcorn-flavors-to-knock-your-socks-off-on-movie-night/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
+- [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 
 ## Site Information
 

@@ -3,7 +3,7 @@ title: "5 Super Scary Movie Moments That Will Haunt You Forever ..."
 description: "Movie Scene from Insidious Where the Bride is Going up the Stairs; Movie Scene from Amityville Horror Where George is Always Waking up at 3:15 a.M; Movie Scene from the Shining Where the Kid Sees the Twins in the Hallway; Movie Scene from the Ring Where the Girl Crawls out of the Tv; Movie Scene in the Sixth Sense Where Cole Finally Gathers His Nerve to Run to the Bathroom and Take a Leak; More ..."
 url: "https://movies.allwomenstalk.com/scary-movie-moments/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 5 Super Scary Movie Moments That Will Haunt You Forever ...
@@ -40,16 +40,16 @@ Can you think of other scary movie scenes that still haunt you to this day?
 
 ## Related Posts
 
-- [what christmas movies are free on amazon prime](https://movies.allwomenstalk.com/christmas-movies-free-on-amazon-prime/)
+- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
 - [movies about hunting animals](https://movies.allwomenstalk.com/best-animal-movies-to-watch-with-your-kids/)
-- [girl party movies](https://movies.allwomenstalk.com/best-chick-flicks-for-a-slumber-party/)
-- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
 - [christmas spirits movie](https://movies.allwomenstalk.com/movies-to-get-you-in-the-christmas-spirit/)
 - [best chirstmas movies](https://movies.allwomenstalk.com/best-movies-to-watch-on-chirstmas-day/)
-- [christmas movies love](https://movies.allwomenstalk.com/best-romantic-christmas-movies/)
 - [2007 romantic movies](https://movies.allwomenstalk.com/romantic-movies-for-a-solo-night-in/)
-- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
+- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
+- [girl party movies](https://movies.allwomenstalk.com/best-chick-flicks-for-a-slumber-party/)
 - [napoleon dynamite haircut](https://movies.allwomenstalk.com/movies-to-watch-when-your-day-sucks/)
+- [what christmas movies are free on amazon prime](https://movies.allwomenstalk.com/christmas-movies-free-on-amazon-prime/)
+- [christmas movies love](https://movies.allwomenstalk.com/best-romantic-christmas-movies/)
 - [5 Must See Scenes from the Movie ...](https://twilight.allwomenstalk.com/5-must-see-scenes-from-the-movie/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 

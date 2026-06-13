@@ -1,12 +1,12 @@
 ---
-title: "9 80s Film Characters We Would Love to Be ..."
+title: "9 80's Film Characters We Would Love to Be ..."
 description: "Sgt Lavell Jones (Police Academy); Josh Baskin (Big); Veronica Sawyer (Heathers); Uncle Buck (Uncle Buck); Any of the Ghostbusters (Ghostbusters); More ..."
 url: "https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 9 80s Film Characters We Would Love to Be ...
+# 9 80's Film Characters We Would Love to Be ...
 
 There's no denying that 80's film characters were incredibly cool (well, that's if you grew up in the 80's, like me.) If you spent your childhood wanting to be one of the 80's film characters from your favorite films, then you're going to love the following article....
 
@@ -68,16 +68,16 @@ The 1980s had so many great films that have become classics that it's hard to pi
 
 ## Related Posts
 
-- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
-- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
-- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
-- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
-- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
-- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
-- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
-- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
 - [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
+- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
+- [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
+- [sandra bullock and roselyn sanchez](https://movies.allwomenstalk.com/movies-with-sandra-bullock-you-have-to-see/)
+- [all women actors](https://movies.allwomenstalk.com/awesome-movies-with-an-all-female-cast/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
+- [teenage girls movie](https://movies.allwomenstalk.com/movies-all-teenage-girls-should-watch/)
+- [best disney channel romance movies](https://movies.allwomenstalk.com/disney-channel-original-movies-you-probably-forgot-about/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [8 Sexiest Movie Characters ...](https://movies.allwomenstalk.com/sexiest-movie-characters/)
 

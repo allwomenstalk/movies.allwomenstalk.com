@@ -1,12 +1,12 @@
 ---
-title: "7 Awesome Adaptations of Charles Dickens Novels ..."
+title: "7 Awesome Adaptations of Charles Dickens' Novels ..."
 description: "Oliver!; A Tale of Two Cities; The Muppet Christmas Carol; Bleak House; David Copperfield; More ..."
 url: "https://movies.allwomenstalk.com/awesome-adaptations-of-charles-dickens-novels/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# 7 Awesome Adaptations of Charles Dickens Novels ...
+# 7 Awesome Adaptations of Charles Dickens' Novels ...
 
 I love his works so it follows that I would love adaptations of Charles Dickens’ novels. For much of the world, their view of the life and times of Victorian England comes from this master’s pen. He captured the social structure, the harshness, malaise, and doom and gloom that was the lot of the ordinary man. Miserable and depressing, he also managed to find light where there was dark, and hope where there had been none. I hope you find his stories magical as they come to life in these adaptations of Charles Dickens’ novels.
 
@@ -56,16 +56,16 @@ Over to you now! I’d love to hear what you think of Dickens. Have you read any
 
 ## Related Posts
 
-- [essential oils for writers block](https://funny.allwomenstalk.com/story-prompts-to-use-when-you-have-writers-block/)
-- [7 of the Best Books of 2014 so Far ...](https://books.allwomenstalk.com/of-the-best-books-of-so-far/)
-- [7 Books to Put on Your 2014 Summer Reading List .....](https://books.allwomenstalk.com/books-you-must-have-on-your-summer-reading-list/)
-- [7 Books to Read if You Are Interested in a Plant B...](https://books.allwomenstalk.com/books-to-read-if-you-are-interested-in-a-plant-based-diet/)
-- [7 Books That Should Be Turned into Movies ...](https://books.allwomenstalk.com/books-that-should-be-turned-into-movies/)
+- [7 Amazing Memoirs I Need to Get My Hands on ...](https://books.allwomenstalk.com/amazing-memoirs-i-need-to-get-my-hands-on/)
 - [7 Female Authors to Add to Your Reading List ...](https://books.allwomenstalk.com/female-authors-to-add-to-your-reading-list/)
 - [best health books to read](https://books.allwomenstalk.com/health-books-you-just-have-to-read/)
+- [essential oils for writer's block](https://funny.allwomenstalk.com/story-prompts-to-use-when-you-have-writers-block/)
+- [7 Books That Should Be Turned into Movies ...](https://books.allwomenstalk.com/books-that-should-be-turned-into-movies/)
+- [7 of the Best Books of 2014 so Far ...](https://books.allwomenstalk.com/of-the-best-books-of-so-far/)
 - [8 Places to Score Free Books ...](https://books.allwomenstalk.com/places-to-score-free-books/)
+- [7 Books to Put on Your 2014 Summer Reading List .....](https://books.allwomenstalk.com/books-you-must-have-on-your-summer-reading-list/)
+- [7 Books to Read if You Are Interested in a Plant B...](https://books.allwomenstalk.com/books-to-read-if-you-are-interested-in-a-plant-based-diet/)
 - [7 Top Book Releases for the Summer ...](https://books.allwomenstalk.com/top-book-releases-for-the-summer/)
-- [7 Amazing Memoirs I Need to Get My Hands on ...](https://books.allwomenstalk.com/amazing-memoirs-i-need-to-get-my-hands-on/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 - [7 Best Book to Movie Adaptations ...](https://allwomenstalk.com/7-best-book-to-movie-adaptations/)
 

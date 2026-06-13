@@ -3,7 +3,7 @@ title: "7 Classic Christmas Movies to Watch This Season ..."
 description: "A Christmas Carol; The Nightmare before Christmas; It’s a Wonderful Life; White Christmas; Rudolph the Red-Nosed Reindeer; More ..."
 url: "https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/"
 category: "movies"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
 # 7 Classic Christmas Movies to Watch This Season ...
@@ -42,17 +42,17 @@ Any more movies you want to add to this list?
 
 ## Related Posts
 
-- [anti valentines day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
+- [anti valentine's day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [10 Classic Old Christmas Movies Youll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [10 Classic Old Christmas Movies You'll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 - [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
 
 ## Site Information
