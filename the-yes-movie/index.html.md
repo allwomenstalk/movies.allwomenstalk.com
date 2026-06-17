@@ -3,7 +3,7 @@ title: "The Yes Movie"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/the-yes-movie/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # The Yes Movie

@@ -3,7 +3,7 @@ title: "\"Suicide Squad\" Cast Announcement Includes Major Hollywood a-listers! 
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/suicide-squad-cast-announcement-includes-major-hollywood-a-listers/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # "Suicide Squad" Cast Announcement Includes Major Hollywood a\-listers! ...
@@ -20,16 +20,16 @@ There's still a few casting decisions that need to be made, i.e. will Jesse Eise
 
 ## Related Posts
 
-- [cavario h](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-7/)
-- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-11/)
-- [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-4/)
 - [Youtube Star Covers "all I Want for Christmas" in ...](https://music.allwomenstalk.com/youtube-star-covers-all-i-want-for-christmas-in-different-celeb-voices/)
 - [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-5/)
-- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-10/)
-- [7 Biggest Style Stars of 2014 ...](https://fashion.allwomenstalk.com/biggest-style-stars-of/)
 - [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-6/)
+- [cavario h](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-7/)
+- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-11/)
 - [7 Celebs Who'd Be Fab BFFs ...](https://celebs.allwomenstalk.com/celebs-whod-be-fab-bffs/)
+- [10 Celebrity #TBT Photos You May Have Missed This ...](https://celebs.allwomenstalk.com/celebrity-tbt-photos-you-may-have-missed-this-week-4/)
+- [7 Biggest Style Stars of 2014 ...](https://fashion.allwomenstalk.com/biggest-style-stars-of/)
 - [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-9/)
+- [10 Celebrity Posts You Might've Missed This Weeken...](https://celebs.allwomenstalk.com/celebrity-posts-you-mightve-missed-this-weekend-10/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - [The Tripper's Los Angeles Premiere ...](https://allwomenstalk.com/the-trippers-los-angeles-premiere/)
 

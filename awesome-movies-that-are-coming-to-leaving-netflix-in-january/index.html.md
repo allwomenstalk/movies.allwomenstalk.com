@@ -3,7 +3,7 @@ title: "10 Movies Leaving Netflix (And Coming!) Including Cast Away Streaming"
 description: "101 Dalmatians; Mean Girls; Cast Away; Shall We Dance?; Bad Boys 2; More ..."
 url: "https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Movies Leaving Netflix \(And Coming!\) Including Cast Away Streaming
@@ -96,16 +96,16 @@ Which movies are you happy to see as new additions to Netflix? Which movies are 
 
 ## Related Posts
 
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 

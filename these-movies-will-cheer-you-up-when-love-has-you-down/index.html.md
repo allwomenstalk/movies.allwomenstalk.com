@@ -3,7 +3,7 @@ title: "These Movies Will Cheer You up when Love Has You down ..."
 description: "When Harry Met Sally; You’ve Got Mail; Under the Tuscan Sun; The Giant Mechanical Man; The Holiday; More ..."
 url: "https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # These Movies Will Cheer You up when Love Has You down ...
@@ -42,16 +42,16 @@ What are your favorite movies to watch when you’re in a bad mood? Let me know 
 
 ## Related Posts
 
-- [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
-- [movies to watch when you're in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
-- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
-- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
-- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
-- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
-- [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
-- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
-- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
 - [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
+- [movies to watch when you're in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
+- [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
+- [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
+- [best movies about video games](https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/)
+- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
+- [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
+- [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
 - [7 Upcoming Romantic Movies You Will Love ...](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [9 Excellent Movies to Watch This Valentine's Day ....](https://bilbr.com/9-cool-movies-to-watch-this-valentines-day/)
 

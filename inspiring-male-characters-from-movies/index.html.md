@@ -3,7 +3,7 @@ title: "7 Inspiring Male Characters from Movies ..."
 description: "Russell Crowe as General Maximus in Gladiator; Sylvester Stallone as Rocky in Rocky; Russell Crowe as James Walter Braddock in Cinderella Man; Josh Lucas as Coach Don Haskins in Glory Road; Henry Fonda as a Juror in 12 Angry Men; More ..."
 url: "https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Inspiring Male Characters from Movies ...
@@ -50,16 +50,16 @@ Top image source: _mediacircus.net_
 
 ## Related Posts
 
+- [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
+- [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
 - [evil characters movies](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
-- [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
-- [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
 - [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
-- [best movie kisses](https://movies.allwomenstalk.com/best-movie-kisses/)
-- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
-- [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
-- [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
 - [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
+- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
+- [animal movie income](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
+- [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
+- [best movie kisses](https://movies.allwomenstalk.com/best-movie-kisses/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 

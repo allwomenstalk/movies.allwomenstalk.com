@@ -3,7 +3,7 @@ title: "9 Heartbreaking Fictional Deaths I Will Never Get over ..."
 description: "Ellie from up; Marley from Marley and Me; Bambi’s Mum from Bambi; Shmuel and Bruno from the Boy in the Striped Pajamas; Mufasa from the Lion King; More ..."
 url: "https://movies.allwomenstalk.com/heartbreaking-fictional-deaths-i-will-never-get-over/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Heartbreaking Fictional Deaths I Will Never Get over ...
@@ -50,16 +50,16 @@ There are far too many heartbreaking fictional deaths to name, but these are jus
 
 ## Related Posts
 
-- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
-- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
-- [period piece actors](https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/)
 - [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
-- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
-- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
-- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
 - [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
+- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
+- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
+- [period piece actors](https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/)
+- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
+- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
+- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
+- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
 - [7 Tragic Famous Love Stories ...](https://love.allwomenstalk.com/7-tragic-famous-love-stories/)
 - [8 Moments of My Life I'll Never Get Back ...](https://allwomenstalk.com/8-moments-of-my-life-ill-never-get-back/)
 

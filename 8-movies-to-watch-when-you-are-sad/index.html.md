@@ -3,7 +3,7 @@ title: "8 Movies to Watch when You Are Sad ..."
 description: "Little Miss Sunshine; Dunston Checks in; Top Gun; The Indiana Jones Series; Independence Day; More ..."
 url: "https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 8 Movies to Watch when You Are Sad ...
@@ -50,16 +50,16 @@ Top image source: [2.bp.blogspot.com](http://2.bp.blogspot.com/_qJQQ6GDNiIU/S60q
 
 ## Related Posts
 
-- [les choristes where to watch](https://movies.allwomenstalk.com/fabulous-french-films/)
-- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
-- [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
 - [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
-- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
+- [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
 - [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
-- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [john williams movie soundtracks](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
+- [les choristes where to watch](https://movies.allwomenstalk.com/fabulous-french-films/)
+- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
+- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

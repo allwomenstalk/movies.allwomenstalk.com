@@ -3,7 +3,7 @@ title: "7 Good Comedies to Watch with Friends ..."
 description: "Your Highness; The Pacifier; The Naked Gun; Idiocracy; Grandma’s Boy; More ..."
 url: "https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Good Comedies to Watch with Friends ...
@@ -65,15 +65,15 @@ Top image source: [badassness.wpengine.netdna-cdn.com](https://goo.gl/wzzVZg)
 
 ## Related Posts
 
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
-- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
+- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
 - [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
 - [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)

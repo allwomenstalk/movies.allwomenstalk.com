@@ -3,7 +3,7 @@ title: "13 Famous Lines in Movies That Were Improvised on the Spot ..."
 description: "“Here’s Johnny” from the Shining; “You Talkin’ to Me?” from Taxi Driver; “Here’s Looking at You, Kid” from Casablanca; “You’re Gonna Need a Bigger Boat” from Jaws; “Leave the Gun, Take the Cannoli” from the Godfather; More ..."
 url: "https://movies.allwomenstalk.com/famous-lines-in-moves-that-were-improvised-on-the-spot/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 13 Famous Lines in Movies That Were Improvised on the Spot ...
@@ -70,16 +70,16 @@ This article was written in collaboration with editor Vladlena Lee.
 
 ## Related Posts
 
-- [small boutique ideas](https://lifestyle.allwomenstalk.com/ridiculous-questions-you-hear-as-a-small-boutique-owner/)
-- [talkers](https://lifestyle.allwomenstalk.com/most-entertaining-types-of-talkers/)
-- [kalology facts](https://lifestyle.allwomenstalk.com/more-words-you-probably-dont-know/)
-- [rare vocabulary words](https://lifestyle.allwomenstalk.com/uncommon-words-to-add-to-your-vocabulary/)
-- [aleni name meaning](https://parenting.allwomenstalk.com/not-so-common-baby-names-that-are-thankfully-not-strange/)
-- [cliches in writing](https://lifestyle.allwomenstalk.com/overused-cliches-to-avoid-when-writing/)
 - [victorian english words](https://lifestyle.allwomenstalk.com/victorian-words-you-should-add-to-your-vocabulary/)
+- [kalology facts](https://lifestyle.allwomenstalk.com/more-words-you-probably-dont-know/)
 - [how to pronounce billerica ma](https://travel.allwomenstalk.com/towns-in-massachusetts-youve-been-mispronouncing/)
-- [code name for friends](https://lifestyle.allwomenstalk.com/creative-ways-to-create-nicknames-for-your-friends/)
+- [talkers](https://lifestyle.allwomenstalk.com/most-entertaining-types-of-talkers/)
 - [nc romeo and juliet law](https://lifestyle.allwomenstalk.com/weird-laws-in-the-united-states-thatll-make-you-laugh/)
+- [cliches in writing](https://lifestyle.allwomenstalk.com/overused-cliches-to-avoid-when-writing/)
+- [aleni name meaning](https://parenting.allwomenstalk.com/not-so-common-baby-names-that-are-thankfully-not-strange/)
+- [small boutique ideas](https://lifestyle.allwomenstalk.com/ridiculous-questions-you-hear-as-a-small-boutique-owner/)
+- [rare vocabulary words](https://lifestyle.allwomenstalk.com/uncommon-words-to-add-to-your-vocabulary/)
+- [code name for friends](https://lifestyle.allwomenstalk.com/creative-ways-to-create-nicknames-for-your-friends/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 

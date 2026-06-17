@@ -3,7 +3,7 @@ title: "7 Series Finales Ranked from Worst to Best ..."
 description: "How I Met Your Mother; That '70s Show; Sex and the City; 30 Rock; Boy Meets World; More ..."
 url: "https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Series Finales Ranked from Worst to Best ...
@@ -42,16 +42,16 @@ What are your favorite and least favorite series finales? These are just a few o
 
 ## Related Posts
 
-- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
-- [jimmy kimmel's sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
-- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
 - [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
-- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
 - [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
-- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
+- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
 - [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
+- [jimmy kimmel's sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
+- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
+- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
 - [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
 - [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
+- [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

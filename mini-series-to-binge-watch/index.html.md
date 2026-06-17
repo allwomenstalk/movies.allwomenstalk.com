@@ -3,7 +3,7 @@ title: "7 Mini Series to Put on Your Watch List ASAP ..."
 description: "BIG LITTLE LIES; GIRL BOSS; 13 REASONS WHY; FRIENDS from COLLEGE; GYPSY; More ..."
 url: "https://movies.allwomenstalk.com/mini-series-to-binge-watch/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Mini Series to Put on Your Watch List ASAP ...
@@ -56,16 +56,16 @@ Have you ever watched any of these miniseries? If you have, what did you think?
 
 ## Related Posts
 
-- [asmr magic](https://inspiration.allwomenstalk.com/best-asmrtists-to-follow-on-youtube/)
 - [gabriel iglesias memes](https://celebs.allwomenstalk.com/comedians-that-will-make-you-pee-your-pants/)
-- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
-- [titus andromedon gif](https://movies.allwomenstalk.com/of-the-best-moments-of-titus-andromedon-from-the-unbreakable-kimmy-schmidt/)
-- [throwback shows](https://movies.allwomenstalk.com/old-tv-shows-you-can-stream-online/)
 - [something about love that drives me crazy](https://love.allwomenstalk.com/ways-men-drive-us-crazy/)
+- [titus andromedon gif](https://movies.allwomenstalk.com/of-the-best-moments-of-titus-andromedon-from-the-unbreakable-kimmy-schmidt/)
+- [asmr magic](https://inspiration.allwomenstalk.com/best-asmrtists-to-follow-on-youtube/)
 - [american horror story hh holmes](https://movies.allwomenstalk.com/real-american-horror-stories/)
-- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
-- [barbie styling head 2000s](https://lifestyle.allwomenstalk.com/barbie-through-the-ages/)
+- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
+- [throwback shows](https://movies.allwomenstalk.com/old-tv-shows-you-can-stream-online/)
 - [martial arts fighting moves](https://lifestyle.allwomenstalk.com/self-defense-moves-from-a-professional-martial-artist/)
+- [barbie styling head 2000s](https://lifestyle.allwomenstalk.com/barbie-through-the-ages/)
+- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
 - [7 Best Shows on TV Right Now ...](https://movies.allwomenstalk.com/7-best-shows-on-tv-right-now/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

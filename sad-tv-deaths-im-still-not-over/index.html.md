@@ -3,7 +3,7 @@ title: "15 Sad TV Deaths I'm Still Not over ..."
 description: "Paul Hennessy; J.T. Yorke; Joyce Summers; George O’Malley; Dr. Mark Greene; More ..."
 url: "https://movies.allwomenstalk.com/sad-tv-deaths-im-still-not-over/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 15 Sad TV Deaths I'm Still Not over ...
@@ -74,16 +74,16 @@ This was a really hard article to write. Not for lack of ideas or because I didn
 
 ## Related Posts
 
-- [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
-- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
 - [old.mtv shows](https://movies.allwomenstalk.com/cool-mtv-shows-that-i-love/)
-- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
+- [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
+- [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
+- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
 - [was tvs best partners](https://movies.allwomenstalk.com/of-the-best-partners-on-tv/)
 - [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
 - [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
-- [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
-- [things like the olive theory](https://movies.allwomenstalk.com/great-how-i-met-your-mother-concepts/)
 - [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
+- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [10 Fall TV Shows I Can't Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 

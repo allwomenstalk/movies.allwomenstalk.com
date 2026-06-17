@@ -3,7 +3,7 @@ title: "7 TV Characters I'd Love to Have in My Life ..."
 description: "Donna Paulsen; Joan Harris; The Doctor; Schmidt; Samantha Jones; More ..."
 url: "https://movies.allwomenstalk.com/tv-characters-id-love-to-have-in-my-life/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 TV Characters I'd Love to Have in My Life ...
@@ -42,16 +42,16 @@ I’m sure there a ton of other characters that would be great to have in my lif
 
 ## Related Posts
 
-- [8 Spring TV Finales to Look Forward to ...](https://movies.allwomenstalk.com/spring-tv-finales-to-look-forward-to/)
-- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
-- [7 Great Competition Shows ...](https://movies.allwomenstalk.com/great-competition-shows/)
-- [7 Creative Cable Shows They Should Bring Back ...](https://movies.allwomenstalk.com/creative-cable-shows-they-should-bring-back/)
-- [7 Shows I Could Live without ...](https://movies.allwomenstalk.com/shows-i-could-live-without/)
 - [7 Astonishing Mental Disorders ...](https://health.allwomenstalk.com/astonishing-mental-disorders/)
-- [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
+- [7 Creative Cable Shows They Should Bring Back ...](https://movies.allwomenstalk.com/creative-cable-shows-they-should-bring-back/)
 - [scrubs musical episode](https://movies.allwomenstalk.com/favorite-scrubs-episodes/)
 - [Top 8 Shows for Teens ...](https://lifestyle.allwomenstalk.com/top-shows-for-teens/)
+- [7 Shows I Could Live without ...](https://movies.allwomenstalk.com/shows-i-could-live-without/)
+- [7 Great Competition Shows ...](https://movies.allwomenstalk.com/great-competition-shows/)
+- [8 Spring TV Finales to Look Forward to ...](https://movies.allwomenstalk.com/spring-tv-finales-to-look-forward-to/)
 - [7 Reality Shows I Actually Enjoy ...](https://movies.allwomenstalk.com/reality-shows-i-actually-enjoy/)
+- [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
+- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 

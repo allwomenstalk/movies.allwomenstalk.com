@@ -1,57 +1,77 @@
 ---
-title: "7 Non-Disney Animated Movies Featuring Fairytale Characters ..."
-description: "The Shrek Movies; \"the Snow Queen\"; \"the Swan Princess\"; \"Thumbelina\"; \"Peter & the Wolf\"; More ..."
+title: "The Ultimate Animated Fairy Movies List: 7 Non-Disney Classics"
+description: "The Shrek Movies; The Snow Queen; The Swan Princess; Thumbelina; Peter & the Wolf; More ..."
 url: "https://movies.allwomenstalk.com/non-disney-animated-movies-featuring-fairytale-characters/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
-# 7 Non\-Disney Animated Movies Featuring Fairytale Characters ...
+# The Ultimate Animated Fairy Movies List: 7 Non\-Disney Classics
 
-When it comes to movies featuring fairytale characters, Disney definitely wrote the book on how to bring storybook characters to life by making them animated. We all love Disney for changing the ending of "The Little Mermaid" to make it a happy one, and it's amazing that animators managed to make a monster look all cute and cuddly in "Beauty and the Beast." However, Disney isn't the only company capable of making memorable movies featuring fairytale characters. Here's a look at some animated fairytale movies that weren't produced by the House of Mouse:
+When it comes to movies featuring fairytale characters, Disney definitely wrote the book on how to bring storybook characters to life through animation. We all love Disney for changing the ending of "The Little Mermaid" to a happy one, and it's amazing how animators made a monster look so endearing in "Beauty and the Beast." However, if you are looking for an **animated movie about fairy tales** that breaks the mold, Disney isn't your only option.
+
+There is a vast world of storytelling beyond the House of Mouse. Whether you want something darker, more traditional, or just plain quirky, this **fairy movies list** has you covered. Here’s a look at some of the best animated fairytale movies produced outside the Disney studio system:
+
+| Movie | Year | Studio |
+| :--- | :--- | :--- |
+| Shrek | 2001 | DreamWorks |
+| The Snow Queen | 1957 | Soyuzmultfilm |
+| The Swan Princess | 1994 | Nest Family |
 
 ## 1. The Shrek Movies
 
-This is definitely one of the most successful series of movies featuring fairytale characters. There are four films starring Shrek the ogre and his pals, as well as a spin-off titled "Puss in Boots." It's great that Shrek is as far from Prince Charming as you can get, and I love the twisted take on Princess Fiona's curse. It's also great that a non-fairytale character, Shrek's shadow Donkey, plays such an important part in the plot (and those dronkeys are pretty darn adorable!). In addition to Puss in Boots, the extensive list of fairytale characters in the Shrek movies includes the Gingerbread Man, Peter Pan, Rumpelstiltskin, Pinocchio, The Three Little Pigs, The Big Bad Wolf, Merlin, Snow White, Cinderella, Sleeping Beauty, and Rapunzel.
+[Shrek](https://www.imdb.com/title/tt0126029/) is easily one of the most successful series of movies featuring fairytale characters. There are four films starring Shrek the ogre and his pals, as well as the popular spin-off "Puss in Boots." It's refreshing that Shrek is as far from Prince Charming as you can get, and the twisted take on Princess Fiona's curse adds a wonderful layer of depth to the story.
 
-## 2. "the Snow Queen"
+It's also great that a non-fairytale character, Shrek's shadow Donkey, plays such an important part in the plot. In addition to Puss in Boots, the extensive list of **fairytale animation cartoon characters** in the Shrek movies includes the Gingerbread Man, Peter Pan, Rumpelstiltskin, Pinocchio, The Three Little Pigs, The Big Bad Wolf, Merlin, Snow White, Cinderella, Sleeping Beauty, and Rapunzel. If you love this franchise, check out our other [animated films](https://movies.allwomenstalk.com/animated-films/) recommendations.
 
-If you enjoyed Disney's "Frozen," perhaps you should check out this 1957 animated Russian movie about a different Snow Queen. In this version, a boy named Kay runs away with the Snow Queen after splinters of enchanted ice pierce his eye and heart. His friend Gerda then sets out to rescue him. The story here is much closer to the original Hans Christian Andersen tale than "Frozen." I really love the design of the Snow Queen-she resembles an icy version of the Evil Queen from "Snow White and the Seven Dwarfs." You can find the movie on YouTube with English subtitles.
+## 2. The Snow Queen
 
-## 3. "the Swan Princess"
+If you enjoyed Disney's "Frozen," you should check out this [1957 animated Russian movie](https://www.imdb.com/title/tt0050987/) about a different Snow Queen. In this version, a boy named Kay runs away with the Snow Queen after splinters of enchanted ice pierce his eye and heart. His friend Gerda then sets out on an epic rescue mission. This **fairy cartoon movie** is much closer to the original Hans Christian Andersen tale than the modern Disney adaptation.
 
-This 1994 movie is based on the "Swan Lake" ballet, which is based on Russian folk tales and an old German legend. In the movie, evil sorcerer Rothbart casts a spell that makes Princess Odette turn into a swan during the day. He wants to force the girl to marry him so that he can rule her kingdom. But of course there's a charming prince out there who is going to make sure that this doesn't happen. This one might look like a Disney movie to you, and there's a reason for this-it was directed by a former Disney animation director.
+I really love the design of the Snow Queen; she resembles an icy, regal version of the Evil Queen from "Snow White and the Seven Dwarfs." You can often find this classic on YouTube with English subtitles for a truly unique viewing experience.
 
-## 4. "Thumbelina"
+## 3. The Swan Princess
 
-Disney also couldn't get its hands on the "Thumbelina" fairytale before another studio did. Fans of fairies like Tinkerbell should enjoy this 1994 movie that features a fairy prince and a tiny redheaded girl who just wants to be a part of his world. The movie stays pretty true to the Hans Christian Andersen fairytale that it's based on. This means that poor Thumbelina gets pursued by a toad, beetle, and mole before she finally gets her happy ending. And what's more romantic than falling in love with the first human-like being you meet simply because he's the same size as you?
+This [1994 movie](https://www.imdb.com/title/tt0111333/) is based on the "Swan Lake" ballet, which draws from Russian folk tales and old German legends. In the movie, the evil sorcerer Rothbart casts a spell that transforms Princess Odette into a swan during the day. He hopes to force her into marriage to seize her kingdom, but a charming prince is determined to break the curse. This one might look like a Disney movie, and for good reason—it was directed by Richard Rich, a former Disney animation director.
 
-## 5. "Peter & the Wolf"
+Why these movies stand out:
 
-I really love stop motion animation, and I was impressed by the amazing quality of it in this dark fairytale movie from 2006. It's based on the Russian children's tale about a boy who lives in the forest, where his only friends are a menagerie of animals that include a duck and a bird. His grandfather warns him about a wolf that roams around, but of course Peter doesn't listen. Instead he actually tries to capture the creature. I won't reveal the ending, but animal lovers should enjoy it.
+- **Unique Animation Styles**: From stop-motion to classic hand-drawn Russian animation.
 
-## 6. "Hoodwinked!"
+- **Faithful Adaptations**: Many stay closer to the original (and often darker) source material.
 
-"Hoodwinked!" is a very interesting take on the "Little Red Riding Hood" fairytale. It's been turned into a mystery featuring flashbacks that focus on different characters from the story. The Big Bad Wolf, Granny, Red Riding Hood, and the Woodsman tell their stories to the police, who show up after an incident at Granny's house. They're trying to track down a criminal known as the Goodie Bandit, and the crook just might be one of the four fairytale characters. If you're tired of animated fairytale movies featuring princesses, you might want to check this one out.
+- **Subversive Humor**: Movies like Shrek and Hoodwinked! poke fun at classic tropes.
 
-## 7. "the Last Unicorn"
+## 4. Thumbelina
 
-Unicorns are extremely popular fairytale characters, so it's surprising that there aren't very many fairytale movies about them. This Rankin/Bass classic is based on the 1968 novel of the same name. It's about a unicorn who sets out to find out what happened to all of the other unicorns after discovering that she's the last of her kind. During her journey, she encounters a terrifying giant red bull that's said to be responsible for ridding the world of unicorns. The movie is unusual because it features a creature being turned into a human instead of the other way around (think "The Swan Princess"), but it's the movie's strange story that makes it so riveting.
+Warner Bros. brought this Hans Christian Andersen tale to life in 1994 before Disney could get their hands on it. Fans of fairies like Tinkerbell should enjoy this film, which features a fairy prince and a tiny redheaded girl who just wants to find where she belongs. The movie stays relatively true to the source material, meaning poor Thumbelina is pursued by a toad, a beetle, and even a mole before reaching her happy ending. It's a charming **animated movie with fairy tale characters** that many 90s kids remember fondly.
 
-Some of these movies might not be as well-known as Disney fairytale films are, but they're definitely still worth watching. Most of them differ from Disney in interesting ways, whether they do it by twisting fairytales until they're almost unrecognizable, or by using a totally different form of animation to bring the stories to life. Do you have any favorite non-Disney fairytale movies that aren't on this list?
+## 5. Peter & the Wolf
+
+I really love stop-motion animation, and I was impressed by the high quality of this 2006 adaptation. It is based on the Russian children's tale about a boy living in the forest with a menagerie of friends, including a duck and a bird. His grandfather warns him about a wolf that roams the woods, but Peter's curiosity leads him to try and capture the creature himself. This [award-winning short](https://movies.allwomenstalk.com/disney-movies/) is a must-watch for anyone who appreciates artistic storytelling.
+
+## 6. Hoodwinked!
+
+[Hoodwinked!](https://www.imdb.com/title/tt0443536/) is a very clever take on the "Little Red Riding Hood" story, reimagined as a police mystery with Rashomon-style flashbacks. The Big Bad Wolf, Granny, Red, and the Woodsman all give their conflicting accounts to the investigators. They are all suspects in the hunt for the "Goodie Bandit," who might just be one of the most unexpected **non-Disney animated movies villains** you'll encounter. If you are tired of the standard princess formula, this is a great breath of fresh air.
+
+## 7. The Last Unicorn
+
+Unicorns are iconic fairytale figures, yet it is surprising how few films actually center on them. This [Rankin/Bass classic](https://www.imdb.com/title/tt0084237/), based on the 1968 novel by Peter S. Beagle, follows a unicorn who discovers she may be the last of her kind. Her journey leads her to a terrifying Red Bull and a transformative experience that is both beautiful and haunting. The movie is unusual for its mature themes and the unique way it handles magic and identity.
+
+While these movies might not have the same marketing machine as Disney, they are absolutely worth your time. They offer different perspectives on classic tales, whether by subverting expectations or using unique animation styles to bring them to life. Do you have a favorite from this **fairy movies list**, or is there another non-Disney gem we missed?
 
 ## Related Posts
 
-- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
-- [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
 - [movie writers](https://movies.allwomenstalk.com/fantastic-movies-about-writers-that-will-motivate-you/)
-- [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
-- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
 - [films van amanda seyfried](https://movies.allwomenstalk.com/movies-starring-amanda-seyfried-i-cant-get-enough-of/)
-- [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
+- [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
+- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
 - [2000s movies comedy](https://movies.allwomenstalk.com/comedies-from-the-early-2000s-that-you-should-rewatch/)
-- [why did beautiful creatures flop](https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/)
 - [watch room in rome movie](https://movies.allwomenstalk.com/best-movies-to-watch-before-you-go-to-italy/)
+- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
+- [why did beautiful creatures flop](https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/)
+- [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
+- [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
 - [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)
 

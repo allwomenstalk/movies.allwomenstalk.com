@@ -3,7 +3,7 @@ title: "7 Documentaries on Netflix You Will Love ..."
 description: "The Bridge; The Dhamma Brothers; Cropsey; Food Matters; For the Bible Tells Me so; More ..."
 url: "https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Documentaries on Netflix You Will Love ...
@@ -42,16 +42,16 @@ There are many other great documentaries on Netflix that I'm slowly working my w
 
 ## Related Posts
 
+- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
+- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
 - [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
 - [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
-- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
-- [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
-- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
 - [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
-- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
 - [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
-- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
+- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

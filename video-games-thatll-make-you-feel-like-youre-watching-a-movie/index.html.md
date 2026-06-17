@@ -3,7 +3,7 @@ title: "7 Video Games That'll Make You Feel like You're Watching a Movie ..."
 description: "Life is Strange; Until Dawn; The Wolf among Us; The Walking Dead; Beyond Two Souls; More ..."
 url: "https://movies.allwomenstalk.com/video-games-thatll-make-you-feel-like-youre-watching-a-movie/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Video Games That'll Make You Feel like You're Watching a Movie ...
@@ -42,16 +42,16 @@ If you want to feel like you're watching a movie that you're actually involved i
 
 ## Related Posts
 
-- [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
-- [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
-- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
-- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
-- [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
 - [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
-- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
+- [corny movies](https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/)
 - [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
-- [it's true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
+- [schools movies](https://movies.allwomenstalk.com/best-fictional-schools-in-the-movies/)
 - [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
+- [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
+- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
+- [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
+- [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
+- [it's true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
 - [5 Vampire Video Games ...](https://twilight.allwomenstalk.com/5-vampire-video-games/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 

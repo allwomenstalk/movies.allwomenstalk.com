@@ -3,7 +3,7 @@ title: "9 Spooky Movies That Will Get You in the Halloween Spirit ..."
 description: "Hocus Pocus; Coraline; Halloweentown; Addams Family Values; The Corpse Bride; More ..."
 url: "https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Spooky Movies That Will Get You in the Halloween Spirit ...
@@ -50,16 +50,16 @@ I love to watch all of these movies around Halloween time to get in the Hallowee
 
 ## Related Posts
 
+- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
+- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
+- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
+- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
+- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
 - [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
 - [cookie monster harry potter](https://funny.allwomenstalk.com/sesame-street-meets-harry-potter-in-new-halloween-parody-clip/)
-- [halloween cooking quotes](https://inspiration.allwomenstalk.com/halloween-inspired-quotes-about-magic/)
-- [how to make a cheshire cat costume](https://teen.allwomenstalk.com/adorable-teen-halloween-costumes/)
-- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
-- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
-- [hilarious pumpkin carvings](https://funny.allwomenstalk.com/silliest-pumpkin-carvings-only-true-artists-should-attempt/)
-- [halloween decorated mantels](https://diy.allwomenstalk.com/epic-halloween-mantels-to-adorn-your-house/)
 - [things to do in salem during halloween](https://travel.allwomenstalk.com/stunning-shots-of-halloween-in-salem/)
-- [cheap ways to decorate for halloween](https://diy.allwomenstalk.com/inexpensive-and-crafty-ways-to-decorate-for-halloween/)
+- [bumpy pumpkin varieties](https://diy.allwomenstalk.com/awesome-varieties-of-pumpkins-that-you-can-decorate-for-halloween/)
+- [couples costume with cat](https://funny.allwomenstalk.com/hilarious-cats-in-halloween-costumes/)
 - [15 Inspiring Movies That Will Lift Your Spirits .....](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)
 - [9 Food Themed Movies to Make Your Mouth Water ...](https://eatial.com/food-themed-movies-to-make-your-mouth-water/)
 

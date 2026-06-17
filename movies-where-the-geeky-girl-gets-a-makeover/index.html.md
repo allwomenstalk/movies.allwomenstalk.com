@@ -3,7 +3,7 @@ title: "13 Movies That Prove the Underdog Wins when Geeks 🤓 Get Makeovers ...
 description: "The Princess Diaries; Grease; My Big Fat Greek Wedding; Dirty Dancing; Strictly Ballroom; More ..."
 url: "https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 13 Movies That Prove the Underdog Wins when Geeks 🤓 Get Makeovers ...
@@ -71,15 +71,15 @@ This article was written in collaboration with editor Sabrina Yates.
 ## Related Posts
 
 - [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
-- [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
-- [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
 - [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
-- [7 Top Zombie Flicks You Shouldn't Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
+- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
 - [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
+- [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
+- [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
+- [7 Top Zombie Flicks You Shouldn't Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
 - [10 Fun Christmas Movies You Have to Watch This Hol...](https://lifestyle.allwomenstalk.com/fun-christmas-movies-you-have-to-watch-this-holiday-season/)
 - [movies inspired by jane austen](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
-- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
+- [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
 

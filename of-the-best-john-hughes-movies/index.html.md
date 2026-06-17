@@ -3,7 +3,7 @@ title: "8 of the Best John Hughes Movies ..."
 description: "The Breakfast Club (1985); Pretty in Pink (1986); Sixteen Candles (1984); Ferris Bueller’s Day off (1986); Curly Sue (1991); More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 8 of the Best John Hughes Movies ...
@@ -64,14 +64,14 @@ Do you have a favorite John Hughes movie?
 
 ## Related Posts
 
-- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
 - [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [anti valentine's day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
 - [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
 - [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
 - [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
-- [anti valentine's day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
-- [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
 - [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)

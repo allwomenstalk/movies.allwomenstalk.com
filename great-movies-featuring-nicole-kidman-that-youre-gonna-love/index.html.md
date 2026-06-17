@@ -3,7 +3,7 @@ title: "7 Great Movies Featuring Nicole Kidman That You're Gonna Love ..."
 description: "The Others; The Golden Compass; Bewitched; Practical Magic; Moulin Rouge!; More ..."
 url: "https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Great Movies Featuring Nicole Kidman That You're Gonna Love ...
@@ -56,16 +56,16 @@ Nicole Kidman is a fabulous actress and I can’t wait to see more of her films,
 
 ## Related Posts
 
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
 - [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
-- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
-- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
-- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
+- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
+- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

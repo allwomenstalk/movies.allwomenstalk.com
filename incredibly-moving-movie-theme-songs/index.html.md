@@ -3,7 +3,7 @@ title: "10 Incredibly Moving Movie Theme Songs ..."
 description: "“Uninvited,” by Alanis Morissette, for City of Angels; “Streets of Philadelphia,” by Bruce Springsteen, for Philadelphia; “Don't Wanna Miss a Thing,” by Aerosmith, for Armageddon; “Kiss from a Rose,” by Seal, for Batman Forever; “Kissing You,” by Des'ree, for Romeo + Juliet; More ..."
 url: "https://movies.allwomenstalk.com/incredibly-moving-movie-theme-songs/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Incredibly Moving Movie Theme Songs ...
@@ -56,14 +56,14 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/256255)
 
 ## Related Posts
 
-- [music plants like](https://gardening.allwomenstalk.com/5-songs-your-plants-will-like/)
-- [happy songs to start the day](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
-- [i like some of the gaga songs](https://celebs.allwomenstalk.com/favourite-lady-gaga-songs/)
 - [katy perry tracklist](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
-- [songs to blast](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
-- [songs that get stuck in your head](https://lifestyle.allwomenstalk.com/top-songs-that-get-stuck-in-your-head/)
+- [happy songs to start the day](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
+- [music plants like](https://gardening.allwomenstalk.com/5-songs-your-plants-will-like/)
 - [romantic slow music](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
+- [songs to blast](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
 - [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
+- [i like some of the gaga songs](https://celebs.allwomenstalk.com/favourite-lady-gaga-songs/)
+- [songs that get stuck in your head](https://lifestyle.allwomenstalk.com/top-songs-that-get-stuck-in-your-head/)
 - [best dance songs 2011](https://lifestyle.allwomenstalk.com/the-hottest-dance-songs-of/)
 - [motivational songs for weight loss](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)

@@ -3,7 +3,7 @@ title: "8 Smart and Funny Movie Detectives We Love ..."
 description: "Sherlock Holmes from Sherlock Holmes; J.J. Gittes from Chinatown; Jacques Clouseau from the Pink Panther; Philip Marlowe from the Big Sleep; Jimmy Doyle from the French Connection; More ..."
 url: "https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 8 Smart and Funny Movie Detectives We Love ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/28639178)
 
 ## Related Posts
 
-- [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
-- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
-- [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
-- [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
-- [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
-- [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
 - [nice movies to watch with your boyfriend](https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/)
+- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
+- [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
+- [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
 - [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
-- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
+- [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
+- [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
 - [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
+- [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
+- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 

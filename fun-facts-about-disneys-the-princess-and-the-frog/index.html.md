@@ -3,7 +3,7 @@ title: "7 Fun Facts about Disney's \"the Princess and the Frog\" ..."
 description: "Leah Chase; Clothes; The Economy; Automobiles; Defy the Odds; More ..."
 url: "https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Fun Facts about Disney's "the Princess and the Frog" ...
@@ -42,16 +42,16 @@ Tiana is the second heroine to stand in a holy place of worship in a Disney film
 
 ## Related Posts
 
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
-- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
-- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
 - [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
+- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
+- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
 - [fun facts about women's suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
 - [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
 - [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
+- [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [7 Adorable Disney Characters ...](https://movies.allwomenstalk.com/adorable-disney-characters/)
 

@@ -3,7 +3,7 @@ title: "7 Scary Halloween Movies Not to Watch with Kids 🧒 ..."
 description: "Halloween; The Exorcist; The Shining; Alien; Aliens; More ..."
 url: "https://movies.allwomenstalk.com/scary-halloween-movies-not-to-watch-with-kids/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Scary Halloween Movies Not to Watch with Kids 🧒 ...
@@ -43,15 +43,15 @@ Have you prepared any horror films that you are planning to watch this Halloween
 ## Related Posts
 
 - [best old halloween movies](https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/)
-- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
+- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
-- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
 - [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
+- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
+- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
+- [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
+- [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
 - [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
 - [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
-- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
-- [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
-- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Horrible Horror Movies to Miss ...](https://twilight.allwomenstalk.com/5-horrible-horror-movies-to-miss/)
 

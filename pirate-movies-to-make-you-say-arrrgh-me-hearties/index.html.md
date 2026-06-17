@@ -3,7 +3,7 @@ title: "7 Pirate Movies to Make You Say Arrrgh Me Hearties ..."
 description: "Blackbeard’s Ghost; Pirates of the Caribbean: the Curse of the Black Pearl; Treasure Island; The Crimson Pirate; Disney’s Peter Pan; More ..."
 url: "https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Pirate Movies to Make You Say Arrrgh Me Hearties ...
@@ -56,16 +56,16 @@ I think there’s something for everyone in pirate movies – all members of the
 
 ## Related Posts
 
-- [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
 - [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
-- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
 - [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
-- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
 - [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
-- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
+- [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
 - [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
+- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

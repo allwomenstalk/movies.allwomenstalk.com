@@ -3,7 +3,7 @@ title: "7 Private Eyes in the Movies and on TV Who Get the Job Done ..."
 description: "Sherlock Holmes; Thomas Magnum; Philip Marlowe; Nancy Drew; Angel; More ..."
 url: "https://movies.allwomenstalk.com/private-eyes-in-the-movies-and-on-tv-who-get-the-job-done/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Private Eyes in the Movies and on TV Who Get the Job Done ...
@@ -42,16 +42,16 @@ There have been hundreds, maybe thousands of one-off TV and movie private eyes, 
 
 ## Related Posts
 
-- [female baby cartoon characters](https://parenting.allwomenstalk.com/adorable-baby-girl-gets-really-emotional-while-watching-a-cartoon/)
-- [THIS is How You Break the Internet - Watch Beyonce...](https://music.allwomenstalk.com/this-is-how-you-break-the-internet-watch-beyonces-new-homemade-music-video/)
-- [The "Jurassic World" Trailer is Everything You Cou...](https://movies.allwomenstalk.com/the-jurassic-world-trailer-is-everything-you-couldve-hoped-for/)
-- [Twins Separated at Birth Reunite Thanks to Social ...](https://lifestyle.allwomenstalk.com/twins-separated-at-birth-reunite-thanks-to-social-media/)
 - [Whoa! "the Hunger Games" is Set to Come to Life on...](https://movies.allwomenstalk.com/whoa-the-hunger-games-is-set-to-come-to-life-on-stage/)
-- [Netflix Needs to Add These Shows Pronto ...](https://movies.allwomenstalk.com/awesome-tv-shows-netflix-needs-to-add-to-their-site/)
-- [LOL - Watch Benedict Cumberbatch Impersonate 11 Ce...](https://funny.allwomenstalk.com/lol-watch-benedict-cumberbatch-impersonate-celebs-in-just-one-minute/)
-- [We Wish These Cult Classics Were Still on TV ...](https://movies.allwomenstalk.com/cult-classic-tv-shows-we-wish-were-still-on-tv/)
-- [age of summer trailer](https://movies.allwomenstalk.com/the-avengers-age-of-ultrons-extended-trailer-includes-awesome-bonus-footage/)
 - [dan in real life thanksgiving](https://movies.allwomenstalk.com/portrayals-of-thanksgiving-in-the-movies-and-on-tv/)
+- [Twins Separated at Birth Reunite Thanks to Social ...](https://lifestyle.allwomenstalk.com/twins-separated-at-birth-reunite-thanks-to-social-media/)
+- [THIS is How You Break the Internet - Watch Beyonce...](https://music.allwomenstalk.com/this-is-how-you-break-the-internet-watch-beyonces-new-homemade-music-video/)
+- [LOL - Watch Benedict Cumberbatch Impersonate 11 Ce...](https://funny.allwomenstalk.com/lol-watch-benedict-cumberbatch-impersonate-celebs-in-just-one-minute/)
+- [Netflix Needs to Add These Shows Pronto ...](https://movies.allwomenstalk.com/awesome-tv-shows-netflix-needs-to-add-to-their-site/)
+- [female baby cartoon characters](https://parenting.allwomenstalk.com/adorable-baby-girl-gets-really-emotional-while-watching-a-cartoon/)
+- [The "Jurassic World" Trailer is Everything You Cou...](https://movies.allwomenstalk.com/the-jurassic-world-trailer-is-everything-you-couldve-hoped-for/)
+- [age of summer trailer](https://movies.allwomenstalk.com/the-avengers-age-of-ultrons-extended-trailer-includes-awesome-bonus-footage/)
+- [We Wish These Cult Classics Were Still on TV ...](https://movies.allwomenstalk.com/cult-classic-tv-shows-we-wish-were-still-on-tv/)
 - [7 Jobs That Look Cooler in Movies and on TV than T...](https://allwomenstalk.com/7-jobs-that-look-cooler-in-movies-and-on-tv-than-they-actually-are/)
 - [7 Best Movie Spies ...](https://allwomenstalk.com/7-best-movie-spies/)
 

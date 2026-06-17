@@ -3,7 +3,7 @@ title: "Movies like 10 Things I Hate about You That Will Remind You of the Fun H
 description: "Easy a (2010); She’s All That (1999); Mean Girls (2004); Clueless (1995); Drive Me Crazy (1999); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-ten-things-i-hate-about-you/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Movies like 10 Things I Hate about You That Will Remind You of the Fun High School Days ...
@@ -54,13 +54,13 @@ These movies are fun to watch even if you are not in high school. They will put 
 
 ## Related Posts
 
-- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
-- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
+- [Film Review: “300″](https://allwomenstalk.com/film-review-300/)
 - [Movies Opening Today (March 23, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
+- [movies like stuck in love reddit](https://movies.allwomenstalk.com/movies-like-love-rosie/)
 - [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
+- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
 - [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
 - [Movies Opening Today (March 2, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
-- [Film Review: “300″](https://allwomenstalk.com/film-review-300/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - [Movies Opening Today (March 16, 2007)](https://allwomenstalk.com/movies-opening-today-march/)
 - ['Grindhouse' Bombs at Movie House ...](https://allwomenstalk.com/grindhouse-bombs-at-movie-house/)

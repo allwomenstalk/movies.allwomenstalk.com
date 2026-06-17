@@ -3,7 +3,7 @@ title: "7 Inspiring Films Based on True Stories ..."
 description: "October Sky; Schindler's List; Norma Rae; The Blind Side; The Pursuit of Happyness; More ..."
 url: "https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Inspiring Films Based on True Stories ...
@@ -44,13 +44,13 @@ The next time you need a little inspiration in your life, I suggest watching one
 
 - [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
-- [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
-- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
 - [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
+- [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
 - [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
+- [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
+- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
 - [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)

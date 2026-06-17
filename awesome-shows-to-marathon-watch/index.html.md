@@ -3,7 +3,7 @@ title: "7 Awesome Shows to Marathon Watch ..."
 description: "Veronica Mars; Buffy the Vampire Slayer; Avatar: the Last Airbender; House of Cards; Lost; More ..."
 url: "https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Awesome Shows to Marathon Watch ...
@@ -57,15 +57,15 @@ Castle, Firefly, Once Upon a Time, Community, and It's Always Sunny in Philadelp
 ## Related Posts
 
 - [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
-- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
-- [best dads in movies](https://movies.allwomenstalk.com/greatest-movie-dads-that-you-cant-help-but-love/)
 - [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
-- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
-- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
+- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
 - [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
+- [best dads in movies](https://movies.allwomenstalk.com/greatest-movie-dads-that-you-cant-help-but-love/)
+- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
 - [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
 - [spoofing movies](https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/)
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
+- [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
 - [7 Best Shows on TV Right Now ...](https://movies.allwomenstalk.com/7-best-shows-on-tv-right-now/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

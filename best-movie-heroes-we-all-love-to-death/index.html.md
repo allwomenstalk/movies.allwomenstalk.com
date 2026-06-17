@@ -3,7 +3,7 @@ title: "7 Best Movie Heroes We All Love to Death ..."
 description: "Star Wars (Luke, Han Solo, Princess Leia); Forrest Gump; Harry Potter; The Lord of the Rings (Frodo); North Country (Josey); More ..."
 url: "https://movies.allwomenstalk.com/best-movie-heroes-we-all-love-to-death/"
 category: "movies"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Best Movie Heroes We All Love to Death ...
@@ -42,16 +42,16 @@ What do you think of my list of best movie heroes? Did I leave anyone out? Who i
 
 ## Related Posts
 
+- [oldies movies](https://movies.allwomenstalk.com/great-oldies-movies-that-you-have-to-see/)
 - [7 Feel-good Flicks to Watch when You're Feeling Lo...](https://movies.allwomenstalk.com/feel-good-flicks-to-watch-when-youre-feeling-low/)
+- [7 Items of Movie News You're Going to Love ...](https://movies.allwomenstalk.com/items-of-movie-news-youre-going-to-love/)
 - [7 Ways Macho Action Movies Can Help Your Writing ....](https://bilbr.com/ways-macho-action-movies-can-help-your-writing/)
 - [movies to watch on vacation](https://movies.allwomenstalk.com/movies-not-to-watch-before-your-vacation/)
-- [7 Items of Movie News You're Going to Love ...](https://movies.allwomenstalk.com/items-of-movie-news-youre-going-to-love/)
+- [7 Musical Comedy Movies for Some Toe-Tapping Laugh...](https://7fun.net/musical-comedy-movies-for-some-toe-tapping-laughter/)
+- [9 British Costume Dramas to Try if You Love Downto...](https://movies.allwomenstalk.com/british-costume-dramas-to-try-if-you-love-downton-abbey/)
 - [9 of the Greatest Ever Movie Love Stories ...](https://bilbr.com/of-the-greatest-ever-movie-love-stories/)
 - [this cool guy my gardener met yesterday tries to a...](https://movies.allwomenstalk.com/food-documentaries-everyone-should-make-time-to-watch/)
 - [7 Terrifying Independent Horror FIlms You Might No...](https://movies.allwomenstalk.com/terrifying-independent-horror-films-you-might-not-have-heard-of/)
-- [9 British Costume Dramas to Try if You Love Downto...](https://movies.allwomenstalk.com/british-costume-dramas-to-try-if-you-love-downton-abbey/)
-- [oldies movies](https://movies.allwomenstalk.com/great-oldies-movies-that-you-have-to-see/)
-- [7 Musical Comedy Movies for Some Toe-Tapping Laugh...](https://7fun.net/musical-comedy-movies-for-some-toe-tapping-laughter/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 
