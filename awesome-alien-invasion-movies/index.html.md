@@ -3,7 +3,7 @@ title: "7 Awesome Alien Invasion Movies ..."
 description: "War of the Worlds; Destroy All Monsters; Evolution; I Married a Monster from Outer Space; The Faculty; More ..."
 url: "https://movies.allwomenstalk.com/awesome-alien-invasion-movies/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Awesome Alien Invasion Movies ...
@@ -42,16 +42,16 @@ Alien invasions may take the form of global destruction, or feature a subtler in
 
 ## Related Posts
 
-- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
 - [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
-- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
-- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
 - [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
-- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
+- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
 - [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
-- [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
+- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
+- [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
+- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
 - [5 Movies on Aliens ...](https://twilight.allwomenstalk.com/5-movies-on-aliens/)
 - [5 Cool Zombie Movies ...](https://twilight.allwomenstalk.com/5-cool-zombie-movies/)
 

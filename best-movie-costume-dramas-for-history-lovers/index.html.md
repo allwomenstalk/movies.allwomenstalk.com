@@ -3,7 +3,7 @@ title: "15 Best Costume Dramas for History Lovers ..."
 description: "The Favourite; Ever after; Lady Jane; Much Ado about Nothing; The Scarlet Pimpernel; More ..."
 url: "https://movies.allwomenstalk.com/best-movie-costume-dramas-for-history-lovers/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 15 Best Costume Dramas for History Lovers ...
@@ -72,15 +72,15 @@ Keira Knightley loves a period drama, doesn’t she!? Colette was released just 
 
 ## Related Posts
 
-- [movies like mean girls on netflix](https://movies.allwomenstalk.com/movies-like-the-duff-everyone-can-relate-to/)
-- [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
 - [movies about supernatural](https://movies.allwomenstalk.com/movies-like-twilight-that-will-quench-your-thirst-for-the-supernatural/)
-- [no kissing list](https://movies.allwomenstalk.com/movies-like-the-kissing-booth/)
-- [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
 - [romance movies that will make you cry](https://movies.allwomenstalk.com/movies-like-notebook/)
 - [modern movies like pride and prejudice](https://movies.allwomenstalk.com/movies-like-pride-and-prejudice/)
 - [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
+- [movie like gone girl](https://movies.allwomenstalk.com/movies-like-gone-girl/)
+- [no kissing list](https://movies.allwomenstalk.com/movies-like-the-kissing-booth/)
 - [movies like stronger](https://movies.allwomenstalk.com/movies-like-me-before-you/)
+- [movies like mean girls on netflix](https://movies.allwomenstalk.com/movies-like-the-duff-everyone-can-relate-to/)
+- [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
 - [movies similar to 27 dresses](https://movies.allwomenstalk.com/movies-like-bridesmaids/)
 - [10 Classic Old Christmas Movies You'll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 - [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)

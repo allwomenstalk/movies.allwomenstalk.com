@@ -3,7 +3,7 @@ title: "7 anti-Love Movies for Singles to Watch on Valentine's Day ..."
 description: "Becoming Jane; The Stepford Wives; Fatal Attraction; Revolutionary Road; The Other Woman; More ..."
 url: "https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 anti\-Love Movies for Singles to Watch on Valentine's Day ...
@@ -43,15 +43,15 @@ Valentine's Day shouldn't be a miserable time for all of you single ladies. It's
 ## Related Posts
 
 - [best tv shows you haven't seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
-- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
-- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
 - [disney jokes funny](https://funny.allwomenstalk.com/disney-jokes-about-all-your-favorite-films/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
-- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
+- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
+- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
 - [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
-- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
 - [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
+- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
+- [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [Top 7 Romantic Comedies ...](https://movies.allwomenstalk.com/top-romantic-comedies/)
 

@@ -3,7 +3,7 @@ title: "8 Most Unusual Movies of 2012 ..."
 description: "Holy Motors; Cosmopolis; Cloud Atlas; God Bless America; Beasts of the Southern Wild; More ..."
 url: "https://movies.allwomenstalk.com/most-unusual-movies-of/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 8 Most Unusual Movies of 2012 ...
@@ -63,15 +63,15 @@ So if you want to see something a bit different from last year, check out these 
 ## Related Posts
 
 - [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
-- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
-- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
 - [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
 - [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
 - [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [10 Romantic Movies of 2011 ...](https://7fun.net/romantic-movies-of-2011/)
 - [Top 8 Romantic Comedies of 2012 ...](https://movies.allwomenstalk.com/top-romantic-comedies-of-2012/)
 

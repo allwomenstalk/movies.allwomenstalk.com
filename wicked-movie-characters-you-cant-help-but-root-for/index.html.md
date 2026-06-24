@@ -3,7 +3,7 @@ title: "7 Wicked Movie Characters You Can't Help but Root for ..."
 description: "Shere Khan (Jungle Book); Norman Stansfield (Leon); Bridget Gregory (the Last Seduction); Hedley Lamarr (Blazing Saddles); Sheriff of Nottingham (Robin Hood); More ..."
 url: "https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Wicked Movie Characters You Can't Help but Root for ...
@@ -42,16 +42,16 @@ So if you also love the bad guys in movies, here's some more for you to root for
 
 ## Related Posts
 
-- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
-- [thé imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
-- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
-- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
-- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
-- [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
-- [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
-- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
-- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
 - [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
+- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
+- [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
+- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
+- [movies that feel like autumn](https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/)
+- [thé imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
+- [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
+- [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
+- [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
+- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
 

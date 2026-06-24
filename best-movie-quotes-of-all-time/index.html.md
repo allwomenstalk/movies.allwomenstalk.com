@@ -3,7 +3,7 @@ title: "You is Kind and Other GOAT Movie Quotes ..."
 description: "The Help...; The Wizard of Oz...; Forrest Gump...; Jerry Maguire...; Dirty Dancing...; More ..."
 url: "https://movies.allwomenstalk.com/best-movie-quotes-of-all-time/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # You is Kind and Other GOAT Movie Quotes ...
@@ -94,16 +94,16 @@ I'm afraid so. You're entirely bonkers. But I'll tell you a secret. All the best
 
 ## Related Posts
 
-- [sometimes the right path is not easiest one](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 - [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
-- [death bed quotes](https://lifestyle.allwomenstalk.com/wittiest-deathbed-quotes/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/great-quotes-from-jillian-michaels/)
+- [sometimes the right path is not easiest one](https://lifestyle.allwomenstalk.com/quotes-to-live-by/)
 - [7 year itch funny quotes](https://movies.allwomenstalk.com/inspiring-quotes-from-classic-old-movies/)
-- [how tall was joan crawford](https://movies.allwomenstalk.com/classic-joan-crawford-quotes/)
-- [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
-- [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
 - [sword quotes](https://beauty.allwomenstalk.com/famous-and-fab-quotes-on-beauty/)
+- [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
 - [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/great-quotes-from-jillian-michaels/)
+- [death bed quotes](https://lifestyle.allwomenstalk.com/wittiest-deathbed-quotes/)
+- [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
+- [how tall was joan crawford](https://movies.allwomenstalk.com/classic-joan-crawford-quotes/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [10 Famous Movie One Liners ...](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
 

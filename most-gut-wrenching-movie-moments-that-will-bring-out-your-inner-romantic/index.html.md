@@ -3,7 +3,7 @@ title: "7 Most Gut Wrenching Movie Moments That Will Bring out Your Inner Romant
 description: "Captain Wentworth's Letter, PERSUASION; The Tattoo Scene, the Fountain; Alex Shows up at Gigi's Door, He's Just Not That into You; Mr. Thornton's Proposal, North & South; Mr. Darcy's Second Proposal, Pride and Prejudice; More ..."
 url: "https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Most Gut Wrenching Movie Moments That Will Bring out Your Inner Romantic ...
@@ -61,10 +61,10 @@ Well ladies, these are the scenes that make my heart clench and my inner romanti
 - [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
 - [twilight stephenie meyer cameo](https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/)
 - [chick flicks movies list](https://movies.allwomenstalk.com/chick-flicks-i-never-get-tired-of-watching/)
-- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
-- [best egypt mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-egypt-the-empire-and-egyptian-mythology/)
-- [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
 - [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
+- [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
+- [best egypt mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-egypt-the-empire-and-egyptian-mythology/)
+- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
 - [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)

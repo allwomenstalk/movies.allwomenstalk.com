@@ -3,7 +3,7 @@ title: "9 Upcoming TV Shows to Be Excited for ..."
 description: "Resurrection; Believe; Mixology; Enlisted; Mind Games; More ..."
 url: "https://movies.allwomenstalk.com/upcoming-tv-shows-to-be-excited-for/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 9 Upcoming TV Shows to Be Excited for ...
@@ -50,16 +50,16 @@ There are so many amazing TV shows that are coming up! It was hard to narrow it 
 
 ## Related Posts
 
-- [7 Outrageous Onstage Moments of 2013 ...](https://celebs.allwomenstalk.com/outrageous-onstage-moments-of/)
-- [7 TV Shows I'm on the Fence about ...](https://movies.allwomenstalk.com/tv-shows-im-on-the-fence-about/)
 - [7 Fall TV Shows That Didn't do as Well as Expected...](https://movies.allwomenstalk.com/fall-tv-shows-that-didnt-do-as-well-as-expected/)
 - [9 Viral Videos You Need in Your Life Right Now ...](https://lifestyle.allwomenstalk.com/viral-videos-you-need-in-your-life-right-now/)
-- [7 Shocking Moments of 2013 That Blew Our Minds ...](https://celebs.allwomenstalk.com/shocking-moments-of-that-blew-our-minds/)
 - [7 Great Period Television Shows You Should Be Watc...](https://movies.allwomenstalk.com/great-period-television-shows-you-should-be-watching/)
 - [7 Dark Grimm's Fairytales That Will Shock You ...](https://bilbr.com/dark-grimms-fairytales-that-will-shock-you/)
-- [9 Absolutely Adorable Viral Proposal Videos on the...](https://7fun.net/absolutely-adorable-viral-proposal-videos-on-the-web/)
 - [7 Events to Watch in the 2014 Winter Olympics ...](https://lifestyle.allwomenstalk.com/events-to-watch-in-the-winter-olympics/)
+- [9 Absolutely Adorable Viral Proposal Videos on the...](https://7fun.net/absolutely-adorable-viral-proposal-videos-on-the-web/)
+- [7 Shocking Moments of 2013 That Blew Our Minds ...](https://celebs.allwomenstalk.com/shocking-moments-of-that-blew-our-minds/)
+- [7 TV Shows I'm on the Fence about ...](https://movies.allwomenstalk.com/tv-shows-im-on-the-fence-about/)
 - [7 Paranormal Hoaxes to Read about ...](https://lifestyle.allwomenstalk.com/paranormal-hoaxes-to-read-about/)
+- [7 Outrageous Onstage Moments of 2013 ...](https://celebs.allwomenstalk.com/outrageous-onstage-moments-of/)
 - [10 Fall TV Shows I Can't Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 - [7 TV Shows to Stay Tuned for ...](https://allwomenstalk.com/7-tv-shows-to-stay-tuned-for/)
 

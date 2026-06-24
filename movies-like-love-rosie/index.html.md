@@ -3,7 +3,7 @@ title: "Movies like Love, Rosie That Will Make You Believe in Soulmates ..."
 description: "The Notebook (2004); The First Time (2012); One Day (2011); Stuck in Love (2012); What if (2013); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-love-rosie/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # Movies like Love, Rosie That Will Make You Believe in Soulmates ...
@@ -54,16 +54,16 @@ Do you believe in soul mates? If not, these movies like Love, Rosie will make yo
 
 ## Related Posts
 
-- [Movies Opening Today (March 23, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
-- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
-- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
-- [Film Review: “300″](https://allwomenstalk.com/film-review-300/)
 - [hollywood movies like friends with benefits](https://movies.allwomenstalk.com/movies-like-friends-with-benefits/)
+- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
+- [more movies like the fault in our stars](https://movies.allwomenstalk.com/movies-like-the-fault-in-our-stars/)
 - [Movies Opening Today (March 2, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
+- [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - ['Grindhouse' Bombs at Movie House ...](https://allwomenstalk.com/grindhouse-bombs-at-movie-house/)
 - [Movies Opening Today (March 16, 2007)](https://allwomenstalk.com/movies-opening-today-march/)
 - [Movies Opening Today (April 6, 2007)](https://allwomenstalk.com/movies-opening-today-april/)
-- [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
+- [Film Review: “300″](https://allwomenstalk.com/film-review-300/)
+- [Movies Opening Today (March 23, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
 - [7 Upcoming Romantic Movies You Will Love ...](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [15 Inspiring Movies That Will Lift Your Spirits .....](https://movies.allwomenstalk.com/inspiring-movies-to-watch-when-youre-feeling-down/)
 

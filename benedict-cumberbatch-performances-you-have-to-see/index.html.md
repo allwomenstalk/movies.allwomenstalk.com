@@ -3,7 +3,7 @@ title: "7 Benedict Cumberbatch Performances You Have to See ..."
 description: "The Imitation Game; Parade’s End; The Penguins of Madagascar; Little Favor; Hawking; More ..."
 url: "https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Benedict Cumberbatch Performances You Have to See ...
@@ -43,15 +43,15 @@ This is just a small selection of Benedict Cumberbatch performances past and fut
 ## Related Posts
 
 - [interstellee](https://movies.allwomenstalk.com/movies-that-rocked/)
-- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
-- [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
 - [movies that motivate you](https://movies.allwomenstalk.com/movies-that-will-boost-your-energy/)
 - [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
 - [holiday chick](https://movies.allwomenstalk.com/best-holiday-chick-flicks/)
 - [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
+- [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
 - [the santa clause villains](https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/)
 - [goofy christmas children & family films](https://movies.allwomenstalk.com/hilarious-holiday-movies-to-watch-with-the-family/)
+- [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [10 Broadway Shows of 2011 You Have to See ...](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
 

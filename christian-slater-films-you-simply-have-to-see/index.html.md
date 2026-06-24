@@ -3,7 +3,7 @@ title: "7 Christian Slater Films You Simply Have to See ..."
 description: "Heathers; Robin Hood: Prince of Thieves; Untamed Heart; Interview with the Vampire; True Romance; More ..."
 url: "https://movies.allwomenstalk.com/christian-slater-films-you-simply-have-to-see/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Christian Slater Films You Simply Have to See ...
@@ -42,16 +42,16 @@ Christian Slater was one of my favorite actors growing up, and although he hasnâ
 
 ## Related Posts
 
-- [rainy thriller movies](https://movies.allwomenstalk.com/heart-racing-suspense-thrillers-to-watch-on-a-rainy-day/)
-- [movies that are unintentionally funny](https://movies.allwomenstalk.com/unintentionally-hilarious-movies-that-will-have-you-cracking-up/)
 - [chick flicks movies list](https://movies.allwomenstalk.com/chick-flicks-i-never-get-tired-of-watching/)
+- [rainy thriller movies](https://movies.allwomenstalk.com/heart-racing-suspense-thrillers-to-watch-on-a-rainy-day/)
 - [movies with a message](https://movies.allwomenstalk.com/kids-movies-with-a-message/)
 - [true romance tattoo scene](https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/)
-- [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
 - [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
-- [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
 - [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
 - [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
+- [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
+- [movies that are unintentionally funny](https://movies.allwomenstalk.com/unintentionally-hilarious-movies-that-will-have-you-cracking-up/)
+- [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 

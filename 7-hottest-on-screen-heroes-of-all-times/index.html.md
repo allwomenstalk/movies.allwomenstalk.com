@@ -3,7 +3,7 @@ title: "7 Hottest on-Screen Heroes of All Times ..."
 description: "Batman; Xander Cage; Blade; Spartacus; James Bond; More ..."
 url: "https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Hottest on\-Screen Heroes of All Times ...
@@ -56,16 +56,16 @@ So, tell me – do you have your list of the hottest on-screen heroes of all tim
 
 ## Related Posts
 
+- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
-- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
-- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
-- [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
-- [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
 - [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
+- [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
+- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 

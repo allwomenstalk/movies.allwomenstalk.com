@@ -3,7 +3,7 @@ title: "Awesome Movies That'll Get You Excited for Autumn ..."
 description: "Good Will Hunting; When Harry Met Sally; Halloweentown; High School Musical 3; Autumn in New York; More ..."
 url: "https://movies.allwomenstalk.com/awesome-movies-thatll-get-you-excited-for-autumn/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # Awesome Movies That'll Get You Excited for Autumn ...
@@ -45,11 +45,11 @@ What is your favorite fall movie? Let me know in the comments what movie you mus
 - [movies to watch when you're in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
 - [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
 - [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
-- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
-- [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
 - [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [top ten box office movies](https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/)
 - [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
 - [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
+- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
 - [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
 - [new tv series worth watching](https://movies.allwomenstalk.com/streaming-tv-shows-worth-watching-this-fall/)
 - [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)

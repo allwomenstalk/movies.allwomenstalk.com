@@ -3,7 +3,7 @@ title: "11 Hilarious Holiday Movies to Watch with the Family ..."
 description: "Deck the Halls; Elf; Christmas with the Kranks; The Santa Clause; Eight Crazy Nights; More ..."
 url: "https://movies.allwomenstalk.com/hilarious-holiday-movies-to-watch-with-the-family/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 11 Hilarious Holiday Movies to Watch with the Family ...
@@ -58,14 +58,14 @@ It's the happiest time of the year, so make sure that you have holiday cheer. Bl
 
 ## Related Posts
 
-- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
-- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
-- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
-- [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
 - [the santa clause villains](https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
 - [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
+- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
 - [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
 - [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
 - [8 Touching Holiday Movies You Can't Miss ...](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)

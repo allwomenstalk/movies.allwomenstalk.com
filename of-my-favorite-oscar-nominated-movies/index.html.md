@@ -3,7 +3,7 @@ title: "9 of My Favorite Oscar Nominated Movies ..."
 description: "12 Years a Slave; The Wolf of Wall Street; Despicable Me 2; The Great Gatsby; The Hobbit: Desolation of Smaug; More ..."
 url: "https://movies.allwomenstalk.com/of-my-favorite-oscar-nominated-movies/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 9 of My Favorite Oscar Nominated Movies ...
@@ -50,16 +50,16 @@ I can't wait to see which films will win these spectacular honors; I wish the be
 
 ## Related Posts
 
-- [paris color riche le stylo eye blinged brilliant](https://movies.allwomenstalk.com/oscar-nominated-films-you-should-be-seeing-now/)
-- [7 Adam Sandler Movies You Must Watch ASAP!](https://7fun.net/adam-sandler-movies-you-must-watch-asap/)
-- [most beloved movies of all time](https://movies.allwomenstalk.com/of-the-most-beloved-classic-movies-of-all-time/)
 - [riche le stylo eye unforgettable](https://movies.allwomenstalk.com/movies-starring-real-life-couples-that-we-love/)
-- [kids movies adults like](https://movies.allwomenstalk.com/kids-movies-that-adults-love-just-as-much/)
-- [7 2014 BAFTA Winning Movies That Have Stolen Our H...](https://movies.allwomenstalk.com/bafta-winning-movies-that-have-stolen-our-hearts/)
-- [color le shadow hollywood](https://movies.allwomenstalk.com/oscar-nominated-movies-the-world-has-fallen-in-love-with/)
-- [9 Noughties Films That Will Take You Back to Being...](https://7fun.net/noughties-films-that-will-take-you-back-to-being-a-teenager/)
 - [7 Amazing Movies Based on Classic Novels ...](https://movies.allwomenstalk.com/amazing-movies-based-on-classic-novels/)
+- [most beloved movies of all time](https://movies.allwomenstalk.com/of-the-most-beloved-classic-movies-of-all-time/)
 - [7 Hugh Grant Movies His Biggest Fans Will Love ...](https://movies.allwomenstalk.com/hugh-grant-movies-his-biggest-fans-will-love/)
+- [color le shadow hollywood](https://movies.allwomenstalk.com/oscar-nominated-movies-the-world-has-fallen-in-love-with/)
+- [7 2014 BAFTA Winning Movies That Have Stolen Our H...](https://movies.allwomenstalk.com/bafta-winning-movies-that-have-stolen-our-hearts/)
+- [kids movies adults like](https://movies.allwomenstalk.com/kids-movies-that-adults-love-just-as-much/)
+- [7 Adam Sandler Movies You Must Watch ASAP!](https://7fun.net/adam-sandler-movies-you-must-watch-asap/)
+- [paris color riche le stylo eye blinged brilliant](https://movies.allwomenstalk.com/oscar-nominated-films-you-should-be-seeing-now/)
+- [9 Noughties Films That Will Take You Back to Being...](https://7fun.net/noughties-films-that-will-take-you-back-to-being-a-teenager/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 

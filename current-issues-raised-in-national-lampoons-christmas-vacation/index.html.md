@@ -3,7 +3,7 @@ title: "Current Issues Raised in National Lampoon's Christmas Vacation ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/current-issues-raised-in-national-lampoons-christmas-vacation/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # Current Issues Raised in National Lampoon's Christmas Vacation ...
@@ -20,16 +20,16 @@ Does feminism mean we can't say what our first impressions of someone are anymor
 
 ## Related Posts
 
-- [70's tv shows](https://movies.allwomenstalk.com/the-70s-was-the-best-decade-in-television/)
-- [fable forest](https://inspiration.allwomenstalk.com/the-fable-in-the-forest-by-erin-hanson/)
-- [funny holiday video](https://funny.allwomenstalk.com/mila-stauffers-video-thoughts-on-the-holidays/)
-- [we live in a world](https://lifestyle.allwomenstalk.com/we-live-in-a-fucked-up-world/)
-- [shows 2008](https://movies.allwomenstalk.com/tv-shows-turning-in/)
 - [phobia of disney](https://movies.allwomenstalk.com/fears-that-develop-from-watching-disney-movies/)
-- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/tied-ship-by-erin-hanson/)
+- [funny holiday video](https://funny.allwomenstalk.com/mila-stauffers-video-thoughts-on-the-holidays/)
 - [poem about ocd](https://books.allwomenstalk.com/ocd-by-neil-hilborn/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-dread-of-christmas/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/tied-ship-by-erin-hanson/)
+- [70's tv shows](https://movies.allwomenstalk.com/the-70s-was-the-best-decade-in-television/)
+- [fable forest](https://inspiration.allwomenstalk.com/the-fable-in-the-forest-by-erin-hanson/)
+- [we live in a world](https://lifestyle.allwomenstalk.com/we-live-in-a-fucked-up-world/)
+- [shows 2008](https://movies.allwomenstalk.com/tv-shows-turning-in/)
+- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [The Holiday](https://allwomenstalk.com/the-holiday/)
 

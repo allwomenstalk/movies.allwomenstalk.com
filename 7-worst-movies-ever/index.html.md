@@ -3,7 +3,7 @@ title: "7 Worst Movies Ever ..."
 description: "Alexander; The Matrix; Scary Movie(s); The Hottie and the Nottie; The Son of the Mask; More ..."
 url: "https://movies.allwomenstalk.com/7-worst-movies-ever/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Worst Movies Ever ...
@@ -44,16 +44,16 @@ Top Photo Credit: [nhussein](https://www.flickr.com/photos/nhussein/)
 
 ## Related Posts
 
-- [movie sequels better than original](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
-- [dermot mulroony](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
-- [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
-- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
-- [what food to buy for a movie night](https://movies.allwomenstalk.com/best-snacks-for-movie-night-with-the-girls/)
-- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
-- [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
-- [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
-- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
+- [7 Movie Trailers That Excite Me ...](https://7fun.net/7-movie-trailers-that-excite-me/)
+- [8 Absolutely Awesome Trailers for New Movies I Can...](https://movies.allwomenstalk.com/absolutely-awesome-trailers-for-new-movies-i-cant-wait-to-see/)
+- [what food to buy for a movie night](https://movies.allwomenstalk.com/best-snacks-for-movie-night-with-the-girls/)
+- [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
+- [dermot mulroony](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
+- [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
+- [movie sequels better than original](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
+- [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
+- [list of inspirational movies](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 

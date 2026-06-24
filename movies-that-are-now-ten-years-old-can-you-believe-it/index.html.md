@@ -3,7 +3,7 @@ title: "7 Movies That Are Now Ten Years Old - Can You Believe It?"
 description: "The Notebook; Shrek 2; The Incredibles; The Passion of the Christ; Mean Girls; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-are-now-ten-years-old-can-you-believe-it/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Movies That Are Now Ten Years Old \- Can You Believe It?
@@ -42,16 +42,16 @@ So many movies are ten years old this year! I know I missed a bunch! Which ones 
 
 ## Related Posts
 
-- [85 Original Movie Posters from then Til Now ...](https://bilbr.com/original-movie-posters-from-then-til-now/)
 - [7 Movies of 2015 That Are Already Stirring up Exci...](https://movies.allwomenstalk.com/movies-of-that-are-already-stirring-up-excitement/)
-- [women in sports movies](https://movies.allwomenstalk.com/sports-movies-about-women/)
-- [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
-- [Epic Fail: Sin City Sequel Flops at the Box Office...](https://movies.allwomenstalk.com/epic-fail-sin-city-sequel-flops-at-the-box-office/)
 - [7 Superhero Movies That Didn't do Well at the Box ...](https://movies.allwomenstalk.com/superhero-movies-that-didnt-do-well-at-the-box-office/)
-- [Fun Flicks for Your Next Girls' Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
-- [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
 - [10 Amazing Movies That Never Won an Oscar ...](https://bilbr.com/amazing-movies-that-never-won-an-oscar/)
+- [85 Original Movie Posters from then Til Now ...](https://bilbr.com/original-movie-posters-from-then-til-now/)
+- [7 Amazing Movies to Get You Excited for Fall ...](https://movies.allwomenstalk.com/amazing-movies-to-get-you-excited-for-fall/)
+- [7 Shows to Check out on Amazon Instant Video ...](https://movies.allwomenstalk.com/shows-to-check-out-on-amazon-instant-video/)
 - [7 Wonderful Movies about Food You Need to See ...](https://movies.allwomenstalk.com/wonderful-movies-about-food-you-need-to-see/)
+- [women in sports movies](https://movies.allwomenstalk.com/sports-movies-about-women/)
+- [Fun Flicks for Your Next Girls' Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
+- [Epic Fail: Sin City Sequel Flops at the Box Office...](https://movies.allwomenstalk.com/epic-fail-sin-city-sequel-flops-at-the-box-office/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 

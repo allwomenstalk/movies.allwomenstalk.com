@@ -3,7 +3,7 @@ title: "Ten Worst Horror Movies of All Times ..."
 description: "Progeny; Jason X; Exorcist II: the Heretic; Dreamcatcher; Wicker Man (2006); More ..."
 url: "https://movies.allwomenstalk.com/ten-worst-horror-movies-of-all-times/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # Ten Worst Horror Movies of All Times ...
@@ -56,14 +56,14 @@ Top image source: [austinchronicle.com](http://www.austinchronicle.com/binary/b8
 
 ## Related Posts
 
-- [good movie trilogies](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
-- [nect flicks](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
-- [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
-- [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
-- [underdog story movies](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
-- [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
-- [9 Great Disaster Movies ...](https://movies.allwomenstalk.com/great-disaster-movies/)
 - [film word](https://movies.allwomenstalk.com/favourite-four-word-film-reviews/)
+- [9 Great Disaster Movies ...](https://movies.allwomenstalk.com/great-disaster-movies/)
+- [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
+- [nect flicks](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
+- [good movie trilogies](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
+- [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
+- [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
+- [underdog story movies](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
 - [glbt movies](https://movies.allwomenstalk.com/inspiring-lgbt-films/)
 - [harry potter food scenes](https://movies.allwomenstalk.com/memorable-and-tasty-food-scenes-in-a-movie/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)

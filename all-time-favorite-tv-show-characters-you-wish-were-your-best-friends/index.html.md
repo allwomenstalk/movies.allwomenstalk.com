@@ -3,7 +3,7 @@ title: "10 All Time Favorite TV Show Characters You Wish Were Your Best Friends 
 description: "Joey Tribbiani from Friends; Robin Scherbatsky from How I Met Your Mother; Barney Stinson from How I Met Your Mother; Jessica Day from New Girl; Leonard Hofstadter from the Big Bang Theory; More ..."
 url: "https://movies.allwomenstalk.com/all-time-favorite-tv-show-characters-you-wish-were-your-best-friends/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 10 All Time Favorite TV Show Characters You Wish Were Your Best Friends ...
@@ -60,16 +60,16 @@ Top Image Source: [hypable.com](https://www.hypable.com/new-girl-photo-shoot/)
 
 ## Related Posts
 
-- [mischievous disney characters](https://movies.allwomenstalk.com/adorable-disney-characters/)
-- [popular tv shows of the 80s](https://movies.allwomenstalk.com/tv-shows-that-make-you-laugh-out-loud/)
-- [loreal paris le stylo shadow hollywood](https://movies.allwomenstalk.com/cartoons-made-for-adults/)
-- [best bond villain](https://movies.allwomenstalk.com/best-bond-villains/)
-- [all for good cause](https://lifestyle.allwomenstalk.com/organizations-you-should-know-about/)
-- [7 oldest african tribes](https://travel.allwomenstalk.com/ancient-tribes-of-africa/)
-- [cult classic tv shows](https://movies.allwomenstalk.com/cult-tv-shows-worth-watching/)
-- [tv show proposals](https://movies.allwomenstalk.com/best-tv-proposals/)
-- [funny bone movie](https://movies.allwomenstalk.com/shows-to-tickle-your-funny-bone/)
 - [random acts of kindness that cost money](https://lifestyle.allwomenstalk.com/random-acts-of-kindness/)
+- [all for good cause](https://lifestyle.allwomenstalk.com/organizations-you-should-know-about/)
+- [loreal paris le stylo shadow hollywood](https://movies.allwomenstalk.com/cartoons-made-for-adults/)
+- [7 oldest african tribes](https://travel.allwomenstalk.com/ancient-tribes-of-africa/)
+- [popular tv shows of the 80s](https://movies.allwomenstalk.com/tv-shows-that-make-you-laugh-out-loud/)
+- [best bond villain](https://movies.allwomenstalk.com/best-bond-villains/)
+- [mischievous disney characters](https://movies.allwomenstalk.com/adorable-disney-characters/)
+- [tv show proposals](https://movies.allwomenstalk.com/best-tv-proposals/)
+- [cult classic tv shows](https://movies.allwomenstalk.com/cult-tv-shows-worth-watching/)
+- [funny bone movie](https://movies.allwomenstalk.com/shows-to-tickle-your-funny-bone/)
 - [10 Fall TV Shows I Can't Wait to See ...](https://lifestyle.allwomenstalk.com/fall-tv-shows-i-cant-wait-to-see/)
 - [7 of My Favorite Fictional Characters ...](https://allwomenstalk.com/7-of-my-favorite-fictional-characters/)
 

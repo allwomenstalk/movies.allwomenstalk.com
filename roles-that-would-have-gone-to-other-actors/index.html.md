@@ -3,7 +3,7 @@ title: "7 Roles That Would Have Gone to Other Actors ..."
 description: "Tom Cruise as Iron Man; Gwyneth Paltrow as Rose DeWitt; Russell Crowe as Wolverine; Britney Spears as Allie Hamilton; David Boreanaz as Batman; More ..."
 url: "https://movies.allwomenstalk.com/roles-that-would-have-gone-to-other-actors/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Roles That Would Have Gone to Other Actors ...
@@ -56,12 +56,12 @@ Come to think of it, the job of casting actors for the main roles is one of the 
 
 ## Related Posts
 
-- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
 - [riche le stylo eye shadow glistening garnet](https://celebs.allwomenstalk.com/celebrities-and-their-godparents/)
-- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
-- [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
+- [sean faris and robbie amell](https://celebs.allwomenstalk.com/celebs-from-cws-arrow-that-are-social-on-twitter/)
 - [andy samberg plastic surgery](https://celebs.allwomenstalk.com/celebs-who-are-obsessed-with-true-detective/)
+- [miley cyrus coachella outfit](https://celebs.allwomenstalk.com/celebrities-who-looked-fab-at-coachella/)
 - [pics of celebs](https://funny.allwomenstalk.com/adorably-funny-pictures-of-celebs-with-their-kids/)
+- [cloris leachman boy meets world](https://celebs.allwomenstalk.com/celebrities-who-will-be-guest-starring-on-girl-meets-world/)
 - [smile book characters](https://celebs.allwomenstalk.com/of-the-best-female-celebrity-smiles/)
 - [ezra fitz shirtless](https://movies.allwomenstalk.com/celebs-from-pretty-little-liars-who-love-to-live-tweet-during-the-show/)
 - [does will smith have dyslexia](https://celebs.allwomenstalk.com/famous-people-with-dyslexia/)

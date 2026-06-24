@@ -3,7 +3,7 @@ title: "7 Brilliant Movies Set in New England ..."
 description: "The World According to Garp; Little Women; The Paper Chase; Jaws; Mona Lisa Smile; More ..."
 url: "https://movies.allwomenstalk.com/brilliant-movies-set-in-new-england/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Brilliant Movies Set in New England ...
@@ -56,16 +56,16 @@ This was just a small selection of movies set in New England that I love to watc
 
 ## Related Posts
 
-- [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
-- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
-- [true romance tattoo scene](https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/)
 - [the blondes movie](https://movies.allwomenstalk.com/movies-where-blondes-have-more-fun/)
-- [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
-- [movies with a message](https://movies.allwomenstalk.com/kids-movies-with-a-message/)
-- [rainy thriller movies](https://movies.allwomenstalk.com/heart-racing-suspense-thrillers-to-watch-on-a-rainy-day/)
+- [bendict cumberbatch](https://movies.allwomenstalk.com/captivating-benedict-cumberbatch-projects-that-are-awe-inducing/)
+- [movies that are unintentionally funny](https://movies.allwomenstalk.com/unintentionally-hilarious-movies-that-will-have-you-cracking-up/)
+- [anime cutest character](https://movies.allwomenstalk.com/of-the-cutest-anime-film-characters-you-cant-help-but-love/)
+- [true romance tattoo scene](https://movies.allwomenstalk.com/most-gut-wrenching-movie-moments-that-will-bring-out-your-inner-romantic/)
 - [tv shows with supernatural powers](https://movies.allwomenstalk.com/great-superpower-themed-tv-shows-you-should-watch/)
 - [is untamed heart based on a true story](https://movies.allwomenstalk.com/christian-slater-films-you-simply-have-to-see/)
-- [movies that are unintentionally funny](https://movies.allwomenstalk.com/unintentionally-hilarious-movies-that-will-have-you-cracking-up/)
+- [recent greek mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-greece-and-greek-mythology/)
+- [rainy thriller movies](https://movies.allwomenstalk.com/heart-racing-suspense-thrillers-to-watch-on-a-rainy-day/)
+- [movies with a message](https://movies.allwomenstalk.com/kids-movies-with-a-message/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

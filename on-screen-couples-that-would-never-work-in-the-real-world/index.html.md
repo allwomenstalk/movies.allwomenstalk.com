@@ -3,7 +3,7 @@ title: "17 on-Screen Couples That Would Never Work in the Real World ..."
 description: "Dean and Rory, Gilmore Girls; Josh and Cher, Clueless; Ben and Alison, Knocked up; House and Dr. Cuddy, House; Johnny and Baby, Dirty Dancing; More ..."
 url: "https://movies.allwomenstalk.com/on-screen-couples-that-would-never-work-in-the-real-world/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 17 on\-Screen Couples That Would Never Work in the Real World ...
@@ -116,16 +116,16 @@ And speaking of picks (kind of), who are yours? Any on-screen couples you know w
 
 ## Related Posts
 
-- [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
-- [talk shows nyc](https://travel.allwomenstalk.com/tv-shows-you-can-see-for-free-live-in-nyc/)
-- [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
-- [most dramatic reality shows](https://movies.allwomenstalk.com/of-the-best-trashy-yet-entertaining-tv-shows-to-watch/)
-- [rapunzel's makeup](https://makeup.allwomenstalk.com/i-wish-i-had-this-guys-disney-princess-skills/)
+- [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
 - [list of lgbt youtubers](https://inspiration.allwomenstalk.com/inspirational-lgbt-youtube-channels-you-should-start-watching/)
-- [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
+- [finding dory mac and cheese](https://movies.allwomenstalk.com/moments-from-finding-dory-that-will-give-you-the-feels/)
+- [rapunzel's makeup](https://makeup.allwomenstalk.com/i-wish-i-had-this-guys-disney-princess-skills/)
+- [talk shows nyc](https://travel.allwomenstalk.com/tv-shows-you-can-see-for-free-live-in-nyc/)
 - [beyonce twitter search](https://music.allwomenstalk.com/twitter-reactions-to-lemonade-every-beyonce-fan-must-see/)
 - [lacrosse stick tattoos](https://beauty.allwomenstalk.com/adorable-tattoos-walt-disney-would-love/)
-- [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
+- [boondocks style](https://lifestyle.allwomenstalk.com/if-i-knew-how-to-draw-this-is-what-i-would-do/)
+- [movie white girl trailer](https://movies.allwomenstalk.com/the-thrilling-first-trailer-for-white-girl/)
+- [most dramatic reality shows](https://movies.allwomenstalk.com/of-the-best-trashy-yet-entertaining-tv-shows-to-watch/)
 - [7 Celebrity Dream Couples ...](https://allwomenstalk.com/7-celebrity-dream-couples/)
 - [7 Very Strange Celebrity Couples ...](https://allwomenstalk.com/7-very-strange-celebrity-couples/)
 

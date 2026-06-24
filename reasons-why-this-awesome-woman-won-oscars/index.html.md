@@ -3,7 +3,7 @@ title: "Reasons Why This Awesome Woman Won 8 Oscars ..."
 description: "She Done Him Wrong (1933); The Lady Eve (1941); Samson and Delilah (1949); All about Eve (1950); Sunset Boulevard (1950); More ..."
 url: "https://movies.allwomenstalk.com/reasons-why-this-awesome-woman-won-oscars/"
 category: "movies"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # Reasons Why This Awesome Woman Won 8 Oscars ...
@@ -128,16 +128,16 @@ If you want to check out the other films Edith Head was Oscar nominated for chec
 
 ## Related Posts
 
-- [Smart Ladies Will Love This Nerdy Version of 50 Sh...](https://books.allwomenstalk.com/smart-ladies-will-love-this-nerdy-version-of-shades/)
-- [22 Women on Fortune's Top 50 List That Have Us Scr...](https://lifestyle.allwomenstalk.com/career-goals-these-women-are-in-fortunes-top-50/)
-- [7 Funny Women Who Got Style, Too ...](https://fashion.allwomenstalk.com/funny-women-who-got-style-too/)
-- [Inspiring Artwork to Follow Your Dreams for the Gi...](https://lifestyle.allwomenstalk.com/this-inspiring-artwork-will-push-you-to-follow-your-dreams/)
-- [words of wisdom for women](https://inspiration.allwomenstalk.com/pieces-of-wisdom-from-women-in-the-great-generation/)
-- [misconceptions about women](https://inspiration.allwomenstalk.com/ridiculous-misconceptions-about-independent-women/)
-- [books about empowered women](https://books.allwomenstalk.com/feminist-books-thatll-make-you-feel-empowered/)
 - [Women Who Changed Your Life and You Didn't Even Kn...](https://lifestyle.allwomenstalk.com/these-women-changed-your-life-and-you-may-never-have-heard-of-them/)
+- [Inspiring Artwork to Follow Your Dreams for the Gi...](https://lifestyle.allwomenstalk.com/this-inspiring-artwork-will-push-you-to-follow-your-dreams/)
+- [Smart Ladies Will Love This Nerdy Version of 50 Sh...](https://books.allwomenstalk.com/smart-ladies-will-love-this-nerdy-version-of-shades/)
+- [books about empowered women](https://books.allwomenstalk.com/feminist-books-thatll-make-you-feel-empowered/)
+- [misconceptions about women](https://inspiration.allwomenstalk.com/ridiculous-misconceptions-about-independent-women/)
 - [paris riche le bottomless](https://lifestyle.allwomenstalk.com/please-meet-allwomenstalks-perfect-reader/)
+- [22 Women on Fortune's Top 50 List That Have Us Scr...](https://lifestyle.allwomenstalk.com/career-goals-these-women-are-in-fortunes-top-50/)
 - [can a woman be happy without a man](https://celebs.allwomenstalk.com/women-who-prove-you-can-be-happy-without-a-husband/)
+- [words of wisdom for women](https://inspiration.allwomenstalk.com/pieces-of-wisdom-from-women-in-the-great-generation/)
+- [7 Funny Women Who Got Style, Too ...](https://fashion.allwomenstalk.com/funny-women-who-got-style-too/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 
