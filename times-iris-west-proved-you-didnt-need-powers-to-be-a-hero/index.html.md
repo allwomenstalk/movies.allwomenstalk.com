@@ -16,7 +16,7 @@ Iris West may be destined to become an ace reporter, but her initial descent int
 
 ## 2. When Iris Saved Barry from Savitar
 
-Barry Allen spent the majority of season three trying to save Iris from Savitar, an evil, demented version of himself. But when all was said and done, it was actually Iris who ended up saving him! After the final battle, Barry thought that Savitar had been defeated, but he hadn’t been. He was still alive and kicking. Savitar rose from the ground and started to run towards Barry with the intent to kill him. He would have succeeded too, if it hadn’t been for Iris who showed up and shot Savitar in the knick of time.
+Barry Allen spent the majority of season three trying to save Iris from Savitar, an evil, demented version of himself. But when all was said and done, it was actually Iris who ended up saving him! After the final battle, Barry thought that Savitar had been defeated, but he hadn���t been. He was still alive and kicking. Savitar rose from the ground and started to run towards Barry with the intent to kill him. He would have succeeded too, if it hadn’t been for Iris who showed up and shot Savitar in the knick of time.
 
 ## 3. When She Pulled Barry out of the Speed Force
 
