@@ -3,7 +3,7 @@ title: "7 Minor Harry Potter Characters ..."
 description: "Nymphadora Tonks; Gellert Grindelwald; Moaning Myrtle; The Weird Sisters; Rita Skeeter; More ..."
 url: "https://movies.allwomenstalk.com/minor-harry-potter-characters/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Minor Harry Potter Characters ...
@@ -44,16 +44,16 @@ Top Photo Credit: [images4.fanpop.com](http://images4.fanpop.com/image/quiz/5560
 
 ## Related Posts
 
-- [disturbing true crime documentaries youtube](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
-- [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
-- [old tv shows worth watching](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
-- [7 Reasons the Batman Franchise is Disappointing .....](https://movies.allwomenstalk.com/reasons-the-batman-franchise-is-disappointing/)
-- [42 Photos of 21st Annual "a Time for Heroes" ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
 - [stella rose gahan height](https://celebs.allwomenstalk.com/gahan-has-a-laugh/)
-- [7 Non-English TV Series That Used to Be Popular .....](https://movies.allwomenstalk.com/non-english-tv-series-that-used-to-be-popular/)
-- [celebs with ms](https://celebs.allwomenstalk.com/17th-annual-race-to-erase-ms/)
-- [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
 - [hunger games bread scene](https://movies.allwomenstalk.com/hunger-games-highlights/)
+- [celebs with ms](https://celebs.allwomenstalk.com/17th-annual-race-to-erase-ms/)
+- [old tv shows worth watching](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
+- [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
+- [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
+- [42 Photos of 21st Annual "a Time for Heroes" ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
+- [disturbing true crime documentaries youtube](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
+- [7 Reasons the Batman Franchise is Disappointing .....](https://movies.allwomenstalk.com/reasons-the-batman-franchise-is-disappointing/)
+- [7 Non-English TV Series That Used to Be Popular .....](https://movies.allwomenstalk.com/non-english-tv-series-that-used-to-be-popular/)
 - [5 Interesting Twilight Characters ...](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
 - [5 Evil Magic Users to Be ...](https://twilight.allwomenstalk.com/5-evil-magic-users-to-be/)
 

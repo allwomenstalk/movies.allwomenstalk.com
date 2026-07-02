@@ -3,7 +3,7 @@ title: "7 TV Relationships We're Loving Right Now ..."
 description: "Ted and the Mother; Mindy and Danny; Ben and Leslie; Jim and Pam; Cory and Topanga; More ..."
 url: "https://movies.allwomenstalk.com/tv-relationships-were-loving-right-now/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 TV Relationships We're Loving Right Now ...
@@ -43,14 +43,14 @@ What's your favorite TV couple? I can't pick just one! Let me know in the commen
 ## Related Posts
 
 - [shows about politics](https://movies.allwomenstalk.com/best-political-shows-to-be-watching/)
-- [7 Priceless Fangirl Problems We've All Had to Deal...](https://funny.allwomenstalk.com/fangirl-problems-weve-all-had-to-deal-with/)
-- [vincent nigel-murray died](https://movies.allwomenstalk.com/tv-tragedies-that-had-us-all-in-tears/)
 - [7 Things That Always Happen during a Season of Big...](https://movies.allwomenstalk.com/things-that-always-happen-during-a-season-of-big-brother/)
-- [american gothic someone's at the door](https://movies.allwomenstalk.com/super-scary-tv-series-you-will-love/)
-- [7 Memorable Moments from the Grey's Anatomy Season...](https://movies.allwomenstalk.com/memorable-moments-from-the-greys-anatomy-season-finale/)
 - [9 Utterly Awesome Parodies We Can't Get Enough of ...](https://funny.allwomenstalk.com/utterly-awesome-parodies-we-cant-get-enough-of/)
-- [flirt 7tv](https://travel.allwomenstalk.com/tv-show-inspired-tours/)
+- [vincent nigel-murray died](https://movies.allwomenstalk.com/tv-tragedies-that-had-us-all-in-tears/)
+- [7 Priceless Fangirl Problems We've All Had to Deal...](https://funny.allwomenstalk.com/fangirl-problems-weve-all-had-to-deal-with/)
 - [funny ad campaigns](https://movies.allwomenstalk.com/funny-and-clever-ad-campaigns/)
+- [flirt 7tv](https://travel.allwomenstalk.com/tv-show-inspired-tours/)
+- [7 Memorable Moments from the Grey's Anatomy Season...](https://movies.allwomenstalk.com/memorable-moments-from-the-greys-anatomy-season-finale/)
+- [american gothic someone's at the door](https://movies.allwomenstalk.com/super-scary-tv-series-you-will-love/)
 - [7 Worst Saturday Night Live Hosts of All Time ...](https://7fun.net/worst-saturday-night-live-hosts-of-all-time/)
 - [7 Cameras to Love ...](https://lifestyle.allwomenstalk.com/cameras-to-love/)
 - [7 Commercial Personalities We Love ...](https://allwomenstalk.com/7-commercial-personalities-we-love/)

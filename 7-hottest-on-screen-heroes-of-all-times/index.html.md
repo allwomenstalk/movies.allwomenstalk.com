@@ -3,7 +3,7 @@ title: "7 Hottest on-Screen Heroes of All Times ..."
 description: "Batman; Xander Cage; Blade; Spartacus; James Bond; More ..."
 url: "https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Hottest on\-Screen Heroes of All Times ...
@@ -56,16 +56,16 @@ So, tell me – do you have your list of the hottest on-screen heroes of all tim
 
 ## Related Posts
 
+- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
-- [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
-- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
-- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
+- [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 

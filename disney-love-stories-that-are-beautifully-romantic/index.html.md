@@ -3,7 +3,7 @@ title: "7 Disney Movies with Romance: The Best Love Stories Ranked"
 description: "Beauty & the Beast; Tangled; The Lion King; Cinderella; The Aristocats; More ..."
 url: "https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Disney Movies with Romance: The Best Love Stories Ranked
@@ -56,16 +56,16 @@ There are literally dozens of Disney films. Most of them feature some love story
 
 ## Related Posts
 
-- [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
-- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
-- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
-- [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
-- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
-- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
-- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
-- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
 - [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
+- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
+- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
 - [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
+- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
+- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
+- [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
+- [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
+- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
+- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [8 Most Romantic Love Scenes ...](https://movies.allwomenstalk.com/most-romantic-love-scenes/)
 

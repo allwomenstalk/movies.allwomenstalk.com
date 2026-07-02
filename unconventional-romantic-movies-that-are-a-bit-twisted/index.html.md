@@ -3,7 +3,7 @@ title: "7 Unconventional Romantic Movies That Are a Bit Twisted ..."
 description: "\"Brazil\"; \"Secretary\"; \"Delicatessen\"; \"Warm Bodies\"; \"Safety Not Guaranteed\"; More ..."
 url: "https://movies.allwomenstalk.com/unconventional-romantic-movies-that-are-a-bit-twisted/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Unconventional Romantic Movies That Are a Bit Twisted ...
@@ -42,16 +42,16 @@ I'm sure I missed plenty of unconventional romantic movies (Tim Burton flicks pr
 
 ## Related Posts
 
-- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [comedy old movies](https://movies.allwomenstalk.com/classic-comedies-to-crack-you-up/)
-- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
-- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
-- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
-- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
 - [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
 - [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
+- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
+- [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
 - [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
+- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
+- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

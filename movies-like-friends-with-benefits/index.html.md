@@ -3,7 +3,7 @@ title: "Movies like Friends with Benefits That Put You in a Good Mood ..."
 description: "No Strings Attached (2011); Sex and the City 1 & 2 (2008, 2010); Forgetting Sarah Marshall (2008); The Ugly Truth (2009); Just Go with It (2011); More ..."
 url: "https://movies.allwomenstalk.com/movies-like-friends-with-benefits/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Movies like Friends with Benefits That Put You in a Good Mood ...
@@ -51,15 +51,15 @@ The above-mentioned movies like Friends with benefits are excellent options if y
 ## Related Posts
 
 - [Film Review: “300″](https://allwomenstalk.com/film-review-300/)
-- [Films with Cigarette Smoking Rated R](https://allwomenstalk.com/films-with-cigarette-smoking-rated-r/)
-- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
 - ['Grindhouse' Bombs at Movie House ...](https://allwomenstalk.com/grindhouse-bombs-at-movie-house/)
-- [Movies Opening Today (April 6, 2007)](https://allwomenstalk.com/movies-opening-today-april/)
-- [Movies Opening Today (March 2, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
-- [I Got Drama at the TriBeCa Film Festival ...](https://allwomenstalk.com/i-got-drama-at-the-tribeca-film-festival/)
-- [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
-- [Movies Opening Today (March 23, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
 - [Movies Opening Today (March 16, 2007)](https://allwomenstalk.com/movies-opening-today-march/)
+- [I Got Drama at the TriBeCa Film Festival ...](https://allwomenstalk.com/i-got-drama-at-the-tribeca-film-festival/)
+- [Films with Cigarette Smoking Rated R](https://allwomenstalk.com/films-with-cigarette-smoking-rated-r/)
+- [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
+- [My Evening at the 'grindhouse' ...](https://allwomenstalk.com/my-evening-at-the-grindhouse/)
+- [Movies Opening Today (April 6, 2007)](https://allwomenstalk.com/movies-opening-today-april/)
+- [Movies Opening Today (March 23, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-23-2007/)
+- [Movies Opening Today (March 2, 2007) ...](https://allwomenstalk.com/movies-opening-today-march-2-2007/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [10 Rom Coms Your Guy Will Love Too ...](https://bilbr.com/10-rom-coms-your-guy-will-love-too/)
 

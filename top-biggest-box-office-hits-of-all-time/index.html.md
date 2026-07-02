@@ -3,7 +3,7 @@ title: "Top 10 Biggest Box Office Hits of All Time ..."
 description: "Avatar (2009); Titanic (1997); The Dark Knight (2008); Star Wars: Episode IV – a New Hope (1977); Shrek 2 (2004); More ..."
 url: "https://movies.allwomenstalk.com/top-biggest-box-office-hits-of-all-time/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Top 10 Biggest Box Office Hits of All Time ...
@@ -57,15 +57,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/20101091)
 ## Related Posts
 
 - [8 Awesome Movie Directors You'll Love ...](https://movies.allwomenstalk.com/awesome-movie-directors-youll-love/)
-- [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)
+- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
+- [my favourite](https://movies.allwomenstalk.com/of-my-favorite-action-movies/)
 - [funny sports movie](https://movies.allwomenstalk.com/super-funny-sports-movies/)
+- [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
+- [Top 8 Crazy Christmas Comedies to See ...](https://7fun.net/top-crazy-christmas-comedies-to-see/)
+- [7 Incredible Cult Movies Not to Miss ...](https://movies.allwomenstalk.com/incredible-cult-movies-not-to-miss/)
 - [What Are the Twilight Movies: 10 Things to Know ab...](https://movies.allwomenstalk.com/what-are-the-twilight-movies-10-things-to-know-about-twilight-saga/)
 - [Top 8 Musicals of All Time ...](https://movies.allwomenstalk.com/top-musicals-of-all-time/)
-- [7 Incredible Cult Movies Not to Miss ...](https://movies.allwomenstalk.com/incredible-cult-movies-not-to-miss/)
-- [Top 8 Crazy Christmas Comedies to See ...](https://7fun.net/top-crazy-christmas-comedies-to-see/)
-- [my favourite](https://movies.allwomenstalk.com/of-my-favorite-action-movies/)
-- [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
-- [Top 10 Biggest Box Office Bombs of All Time ...](https://bilbr.com/top-biggest-box-office-bombs-of-all-time/)
+- [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 

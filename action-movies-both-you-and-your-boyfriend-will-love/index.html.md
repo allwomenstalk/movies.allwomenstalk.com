@@ -3,7 +3,7 @@ title: "7 Action Movies Both You and Your Partner Will Love"
 description: "The A-Team; Red 2; Parker; More ..."
 url: "https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Action Movies Both You and Your Partner Will Love
@@ -24,16 +24,16 @@ If you're a fan of high-stakes heists, _Parker_ is a solid pick. Jason Statham p
 
 ## Related Posts
 
-- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
-- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
 - [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
 - [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [to make you feel my love movie](https://movies.allwomenstalk.com/romantic-films-thatll-make-you-feel-the-love/)
 - [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
-- [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
-- [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
-- [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
+- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
 - [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
+- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
+- [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
+- [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
+- [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

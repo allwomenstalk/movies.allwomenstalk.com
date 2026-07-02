@@ -3,7 +3,7 @@ title: "14 Movies That Need a Sequel ..."
 description: "The Simpson’s Movie - We Need to See It Done Better; X-Files Movie - Was the Planet Invaded?; District 9 - Will the Alien Come Back with Others?; The Mystery Men – Released at the Wrong Time?; South Park: Bigger, Longer and Uncut - More Fun and Songs Please!; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-need-a-sequel/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 14 Movies That Need a Sequel ...
@@ -70,15 +70,15 @@ I’d love to hear which movies you think need sequels?
 
 ## Related Posts
 
-- [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
-- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
-- [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
-- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
 - [2007 romantic movies](https://movies.allwomenstalk.com/romantic-movies-for-a-solo-night-in/)
+- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
+- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
+- [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
+- [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
 - [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
+- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
 - [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
 - [horror movie addict](https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/)
-- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
 - [top 5 love movies](https://love.allwomenstalk.com/things-that-happen-in-romantic-movies-we-wish-were-real/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)

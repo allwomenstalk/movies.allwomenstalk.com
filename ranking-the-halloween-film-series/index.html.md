@@ -3,7 +3,7 @@ title: "Ranking the Halloween Film Series ..."
 description: "The Original Halloween (1978); Halloween II (1981); Halloween 4: the Return of Michael Myers (1988); Halloween H2O: 20 Years Later (1998); Halloween 3: Season of the Witch (1982); More ..."
 url: "https://movies.allwomenstalk.com/ranking-the-halloween-film-series/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Ranking the Halloween Film Series ...
@@ -54,16 +54,16 @@ This concludes my Halloween film series ranking and now I’m even more excited 
 
 ## Related Posts
 
-- [halloween costumes tesco](https://lifestyle.allwomenstalk.com/awesome-tips-for-choosing-a-halloween-costume/)
-- [horror party games](https://teen.allwomenstalk.com/scary-halloween-party-games/)
-- [cute couple costumes](https://lifestyle.allwomenstalk.com/couples-costume-ideas-for-halloween-hell-love/)
-- [what do adults do on halloween](https://lifestyle.allwomenstalk.com/things-grown-ups-can-do-this-halloween/)
-- [last-minute couples costumes](https://diy.allwomenstalk.com/last-minute-halloween-costumes/)
-- [kids halloween films](https://movies.allwomenstalk.com/top-halloween-movies-for-kids/)
-- [how to throw an epic halloween party](https://lifestyle.allwomenstalk.com/how-to-throw-the-most-epic-halloween-party-at-your-college/)
-- [zodiac sign halloween](https://lifestyle.allwomenstalk.com/the-spirit-halloween-decoration-for-your-zodiac-sign/)
 - [right left halloween game](https://lifestyle.allwomenstalk.com/halloween-games-for-kids/)
+- [kids halloween films](https://movies.allwomenstalk.com/top-halloween-movies-for-kids/)
 - [last minute costume diy](https://lifestyle.allwomenstalk.com/last-minute-diy-halloween-costumes/)
+- [cute couple costumes](https://lifestyle.allwomenstalk.com/couples-costume-ideas-for-halloween-hell-love/)
+- [horror party games](https://teen.allwomenstalk.com/scary-halloween-party-games/)
+- [last-minute couples costumes](https://diy.allwomenstalk.com/last-minute-halloween-costumes/)
+- [what do adults do on halloween](https://lifestyle.allwomenstalk.com/things-grown-ups-can-do-this-halloween/)
+- [halloween costumes tesco](https://lifestyle.allwomenstalk.com/awesome-tips-for-choosing-a-halloween-costume/)
+- [zodiac sign halloween](https://lifestyle.allwomenstalk.com/the-spirit-halloween-decoration-for-your-zodiac-sign/)
+- [how to throw an epic halloween party](https://lifestyle.allwomenstalk.com/how-to-throw-the-most-epic-halloween-party-at-your-college/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [7 Best Monster Movies ...](https://movies.allwomenstalk.com/7-best-monster-movies/)
 

@@ -3,7 +3,7 @@ title: "17 Must Watch Movies for Girls Who Want Dark Ominous Love Stories ..."
 description: "The Piano Teacher; Shame; Damage; Body Heat; Lolita; More ..."
 url: "https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 17 Must Watch Movies for Girls Who Want Dark Ominous Love Stories ...
@@ -82,15 +82,15 @@ If you watched all of these one after another it would leave you thinking how da
 
 ## Related Posts
 
-- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
-- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
 - [what movies need a sequel](https://movies.allwomenstalk.com/movies-that-need-a-sequel/)
+- [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
 - [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
 - [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
-- [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
 - [outlet.naiston glorious](https://movies.allwomenstalk.com/movies-thatll-give-you-the-perfect-outlet-for-your-pms-outbursts/)
 - [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
+- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
 - [loreal riche stylo smoky eternal sunshine](https://movies.allwomenstalk.com/iconic-movie-relationships-that-taught-us-all-about-love/)
+- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
 - [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [7 Best Movies for a Girls' Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)

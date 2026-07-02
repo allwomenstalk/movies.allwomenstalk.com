@@ -3,7 +3,7 @@ title: "7 Movies Inspired by Video Games ..."
 description: "Super Mario Bros; Prince of Persia: the Sands of Time; Resident Evil; Lara Croft: Tombraider; Mortal Kombat; More ..."
 url: "https://movies.allwomenstalk.com/movies-inspired-by-video-games/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Movies Inspired by Video Games ...
@@ -43,15 +43,15 @@ I just love the fantasy elements in movies that are based on video games. I love
 ## Related Posts
 
 - [8 Acclaimed Foreign Films to Watch ...](https://7fun.net/acclaimed-foreign-films-to-watch/)
-- [10 Fashionable Movies That Will Inspire Your Wardr...](https://fashion.allwomenstalk.com/fashionable-movies-that-will-inspire-your-wardrobe/)
-- [7 Great Health Documentaries to Watch ...](https://health.allwomenstalk.com/great-health-documentaries-to-watch/)
 - [7 TV Shows That Would Make Great Movies ...](https://movies.allwomenstalk.com/tv-shows-that-would-make-great-movies/)
-- [real paranormal movies](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
-- [7 Marvelous Movies Based on Top-Notch Plays ...](https://movies.allwomenstalk.com/marvelous-movies-based-on-top-notch-plays/)
+- [7 Romantic Comedies to Look Forward to in 2013 ...](https://7fun.net/romantic-comedies-to-look-forward-to-in/)
 - [10 Must See Animated Movies ...](https://bilbr.com/must-see-animated-movies/)
 - [9 Stellar Comedies That Make You Laugh ...](https://movies.allwomenstalk.com/stellar-comedies-that-make-you-laugh/)
-- [7 Romantic Comedies to Look Forward to in 2013 ...](https://7fun.net/romantic-comedies-to-look-forward-to-in/)
 - [8 Most Anticipated Movies of 2013 ...](https://movies.allwomenstalk.com/most-anticipated-movies-of/)
+- [7 Marvelous Movies Based on Top-Notch Plays ...](https://movies.allwomenstalk.com/marvelous-movies-based-on-top-notch-plays/)
+- [10 Fashionable Movies That Will Inspire Your Wardr...](https://fashion.allwomenstalk.com/fashionable-movies-that-will-inspire-your-wardrobe/)
+- [7 Great Health Documentaries to Watch ...](https://health.allwomenstalk.com/great-health-documentaries-to-watch/)
+- [real paranormal movies](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
 - [5 Vampire Video Games ...](https://twilight.allwomenstalk.com/5-vampire-video-games/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

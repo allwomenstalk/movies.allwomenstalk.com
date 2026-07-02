@@ -3,7 +3,7 @@ title: "High School Romcoms for Girls Who Feel Nostalgic ..."
 description: "Grease (1978); Clueless (1995); 10 Things I Hate about You (1999); Mean Girls (2004); Pretty in Pink (1986); More ..."
 url: "https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # High School Romcoms for Girls Who Feel Nostalgic ...
@@ -49,16 +49,16 @@ What would you add to the list?
 
 ## Related Posts
 
+- [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
+- [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
+- [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
 - [jaw dropping movie](https://movies.allwomenstalk.com/movies-with-twists-thatll-make-your-jaw-drop/)
+- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
 - [sports and romance movies](https://movies.allwomenstalk.com/sports-movies-that-are-full-of-romance/)
+- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
 - [thé imitation game](https://movies.allwomenstalk.com/these-movies-are-the-biggest-tearjerkers-youll-ever-see/)
 - [funny girls night movies](https://movies.allwomenstalk.com/funniest-comedies-for-a-girls-night-in/)
-- [must watch comedy movies on netflix](https://movies.allwomenstalk.com/of-the-best-comedy-movies-on-netflix/)
-- [wes and willy](https://movies.allwomenstalk.com/wes-anderson-movies-that-are-out-of-this-world/)
 - [movie steampunk](https://movies.allwomenstalk.com/killer-steampunk-movies-anyone-can-love/)
-- [7 movie characters](https://movies.allwomenstalk.com/wicked-movie-characters-you-cant-help-but-root-for/)
-- [movies with beach in the title](https://movies.allwomenstalk.com/movies-that-will-make-you-yearn-for-the-beach/)
-- [ww8.123movies](https://movies.allwomenstalk.com/websites-thatll-help-you-decide-what-to-watch-on-netflix/)
 - [Fun Flicks for Your Next Girls' Night in ...](https://movies.allwomenstalk.com/awesome-movies-for-a-girls-night-in/)
 - [Every Woman Needs to Watch These Iconic Chick Flic...](https://movies.allwomenstalk.com/every-woman-needs-to-watch-these-iconic-chick-flicks-from-the-80s/)
 

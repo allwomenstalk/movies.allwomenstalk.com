@@ -3,7 +3,7 @@ title: "7 Worst TV Spinoffs of All Time ..."
 description: "Three’s a Crowd; That '80s Show; Saved by the Bell: the College Years; The Brady Brides/the Bradys; Joanie Loves Chachi; More ..."
 url: "https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Worst TV Spinoffs of All Time ...
@@ -42,16 +42,16 @@ It is really unfortunate that spinoffs don’t always work out the same way the 
 
 ## Related Posts
 
-- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
-- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
 - [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
-- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
 - [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
 - [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
+- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

@@ -3,7 +3,7 @@ title: "8 Fascinating Futuristic Films ..."
 description: "Logan's Run; Soylent Green; I Robot; Nineteen Eighty-Four; Mad Max; More ..."
 url: "https://movies.allwomenstalk.com/fascinating-futuristic-films/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Fascinating Futuristic Films ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/21216316)
 
 ## Related Posts
 
+- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
 - [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
 - [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
-- [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
 - [richard curtis young](https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/)
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [brad pitt film list](https://movies.allwomenstalk.com/awesome-brad-pitt-movies/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [royalty movies romance](https://movies.allwomenstalk.com/amazing-movies-about-royalty/)
-- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Fabulous French Films ...](https://movies.allwomenstalk.com/fabulous-french-films/)
 

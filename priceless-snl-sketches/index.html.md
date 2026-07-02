@@ -3,7 +3,7 @@ title: "20 Priceless SNL Sketches ..."
 description: "I Wish It Was Christmas Today; Wild and Crazy Guys; Celebrity Jeopardy; Buckwheat; Stuart Smalley; More ..."
 url: "https://movies.allwomenstalk.com/priceless-snl-sketches/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 20 Priceless SNL Sketches ...
@@ -94,16 +94,16 @@ SNL is an iconic show, it's been around forever. Some years the cast and the ske
 
 ## Related Posts
 
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
 - [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
+- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
 - [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
 - [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
-- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [10 Funniest Songs Ever ...](https://allwomenstalk.com/10-funniest-songs-ever/)
 - [10 Funniest Animals ...](https://allwomenstalk.com/10-funniest-animals/)
 

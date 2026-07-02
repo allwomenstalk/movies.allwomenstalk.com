@@ -3,7 +3,7 @@ title: "7 Fun Facts about Disney's \"the Lion King\" You Didn't Know ..."
 description: "Pumbaa; Hamlet and Osirian; Hyenas; Scar; Nala; More ..."
 url: "https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fun Facts about Disney's "the Lion King" You Didn't Know ...
@@ -42,16 +42,16 @@ These are a few fun facts about “The Lion King” that I’ve learned and want
 
 ## Related Posts
 
+- [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
+- [pros and cons of eating chia seeds](https://food.allwomenstalk.com/amazing-facts-about-chia-seeds-that-will-surely-impress-you/)
 - [11 fun facts about tulips](https://travel.allwomenstalk.com/facts-about-disney-parks-that-you-probably-didnt-know/)
 - [introverts facts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-introverts/)
-- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
-- [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
-- [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
 - [cool facts about jk rowling](https://celebs.allwomenstalk.com/fun-facts-about-j-k-rowling-that-will-make-you-love-her-even-more/)
-- [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
 - [facts about extroverts](https://lifestyle.allwomenstalk.com/extremely-important-facts-about-extroverts/)
+- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
+- [holden caul](https://books.allwomenstalk.com/fun-facts-about-the-catcher-in-the-rye/)
 - [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
-- [pros and cons of eating chia seeds](https://food.allwomenstalk.com/amazing-facts-about-chia-seeds-that-will-surely-impress-you/)
+- [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [7 Adorable Disney Characters ...](https://movies.allwomenstalk.com/adorable-disney-characters/)
 

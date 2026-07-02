@@ -3,7 +3,7 @@ title: "Women of Game of Thrones We Love or Hate (Part 1 of 2) ..."
 description: "Lysa Arryn (Kate Dickie) - Hate; Selyse Baratheon (Tara Fitzgerald) - Hate; Shireen Baratheon (Kerry Ingram) - Love; Myrcella Baratheon (Aimee Richardson) - Love; Brienne of Tarth (Gwendoline Christie) - Love; More ..."
 url: "https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Women of Game of Thrones We Love or Hate \(Part 1 of 2\) ...
@@ -58,16 +58,16 @@ If you realized there are some vital characters missing, there are characters no
 
 ## Related Posts
 
-- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
 - [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
-- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
-- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
-- [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
-- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
-- [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
 - [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
 - [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
 - [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
+- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
+- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
+- [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
+- [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
+- [support other women](https://inspiration.allwomenstalk.com/ways-to-support-other-women/)
+- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [A Tale of Two Women](https://allwomenstalk.com/a-tale-of-two-women/)
 

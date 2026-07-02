@@ -3,7 +3,7 @@ title: "9 Awesome Disney Characters Who Should Appear on \"Once upon a Time\" ..
 description: "Ariel – “the Little Mermaid”; Jasmine – “Aladdin”; Tiana – “the Princess & the Frog”; Rapunzel – “Tangled”; Merlin – \"the Sword in the Stone\"; More ..."
 url: "https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 9 Awesome Disney Characters Who Should Appear on "Once upon a Time" ...
@@ -68,16 +68,16 @@ Ultimately, I know that I will continue watching this brilliant show regardless 
 
 ## Related Posts
 
-- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
-- [pokemon names turtle](https://lifestyle.allwomenstalk.com/original-pokemon-you-cant-help-but-love/)
-- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
-- [tv best friends](https://movies.allwomenstalk.com/awesome-tv-best-friends-you-and-your-bestie-should-admire/)
-- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
 - [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
 - [miley cyrus inappropriate](https://celebs.allwomenstalk.com/craziest-miley-cyrus-moments-that-never-cease-to-amuse-us/)
+- [tv best friends](https://movies.allwomenstalk.com/awesome-tv-best-friends-you-and-your-bestie-should-admire/)
+- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
 - [day dreams about night things](https://lifestyle.allwomenstalk.com/common-daydreams-weve-all-had-when-bored/)
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
+- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
+- [pokemon names turtle](https://lifestyle.allwomenstalk.com/original-pokemon-you-cant-help-but-love/)
+- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
+- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [10 Best Disney Princesses ...](https://allwomenstalk.com/7-best-disney-princesses/)
 

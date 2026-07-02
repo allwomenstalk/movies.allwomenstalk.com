@@ -3,7 +3,7 @@ title: "7 Movies with the Best New Year's Scenes ..."
 description: "Sex and the City; New Years Eve; When Harry Met Sally; Love Actually; Serendipity; More ..."
 url: "https://movies.allwomenstalk.com/movies-with-the-best-new-years-scenes/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Movies with the Best New Year's Scenes ...
@@ -43,14 +43,14 @@ Now that we’re all in the mood for New Years, let’s start deciding on what o
 ## Related Posts
 
 - [7 Great Movies That Almost Didn't Make It to the B...](https://movies.allwomenstalk.com/great-movies-that-almost-didnt-make-it-to-the-big-screen/)
-- [9 TV/Movie Geeks You Can't Help but Love ...](https://7fun.net/tvmovie-geeks-you-cant-help-but-love/)
-- [9 Movies That Are Just as Good as the Book ...](https://bilbr.com/movies-that-are-just-as-good-as-the-book/)
-- [9 Best Movie Adaptations of Novels That You Will L...](https://bilbr.com/best-movie-adaptations-of-novels-that-you-will-love/)
-- [7 Classic Black-and-White Films You Should Check o...](https://movies.allwomenstalk.com/classic-black-and-white-films-you-should-check-out/)
 - [amanda seyfried musicals](https://movies.allwomenstalk.com/amazing-musicals-i-wouldnt-mind-watching-over-and-over-again/)
 - [7 Great Shakespeare Plays That I Love ...](https://books.allwomenstalk.com/great-shakespeare-plays-that-i-love/)
 - [paris riche stylo smoky paradise enchanted](https://movies.allwomenstalk.com/movies-that-are-better-than-the-book/)
 - [7 High Action Movies to Enjoy with Your Guy ...](https://movies.allwomenstalk.com/high-action-movies-to-enjoy-with-your-guy/)
+- [9 Best Movie Adaptations of Novels That You Will L...](https://bilbr.com/best-movie-adaptations-of-novels-that-you-will-love/)
+- [9 TV/Movie Geeks You Can't Help but Love ...](https://7fun.net/tvmovie-geeks-you-cant-help-but-love/)
+- [9 Movies That Are Just as Good as the Book ...](https://bilbr.com/movies-that-are-just-as-good-as-the-book/)
+- [7 Classic Black-and-White Films You Should Check o...](https://movies.allwomenstalk.com/classic-black-and-white-films-you-should-check-out/)
 - [7 Superhero Movies You Must Watch if You Haven't A...](https://movies.allwomenstalk.com/superhero-movies-you-must-watch-if-you-havent-already/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)

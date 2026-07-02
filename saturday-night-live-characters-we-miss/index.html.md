@@ -3,7 +3,7 @@ title: "7 Saturday Night Live Characters We Miss ..."
 description: "Opera Man/Cajun Man; The Blues Brothers; Stefon, Weekend Update; Craig and Arianna, Spartan Spirit; Drunk Uncle-Weekend Update; More ..."
 url: "https://movies.allwomenstalk.com/saturday-night-live-characters-we-miss/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Saturday Night Live Characters We Miss ...
@@ -50,16 +50,16 @@ I know I've missed several characters here, but there is only so much time in a 
 
 ## Related Posts
 
-- [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
-- [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
-- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
-- [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
 - [daniel howell shirtless](https://funny.allwomenstalk.com/funniest-dan-and-phil-videos-on-youtube/)
-- [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
-- [michael che sister](https://movies.allwomenstalk.com/hilarious-sketch-comedy-shows-besides-snl/)
-- [riche stylo sky](https://lifestyle.allwomenstalk.com/types-of-clouds-to-watch-when-gazing-at-the-sky/)
-- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
 - [dante 9 circles of hell](https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/)
+- [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
+- [what days is emmerdale on](https://movies.allwomenstalk.com/long-running-british-soap-operas/)
+- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
+- [neil patrick harris videos](https://funny.allwomenstalk.com/hysterical-neil-patrick-harris-videos-youll-love/)
+- [riche stylo sky](https://lifestyle.allwomenstalk.com/types-of-clouds-to-watch-when-gazing-at-the-sky/)
+- [bloopers pitch perfect](https://funny.allwomenstalk.com/blooper-reels-to-watch-right-here-and-now/)
+- [best sitcom finales](https://movies.allwomenstalk.com/series-finales-ranked-from-worst-to-best/)
+- [michael che sister](https://movies.allwomenstalk.com/hilarious-sketch-comedy-shows-besides-snl/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 

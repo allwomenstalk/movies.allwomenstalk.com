@@ -3,7 +3,7 @@ title: "Top 5 🤚 Times Michael Scott from \"the Office\" Should Have Gone to J
 description: "Attempted Theft; Misleading Police/Falsely Accusing an Innocent Person; Assault/Attempted Murder; Another Assualt; Sexual Harassment/Assault; More ..."
 url: "https://movies.allwomenstalk.com/times-the-offices-michael-scott-should-have-gone-to-jail/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Top 5 🤚 Times Michael Scott from "the Office" Should Have Gone to Jail ...
@@ -46,16 +46,16 @@ Did we miss anything? What is your favorite cringe-worthy Michael Scott moment?
 
 ## Related Posts
 
-- [not eric hanson poem](https://inspiration.allwomenstalk.com/who-would-remember-by-erin-hanson/)
-- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
-- [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
 - [when does iris get her powers](https://movies.allwomenstalk.com/times-iris-west-proved-you-didnt-need-powers-to-be-a-hero/)
-- [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
+- [not eric hanson poem](https://inspiration.allwomenstalk.com/who-would-remember-by-erin-hanson/)
+- [who does ella end up with pll](https://movies.allwomenstalk.com/pretty-little-liars-endgame-couples/)
+- [bath and body works mockingbird](https://books.allwomenstalk.com/why-to-kill-a-mockingbird-is-relevant-today/)
 - [erin hanson face](https://inspiration.allwomenstalk.com/that-burn-bridges-by-erin-hanson/)
-- [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
+- [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
+- [documentaries on social issues in india](https://movies.allwomenstalk.com/top-indian-documentaries-that-reflect-on-real-life-problems-in-the-country/)
 - [wendy yap](https://inspiration.allwomenstalk.com/lifes-journey-by-wendy-yap/)
 - [mothers are special poems](https://parenting.allwomenstalk.com/to-my-very-special-mother-by-erin-hanson/)
-- [mcs music](https://music.allwomenstalk.com/top-mcs-of-all-time/)
+- [how to shave armpits](https://hair.allwomenstalk.com/the-history-of-armpit-shaving/)
 - [5 Cool Edward Quotes ...](https://twilight.allwomenstalk.com/5-cool-edward-quotes/)
 - [7 People Who Shouldn't Have Been Assassinated ...](https://celebs.allwomenstalk.com/7-people-who-shouldnt-have-been-assassinated/)
 

@@ -3,7 +3,7 @@ title: "7 Movie Stars That Crossed over to TV ..."
 description: "Maggie Smith; Kiefer Sutherland; Kevin Bacon; Alec Baldwin; Zooey Deschanel; More ..."
 url: "https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Movie Stars That Crossed over to TV ...
@@ -43,15 +43,15 @@ There are so many actors that try to make the switch from movies to TV! Some of 
 ## Related Posts
 
 - [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
-- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
 - [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
 - [boys singer](https://celebs.allwomenstalk.com/hottest-male-singers/)
 - [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
 - [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
 - [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/unlikely-celebrity-style-icons/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
 - [Top 7 Funny Actors on TV ...](https://7fun.net/top-7-funny-actors-on-tv/)
 - [7 Beloved TV Couples ...](https://allwomenstalk.com/7-beloved-tv-couples/)
 

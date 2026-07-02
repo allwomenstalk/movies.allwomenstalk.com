@@ -3,7 +3,7 @@ title: "8 Books That Might Make Great Movies ..."
 description: "Rip Van Winkle by Washington Irving; The Temple of My Familiar by Alice Walker; She's Come Undone by Wally Lamb; Boy's Life by Robert McCammon; Notting Hell by Rachel Johnson; More ..."
 url: "https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Books That Might Make Great Movies ...
@@ -70,16 +70,16 @@ I will go nuts if any of these books ever make it to movie land – and then hav
 
 ## Related Posts
 
-- [poorly written books](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [7 Great Books on Mental Illness ...](https://health.allwomenstalk.com/great-books-on-mental-illness/)
+- [8 Cookbooks for You and the Kids ...](https://cooking.allwomenstalk.com/cookbooks-for-you-and-the-kids/)
+- [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
+- [poorly written books](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
+- [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
-- [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
-- [who has the best deal on downloading audiobooks](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
-- [8 Cookbooks for You and the Kids ...](https://cooking.allwomenstalk.com/cookbooks-for-you-and-the-kids/)
-- [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [19th century novelists](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
+- [who has the best deal on downloading audiobooks](https://lifestyle.allwomenstalk.com/best-places-to-download-audio-books-online/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
 

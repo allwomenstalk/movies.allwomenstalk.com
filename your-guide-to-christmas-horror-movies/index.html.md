@@ -3,7 +3,7 @@ title: "Your Guide to Christmas Horror Movies ..."
 description: "Black Christmas; Jack Frost; Silent Night, Deadly Night; Christmas Evil; More ..."
 url: "https://movies.allwomenstalk.com/your-guide-to-christmas-horror-movies/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Your Guide to Christmas Horror Movies ...
@@ -30,15 +30,15 @@ If you love a good horror film and you want to watch something a little scary or
 
 ## Related Posts
 
-- [best period dramas movies](https://movies.allwomenstalk.com/best-movie-costume-dramas-for-history-lovers/)
 - [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
-- [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
-- [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
-- [netflix scam movies](https://movies.allwomenstalk.com/top-movies-about-online-dating-that-will-make-you-feel-all-the-feels/)
-- [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
-- [movies about internet](https://movies.allwomenstalk.com/movies-for-internet-addicts/)
-- [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
 - [romance movies that will make you cry](https://movies.allwomenstalk.com/movies-like-notebook/)
+- [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
+- [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
+- [best period dramas movies](https://movies.allwomenstalk.com/best-movie-costume-dramas-for-history-lovers/)
+- [netflix scam movies](https://movies.allwomenstalk.com/top-movies-about-online-dating-that-will-make-you-feel-all-the-feels/)
+- [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
+- [movies about internet](https://movies.allwomenstalk.com/movies-for-internet-addicts/)
+- [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
 - [christmas movies that arent christmas movies](https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
 - [8 Touching Holiday Movies You Can't Miss ...](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)

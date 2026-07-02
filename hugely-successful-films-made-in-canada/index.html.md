@@ -3,7 +3,7 @@ title: "7 Hugely Successful Films Made in Canada ..."
 description: "Twilight (2008); Titanic (1997); Capote (2005); Brokeback Mountain (2005); Mean Girls (2004); More ..."
 url: "https://movies.allwomenstalk.com/hugely-successful-films-made-in-canada/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Hugely Successful Films Made in Canada ...
@@ -56,16 +56,16 @@ How many of these movies made in Canada had you assumed were shot in the US?
 
 ## Related Posts
 
-- [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
-- [jack black rock](https://movies.allwomenstalk.com/reasons-why-school-of-rock-is-the-best-jack-black-film-ever/)
-- [film about a nanny](https://movies.allwomenstalk.com/movies-about-nannies/)
-- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
-- [films on disney plus uk](https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/)
-- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
 - [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
+- [veggietales kids](https://movies.allwomenstalk.com/great-veggie-tales-movies-for-kids/)
 - [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
-- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
+- [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
+- [film about a nanny](https://movies.allwomenstalk.com/movies-about-nannies/)
 - [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
+- [films on disney plus uk](https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/)
+- [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
+- [jack black rock](https://movies.allwomenstalk.com/reasons-why-school-of-rock-is-the-best-jack-black-film-ever/)
+- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

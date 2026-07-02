@@ -3,7 +3,7 @@ title: "7 Must-Have Flicks for Your Collection ..."
 description: "The Godfather; Gone with the Wind; The African Queen; Mr. Smith Goes to Washington; Some like It Hot; More ..."
 url: "https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/"
 category: "movies"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Must\-Have Flicks for Your Collection ...
@@ -66,15 +66,15 @@ Top image source: [doctormacro.com](https://www.doctormacro.com/Images/Leigh,%20
 ## Related Posts
 
 - [most pirated movie of all time](https://movies.allwomenstalk.com/most-pirated-movies/)
-- [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 - [top romantic comedies](https://movies.allwomenstalk.com/top-romantic-comedies/)
-- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
-- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
-- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
+- [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 - [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
-- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
+- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 - [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
+- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
 - [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
+- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
+- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 
