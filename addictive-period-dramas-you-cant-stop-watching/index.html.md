@@ -3,7 +3,7 @@ title: "7 Addictive Period Dramas You Can't Stop Watching ..."
 description: "The Tudors; The Village; Downton Abbey; Mr Selfridge; The White Queen; More ..."
 url: "https://movies.allwomenstalk.com/addictive-period-dramas-you-cant-stop-watching/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Addictive Period Dramas You Can't Stop Watching ...
@@ -56,16 +56,16 @@ I can’t really put my finger on just why I love period dramas so much. In real
 
 ## Related Posts
 
-- [characters with disabilities](https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/)
 - [cw television shows](https://movies.allwomenstalk.com/cw-tv-shows-you-cant-possibly-miss-out-on/)
-- [ahs season 4](https://movies.allwomenstalk.com/ideas-for-season-4-of-american-horror-story/)
-- [political cartoons about teddy roosevelt](https://lifestyle.allwomenstalk.com/famous-political-cartoons-about-theodore-roosevelt/)
-- [britain's favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [tv shows from the 2000s](https://movies.allwomenstalk.com/staple-american-shows-of-the-2000s/)
-- [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
-- [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
 - [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
+- [characters with disabilities](https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/)
+- [britain's favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
+- [ahs season 4](https://movies.allwomenstalk.com/ideas-for-season-4-of-american-horror-story/)
+- [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
+- [political cartoons about teddy roosevelt](https://lifestyle.allwomenstalk.com/famous-political-cartoons-about-theodore-roosevelt/)
+- [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [7 New Romantic Movies You Have to Watch ...](https://allwomenstalk.com/7-new-romantic-movies-you-have-to-watch/)
 

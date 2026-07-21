@@ -3,7 +3,7 @@ title: "The 7 Best Sequels of All Times ..."
 description: "The Dark Knight; Terminator 2: Judgment Day; Quantum of Solace; Toy Story 2; X2: X-Men United; More ..."
 url: "https://movies.allwomenstalk.com/the-best-sequels-of-all-times/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # The 7 Best Sequels of All Times ...
@@ -44,16 +44,16 @@ Top image source: [screensavers.brothersoft.com](https://goo.gl/ES4JoI)
 
 ## Related Posts
 
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
-- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
-- [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
 - [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
-- [john williams movie soundtracks](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
-- [les choristes where to watch](https://movies.allwomenstalk.com/fabulous-french-films/)
 - [films to watch when sad](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
+- [john williams movie soundtracks](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
 - [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [les choristes where to watch](https://movies.allwomenstalk.com/fabulous-french-films/)
+- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [The 7 Best Movie Trilogies Ever ...](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

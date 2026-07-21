@@ -3,7 +3,7 @@ title: "8 Classic Romantic Comedies ..."
 description: "Pretty Woman; It Happened One Night; Annie Hall; Sleepless in Seattle; Roman Holiday; More ..."
 url: "https://movies.allwomenstalk.com/classic-romantic-comedies/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 8 Classic Romantic Comedies ...
@@ -71,15 +71,15 @@ I love each and every one of these movies, and have watched each of them several
 ## Related Posts
 
 - [totally tubular movie](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
-- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
+- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
 - [top romantic comedies](https://movies.allwomenstalk.com/top-romantic-comedies/)
 - [liner movie](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
-- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
+- [tom hanks movies 1990s](https://movies.allwomenstalk.com/best-tom-hanks-movies-you-might-have-missed/)
 - [stellar movie](https://movies.allwomenstalk.com/stellar-movie-franchises/)
 - [subtitled movies](https://movies.allwomenstalk.com/great-foreign-films-with-subtitles/)
 - [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
-- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
 - [9 Irrespressible Movies Hollywood Should Remake .....](https://movies.allwomenstalk.com/irrespressible-movies-hollywood-should-remake/)
+- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

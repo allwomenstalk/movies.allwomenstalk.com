@@ -3,7 +3,7 @@ title: "10 Badass Female Movie Villains We All Love to Hate ..."
 description: "Wicked Witch of the West (Wizard of Oz); Maleficent (Sleeping Beauty); Evil Queen (Snow White and the Seven Dwarves); Ursula (the Little Mermaid); Annie Wilkes (Misery); More ..."
 url: "https://movies.allwomenstalk.com/badass-female-movie-villians/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 10 Badass Female Movie Villains We All Love to Hate ...
@@ -56,16 +56,16 @@ Please leave in the comments your favorite movie villainesses.
 
 ## Related Posts
 
-- [fenale disney characters](https://movies.allwomenstalk.com/best-female-disney-characters/)
-- [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
-- [female cartoon characters with long hair](https://movies.allwomenstalk.com/best-female-cartoon-characters-from-cartoon-network/)
-- [modern pin up models](https://beauty.allwomenstalk.com/ways-the-pin-up-girl-influences-modern-women/)
-- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
-- [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
-- [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
-- [myrcella game of thrones actress](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate/)
-- [sibel kekilli game of thrones character](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate-2/)
 - [ladies singers](https://music.allwomenstalk.com/empowering-female-singers/)
+- [female cartoon characters with long hair](https://movies.allwomenstalk.com/best-female-cartoon-characters-from-cartoon-network/)
+- [myrcella game of thrones actress](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate/)
+- [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
+- [fenale disney characters](https://movies.allwomenstalk.com/best-female-disney-characters/)
+- [sibel kekilli game of thrones character](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate-2/)
+- [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
+- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
+- [modern pin up models](https://beauty.allwomenstalk.com/ways-the-pin-up-girl-influences-modern-women/)
+- [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [7 of My Favorite on-Screen Villains ...](https://bilbr.com/7-of-my-favorite-on-screen-villains/)
 

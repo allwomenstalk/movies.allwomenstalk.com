@@ -3,7 +3,7 @@ title: "7 Absolutely Swoon-Worthy Period Drama Men and the Actors That Brought T
 description: "Colin Firth: Mr. Darcy, Pride and Prejudice; JJ Feild: Mr. Tilney, Northanger Abbey; Rupert Penry-Jones: Captain Wentworth, Persuasion; Matthew Macfadyen: Arthur Clennam, Little Dorrit; Richard Armitage: Mr. Thornton, North & South; More ..."
 url: "https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Absolutely Swoon\-Worthy Period Drama Men and the Actors That Brought Them to Life ...
@@ -68,16 +68,16 @@ Well ladies, these are the period men and actors that I find absolutely swoon wo
 
 ## Related Posts
 
-- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
-- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
-- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
 - [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
-- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
+- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
 - [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
+- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
+- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
 - [miley cyrus inappropriate](https://celebs.allwomenstalk.com/craziest-miley-cyrus-moments-that-never-cease-to-amuse-us/)
 - [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
+- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
+- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
 - [7 Hottest on-Screen Heroes of All Times ...](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 

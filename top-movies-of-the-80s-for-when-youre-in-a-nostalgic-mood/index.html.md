@@ -3,7 +3,7 @@ title: "7 Top Movies of the 80s for when You're in a Nostalgic Mood ..."
 description: "Amadeus, 1984; Star Wars: Episode VI – Return of the Jedi, 1983; Once upon a Time in America, 1984; Aliens, 1986; The Shining, 1980; More ..."
 url: "https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Top Movies of the 80s for when You're in a Nostalgic Mood ...
@@ -42,16 +42,16 @@ Some people find it hard to watch “old” movies but movies from the 80s are d
 
 ## Related Posts
 
-- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
-- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
 - [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
-- [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
-- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
-- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [shirley valentine on netflix](https://movies.allwomenstalk.com/underrated-british-movies-that-deserve-some-serious-credit/)
+- [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
+- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
+- [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
+- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
 - [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
 - [best rated alien movies](https://movies.allwomenstalk.com/best-alien-movies-that-are-out-of-this-world/)
-- [disney romances](https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/)
+- [animated movie 2014](https://movies.allwomenstalk.com/highly-anticipated-animated-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 

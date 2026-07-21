@@ -3,7 +3,7 @@ title: "7 Extravagant Films Featuring Scarlett Johansson That Showcase Her Talen
 description: "Lost in Translation (2003); Girl with a Pearl Earring (2003); Iron Man 2 (2010); An American Rhapsody (2001); The Avengers (2012); More ..."
 url: "https://movies.allwomenstalk.com/extravagant-films-featuring-scarlett-johansson-that-showcase-her-talent/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Extravagant Films Featuring Scarlett Johansson That Showcase Her Talent ...
@@ -42,16 +42,16 @@ With the excellent quality of the movies that she stars in, I can assure you tha
 
 ## Related Posts
 
-- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
-- [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
-- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
-- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
-- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [weird romance movies](https://movies.allwomenstalk.com/unconventional-romantic-movies-that-are-a-bit-twisted/)
+- [warm and fuzzy movies](https://movies.allwomenstalk.com/warm-and-fuzzy-holiday-films-to-get-you-in-the-spirit/)
+- [about him film](https://movies.allwomenstalk.com/movies-that-will-make-you-forget-about-him/)
 - [alternative movies to watch](https://movies.allwomenstalk.com/indie-movies-on-netflix-you-need-to-watch-now/)
-- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
-- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [movies about appreciating life](https://movies.allwomenstalk.com/inspiring-movies-that-will-make-you-appreciate-life/)
 - [90s slacker movies](https://movies.allwomenstalk.com/90s-movies-you-must-watch-before-you-die/)
+- [favorite classic movies](https://movies.allwomenstalk.com/of-my-favorite-classic-movies-you-need-to-take-time-to-watch/)
+- [movies you can watch over and over again](https://movies.allwomenstalk.com/romantic-movies-you-can-watch-over-and-over-again/)
+- [movies that changes your life](https://movies.allwomenstalk.com/wonderful-movies-that-will-change-your-life/)
+- [9 film characters](https://movies.allwomenstalk.com/80s-film-characters-we-would-love-to-be/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Wonderful Black Actresses ...](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
 

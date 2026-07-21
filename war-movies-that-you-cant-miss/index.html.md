@@ -3,7 +3,7 @@ title: "7 War Movies That You Can't Miss ..."
 description: "Full Metal Jacket; Apocalyse Now; Enemy at the Gates; Schindler’s List; We Were Soldiers; More ..."
 url: "https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 War Movies That You Can't Miss ...
@@ -65,16 +65,16 @@ Top Photo Credit: [Vintage Movie Posters](https://www.flickr.com/photos/35782573
 
 ## Related Posts
 
-- [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
-- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
-- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
+- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
-- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
 - [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
+- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
 - [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
+- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Incredible Cult Movies Not to Miss ...](https://movies.allwomenstalk.com/incredible-cult-movies-not-to-miss/)
 

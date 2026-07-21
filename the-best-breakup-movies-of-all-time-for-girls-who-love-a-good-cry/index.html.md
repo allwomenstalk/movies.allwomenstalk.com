@@ -3,7 +3,7 @@ title: "The Best Breakup Movies of All Time for Girls Who Love a Good Cry ..."
 description: "Kramer Vs. Kramer; The Way We Were; Breaking Upwards; Eternal Sunshine of the Spotless Mind; (500) Days of Summer; More ..."
 url: "https://movies.allwomenstalk.com/the-best-breakup-movies-of-all-time-for-girls-who-love-a-good-cry/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # The Best Breakup Movies of All Time for Girls Who Love a Good Cry ...
@@ -113,15 +113,15 @@ A lesson in how to get rid of your psycho boyfriend AND your toxic friends. Free
 ## Related Posts
 
 - [best mother movies](https://movies.allwomenstalk.com/movies-you-should-watch-with-your-mama-on-mothers-day/)
-- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
-- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
-- [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
 - [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
-- [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
+- [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
 - [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
-- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
+- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
+- [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
 - [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
+- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
+- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Best Movies for a Girls' Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

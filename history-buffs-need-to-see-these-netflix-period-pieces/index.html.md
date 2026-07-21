@@ -3,7 +3,7 @@ title: "History Buffs Need to See These Netflix Period Pieces ..."
 description: "Miss Fisher's Murder Mysteries; Grand Hotel; The Paradise; Land Girls; The Bletchley Circle; More ..."
 url: "https://movies.allwomenstalk.com/history-buffs-need-to-see-these-netflix-period-pieces/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # History Buffs Need to See These Netflix Period Pieces ...
@@ -42,15 +42,15 @@ I love finding new period pieces to obsess over, so if you have any more recomme
 
 ## Related Posts
 
-- [Hilarious Explanations of Your Favorite Films ...](https://movies.allwomenstalk.com/hilarious-explanations-of-your-favorite-films/)
-- [Movies Based on True Stories Hitting Theaters in 2...](https://movies.allwomenstalk.com/movies-based-on-true-stories-hitting-theatres-in/)
-- [Movies for Girls Who Just Need a Good Cry Fest ...](https://bilbr.com/movies-that-will-jerk-more-tears-than-cutting-an-onion/)
-- [Movies You and Your BFF Need to Watch This Weekend...](https://7fun.net/movies-to-watch-with-your-bffs-this-weekend/)
-- [Movies That Comic Book Lovers Cannot Miss in 2016/...](https://bilbr.com/movies-that-comic-book-lovers-cannot-miss-in-20162017/)
 - [elise rainier and lorraine warren](https://movies.allwomenstalk.com/horror-fanatics-will-love-these-movies/)
-- [7 Quintessential Summer Movies That Celebrate the ...](https://movies.allwomenstalk.com/quintessential-summer-movies-that-celebrate-the-season/)
+- [Movies You and Your BFF Need to Watch This Weekend...](https://7fun.net/movies-to-watch-with-your-bffs-this-weekend/)
+- [Movies Based on True Stories Hitting Theaters in 2...](https://movies.allwomenstalk.com/movies-based-on-true-stories-hitting-theatres-in/)
 - [10 Great Movies Any Young Adult Can Relate to in L...](https://bilbr.com/great-movies-young-adults-can-relate-to/)
+- [Movies for Girls Who Just Need a Good Cry Fest ...](https://bilbr.com/movies-that-will-jerk-more-tears-than-cutting-an-onion/)
 - [loreal paris color riche le stylo shadow eternal s...](https://movies.allwomenstalk.com/romcoms-that-dont-insult-your-intelligence/)
+- [Movies That Comic Book Lovers Cannot Miss in 2016/...](https://bilbr.com/movies-that-comic-book-lovers-cannot-miss-in-20162017/)
+- [7 Quintessential Summer Movies That Celebrate the ...](https://movies.allwomenstalk.com/quintessential-summer-movies-that-celebrate-the-season/)
+- [Hilarious Explanations of Your Favorite Films ...](https://movies.allwomenstalk.com/hilarious-explanations-of-your-favorite-films/)
 - [7 Movies Made by Women That You Should See This Su...](https://movies.allwomenstalk.com/movies-made-by-women-that-you-should-see-this-summer/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 - [8 Top Historical Movies ...](https://movies.allwomenstalk.com/top-historical-movies/)

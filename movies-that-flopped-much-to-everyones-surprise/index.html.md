@@ -3,7 +3,7 @@ title: "11 Movies That Flopped, Much to Everyone's Surprise ..."
 description: "John Carter (2012); The Fifth Estate (2013); Mars Needs Moms (2011); Speed Racer (2008); R.I.P.D (2013); More ..."
 url: "https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 11 Movies That Flopped, Much to Everyone's Surprise ...
@@ -58,16 +58,16 @@ While it's true that these movies made less money than an off-key busker, it doe
 
 ## Related Posts
 
-- [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
-- [controversial movies of all time](https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/)
-- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
 - [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
 - [best audrey hepburn film](https://movies.allwomenstalk.com/of-audrey-hepburns-greatest-films/)
-- [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
-- [watch room in rome movie](https://movies.allwomenstalk.com/best-movies-to-watch-before-you-go-to-italy/)
-- [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
 - [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
+- [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
+- [controversial movies of all time](https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/)
 - [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
+- [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
+- [watch room in rome movie](https://movies.allwomenstalk.com/best-movies-to-watch-before-you-go-to-italy/)
+- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
+- [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

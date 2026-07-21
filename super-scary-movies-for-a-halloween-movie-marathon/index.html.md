@@ -3,7 +3,7 @@ title: "7 Super Scary Movies for a Halloween Movie Marathon ..."
 description: "Halloween; Scream (1, 2, 3 & 4); The Shining; Psycho; The Blair Witch Project; More ..."
 url: "https://movies.allwomenstalk.com/super-scary-movies-for-a-halloween-movie-marathon/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Super Scary Movies for a Halloween Movie Marathon ...
@@ -42,16 +42,16 @@ So there you go guys, take the phone off the hook, ignore the doorbell (unless i
 
 ## Related Posts
 
-- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
-- [action 2014 movies](https://movies.allwomenstalk.com/new-action-movies-for/)
-- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
-- [9 New Disney Movies I Can't Wait to See ...](https://movies.allwomenstalk.com/new-disney-movies-i-cant-wait-to-see/)
-- [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
 - [pixar easter eggs for next movie](https://movies.allwomenstalk.com/great-pixar-movie-easter-eggs-you-probably-havent-noticed/)
 - [movie about roman empire](https://movies.allwomenstalk.com/movies-about-ancient-rome-i-highly-recommend/)
 - [best idris elba movies](https://movies.allwomenstalk.com/brilliant-movies-featuring-idris-elba-that-youve-got-to-watch/)
-- [films with teachers](https://movies.allwomenstalk.com/best-movies-about-teachers-and-learning-youll-love/)
+- [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
 - [great friends movie](https://movies.allwomenstalk.com/great-films-to-watch-with-your-best-friend/)
+- [9 New Disney Movies I Can't Wait to See ...](https://movies.allwomenstalk.com/new-disney-movies-i-cant-wait-to-see/)
+- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
+- [action 2014 movies](https://movies.allwomenstalk.com/new-action-movies-for/)
+- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
+- [films with teachers](https://movies.allwomenstalk.com/best-movies-about-teachers-and-learning-youll-love/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
 

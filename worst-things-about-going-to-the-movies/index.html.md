@@ -3,7 +3,7 @@ title: "7 Worst Things about Going to the Movies ..."
 description: "Lack of Choice; Cost; Manners; Children; Food; More ..."
 url: "https://movies.allwomenstalk.com/worst-things-about-going-to-the-movies/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Worst Things about Going to the Movies ...
@@ -42,16 +42,16 @@ If someone's spoiling the movie for you, don't be afraid to complain. Everyone e
 
 ## Related Posts
 
+- [my boss doesn t know how to do my job](https://money.allwomenstalk.com/things-your-boss-doesnt-need-to-know/)
+- [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
 - [The Most Essential Dos and Don'ts of Saying You're...](https://inspiration.allwomenstalk.com/dos-and-donts-of-apologizing/)
-- [7 Stupid Things We've All Done when Crushing on So...](https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/)
+- [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
+- [9 Things You Shouldn't do when You're Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
 - [7 Things That Hurt Your Chances of Getting a Raise...](https://money.allwomenstalk.com/things-that-hurt-your-chances-of-getting-a-raise/)
 - [Social Media: the Dos & Don'ts ...](https://lifestyle.allwomenstalk.com/social-media-the-dos-donts/)
-- [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
-- [9 Things You Shouldn't do when You're Sick ...](https://health.allwomenstalk.com/things-you-shouldnt-do-when-youre-sick/)
+- [7 Stupid Things We've All Done when Crushing on So...](https://funny.allwomenstalk.com/stupid-things-weve-all-done-when-crushing-on-someone/)
 - [7 Things You'll Regret in 7 Years ...](https://inspiration.allwomenstalk.com/things-youll-regret-in-7-years/)
-- [my boss doesn t know how to do my job](https://money.allwomenstalk.com/things-your-boss-doesnt-need-to-know/)
-- [bad things to buy](https://money.allwomenstalk.com/of-the-worst-things-to-buy-used/)
-- [The Biggest Things You Should Never Say to Your Ma...](https://funny.allwomenstalk.com/things-you-should-never-tell-a-man/)
+- [7 Things Not to do when You Are Angry ...](https://inspiration.allwomenstalk.com/things-not-to-do-when-you-are-angry/)
 - [5 Horrible Horror Movies to Miss ...](https://twilight.allwomenstalk.com/5-horrible-horror-movies-to-miss/)
 - [8 Reasons to Go to the Movies This Year ...](https://7fun.net/8-reasons-to-go-to-the-movies-this-year/)
 

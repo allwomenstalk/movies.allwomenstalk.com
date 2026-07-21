@@ -3,7 +3,7 @@ title: "7 Awesome Movies Set in India ..."
 description: "Gandhi; The Jungle Book; Slumdog Millionaire; The Darjeeling Limited; A Passage to India; More ..."
 url: "https://movies.allwomenstalk.com/awesome-movies-set-in-india/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Awesome Movies Set in India ...
@@ -42,16 +42,16 @@ These are my favorite movies set in India. Was yours among them?
 
 ## Related Posts
 
-- [19 Must Watch Cult Classics ...](https://movies.allwomenstalk.com/must-watch-cult-classics/)
-- [7 Classic Stephen King Movies You Should Watch ...](https://movies.allwomenstalk.com/classic-stephen-king-movies-you-should-watch/)
-- [underrated film hd](https://movies.allwomenstalk.com/underrated-movies-to-watch-on-a-rainy-day-this-spring/)
 - [7 Reasons to Watch 1930's Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-1930s-movies/)
 - [9 Funny Shows You Need to Watch on Netflix Now ...](https://funny.allwomenstalk.com/funny-shows-you-need-to-watch-on-netflix-now/)
-- [7 Awesome Movies in Theatres to Check out This Mon...](https://movies.allwomenstalk.com/awesome-movies-in-theatres-to-check-out-this-month/)
-- [7 Recent Book-to-Movie Adaptations You Don't Want ...](https://movies.allwomenstalk.com/recent-book-to-movie-adaptions-you-dont-want-to-miss/)
 - [9 Absolutely Awesome Film Noir Movies ...](https://movies.allwomenstalk.com/absolutely-awesome-film-noir-movies/)
+- [7 Recent Book-to-Movie Adaptations You Don't Want ...](https://movies.allwomenstalk.com/recent-book-to-movie-adaptions-you-dont-want-to-miss/)
+- [19 Must Watch Cult Classics ...](https://movies.allwomenstalk.com/must-watch-cult-classics/)
+- [underrated film hd](https://movies.allwomenstalk.com/underrated-movies-to-watch-on-a-rainy-day-this-spring/)
 - [best hulu originals](https://movies.allwomenstalk.com/best-hulu-original-shows-for-when-youre-bored/)
+- [7 Awesome Movies in Theatres to Check out This Mon...](https://movies.allwomenstalk.com/awesome-movies-in-theatres-to-check-out-this-month/)
 - [7 Movies That Will Inspire You to Run ...](https://movies.allwomenstalk.com/movies-that-will-inspire-you-to-run/)
+- [7 Classic Stephen King Movies You Should Watch ...](https://movies.allwomenstalk.com/classic-stephen-king-movies-you-should-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

@@ -3,7 +3,7 @@ title: "7 Completed TV Series to Stream Instantly on Netflix ..."
 description: "Friday Night Lights; United States of Tara; Freaks and Geeks; Jekyll; Buffy the Vampire Slayer; More ..."
 url: "https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Completed TV Series to Stream Instantly on Netflix ...
@@ -44,16 +44,16 @@ I would just like to say that this post was originally inspired by Veronica Mars
 
 ## Related Posts
 
-- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
-- [shows similar to dateline](https://lifestyle.allwomenstalk.com/best-true-crime-tv-shows/)
+- [ways to get news](https://lifestyle.allwomenstalk.com/unconventional-ways-to-get-the-news/)
 - [tv show from the 80s](https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/)
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
+- [shows similar to dateline](https://lifestyle.allwomenstalk.com/best-true-crime-tv-shows/)
 - [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
 - [if i could have a super power what would it be](https://lifestyle.allwomenstalk.com/superpowers-that-i-would-love-to-have/)
 - [jr ward book order](https://books.allwomenstalk.com/fatal-flaws-of-j-r-wards-black-dagger-brotherhood-series/)
-- [ways to get news](https://lifestyle.allwomenstalk.com/unconventional-ways-to-get-the-news/)
-- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
+- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
 - [7 Best Shows on TV Right Now ...](https://movies.allwomenstalk.com/7-best-shows-on-tv-right-now/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

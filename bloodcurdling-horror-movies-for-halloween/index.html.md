@@ -3,7 +3,7 @@ title: "5 Blood Curdling Horror Movies for Halloween ..."
 description: "\"Happy Death Day\" (2017); \"the Houses October Built\" (2014); \"City of the Living Dead\" (1980); \"Devil Times Five\" (1974); \"Dracula: Prince of Darkness\" (1966); More ..."
 url: "https://movies.allwomenstalk.com/bloodcurdling-horror-movies-for-halloween/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 5 Blood Curdling Horror Movies for Halloween ...
@@ -36,16 +36,16 @@ I hope you found at least one movie to watch this Halloween. Have fun!
 
 ## Related Posts
 
-- [dark hair female costumes](https://lifestyle.allwomenstalk.com/sexiest-halloween-costumes-for-women/)
-- [bender eye care](https://lifestyle.allwomenstalk.com/gender-bending-halloween-costume-ideas/)
-- [autumn movie night](https://food.allwomenstalk.com/practical-uses-for-leftover-halloween-candy/)
-- [top 10 halloween costumes](https://lifestyle.allwomenstalk.com/best-celebrity-halloween-costumes/)
-- [recipes using leftover halloween candy](https://food.allwomenstalk.com/things-to-do-with-leftover-candy/)
 - [female celebrities costumes](https://lifestyle.allwomenstalk.com/halloween-costume-ideas-to-steal-from-celebrites/)
-- [horror muffins](https://food.allwomenstalk.com/halloween-cupcake-ideas/)
-- [most popular halloween costume 2017](https://lifestyle.allwomenstalk.com/best-halloween-costumes-for-halloween/)
+- [dark hair female costumes](https://lifestyle.allwomenstalk.com/sexiest-halloween-costumes-for-women/)
 - [halloween food tricks](https://food.allwomenstalk.com/spookily-easy-halloween-treats/)
+- [most popular halloween costume 2017](https://lifestyle.allwomenstalk.com/best-halloween-costumes-for-halloween/)
+- [horror muffins](https://food.allwomenstalk.com/halloween-cupcake-ideas/)
+- [autumn movie night](https://food.allwomenstalk.com/practical-uses-for-leftover-halloween-candy/)
 - [why is halloween celebrated](https://lifestyle.allwomenstalk.com/couples-costumes-inspired-by-classic-halloween-movies/)
+- [bender eye care](https://lifestyle.allwomenstalk.com/gender-bending-halloween-costume-ideas/)
+- [recipes using leftover halloween candy](https://food.allwomenstalk.com/things-to-do-with-leftover-candy/)
+- [top 10 halloween costumes](https://lifestyle.allwomenstalk.com/best-celebrity-halloween-costumes/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Werewolf Movies ...](https://twilight.allwomenstalk.com/5-werewolf-movies/)
 

@@ -3,7 +3,7 @@ title: "9 Depressing Deaths from Animated Movies That Wrecked Your Childhood ...
 description: "Bambi's Mom Bite's the Dust; The Iron Giant Sacrifices Himself; Scar Murders Mufasa; Nemo's Mom Gets Eaten; Charlotte Passes on; More ..."
 url: "https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 9 Depressing Deaths from Animated Movies That Wrecked Your Childhood ...
@@ -50,16 +50,16 @@ For me, the only thing that beats the death of Bambi's mom is the ending of The 
 
 ## Related Posts
 
-- [to make you feel my love movie](https://movies.allwomenstalk.com/romantic-films-thatll-make-you-feel-the-love/)
-- [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
 - [best steampunk movie](https://movies.allwomenstalk.com/fantastic-steampunk-themed-movies-to-enjoy-on-movie-night/)
 - [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
-- [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
-- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
-- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
-- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
-- [michael caine accent](https://movies.allwomenstalk.com/michael-caine-movies-everyone-should-see/)
 - [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
+- [movies directed by nora ephron](https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/)
+- [michael caine accent](https://movies.allwomenstalk.com/michael-caine-movies-everyone-should-see/)
+- [to make you feel my love movie](https://movies.allwomenstalk.com/romantic-films-thatll-make-you-feel-the-love/)
+- [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
+- [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
+- [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
+- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [9 Great Disaster Movies ...](https://movies.allwomenstalk.com/great-disaster-movies/)
 - [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
 

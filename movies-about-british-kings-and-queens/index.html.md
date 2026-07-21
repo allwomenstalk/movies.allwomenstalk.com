@@ -3,7 +3,7 @@ title: "7 Movies about British Kings and Queens ..."
 description: "The King’s Speech (2010); The Queen (2006); Mrs. Brown (1997); Elizabeth: the Golden Age (1998); Henry V (1989); More ..."
 url: "https://movies.allwomenstalk.com/movies-about-british-kings-and-queens/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Movies about British Kings and Queens ...
@@ -56,16 +56,16 @@ Drama, intrigue, romance, battles and fabulous costumes – what do you enjoy mo
 
 ## Related Posts
 
-- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
-- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
-- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
-- [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
-- [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
-- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
 - [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
-- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
+- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
 - [movies where actors really did it](https://movies.allwomenstalk.com/movies-featuring-real-life-related-actors/)
+- [glamorous homes](https://movies.allwomenstalk.com/gorgeous-homes-in-movies-worth-envying/)
+- [are nick nolte and robert redford friends](https://movies.allwomenstalk.com/robert-redford-movies-that-prove-he-is-a-masterful-actor/)
+- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
+- [popcorn fun facts](https://food.allwomenstalk.com/fun-popcorn-facts-for-your-next-movie-night/)
+- [movies with one syllable titles](https://movies.allwomenstalk.com/movies-with-one-word-titles/)
+- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
+- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
 - [8 Colin Firth Movies I Can't Get Enough of ...](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 

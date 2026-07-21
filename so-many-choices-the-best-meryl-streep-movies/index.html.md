@@ -3,7 +3,7 @@ title: "In Celebration of Meryl Streep. Happy Birthday!"
 description: "Kramer Vs Kramer (1979); The Devil Wears Prada (2006); Dancing at Lughnasa (1998); Sophie’s Choice (1982); Holocaust (1978); More ..."
 url: "https://movies.allwomenstalk.com/so-many-choices-the-best-meryl-streep-movies/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # In Celebration of Meryl Streep. Happy Birthday!
@@ -103,16 +103,16 @@ Personally, I'm looking forward to her performance in the new Mary Poppins movie
 
 ## Related Posts
 
-- [bethenny frankel pregnancy](https://celebs.allwomenstalk.com/bethenny-pregnant-in-the-city/)
-- [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
+- [spunk shooting](https://wedding.allwomenstalk.com/a-spunk-filled-engagement-shoot-in-nyc/)
+- [Breast Cancer Awareness in New Jersey - Tamela Bee...](https://allwomenstalk.com/breast-cancer-awareness-new-jersey-tamela-beene-story/)
+- [kylie cosmetics losing money](https://celebs.allwomenstalk.com/the-rise-and-rise-of-kylie-jenner/)
+- [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
 - [gigi hadid ab workout](https://fitness.allwomenstalk.com/how-gigi-hadid-gets-through-the-dreaded-plank-position/)
 - [6 Photos of Happy Birthday Claire!](https://celebs.allwomenstalk.com/happy-birthday-claire-2/)
-- [spunk shooting](https://wedding.allwomenstalk.com/a-spunk-filled-engagement-shoot-in-nyc/)
-- [kylie cosmetics losing money](https://celebs.allwomenstalk.com/the-rise-and-rise-of-kylie-jenner/)
-- [Breast Cancer Awareness in New Jersey - Tamela Bee...](https://allwomenstalk.com/breast-cancer-awareness-new-jersey-tamela-beene-story/)
-- [38 Photos of CBS Summer Press Tour Party ...](https://celebs.allwomenstalk.com/cbs-summer-press-tour-party/)
 - [twilight characters powers](https://twilight.allwomenstalk.com/a-biography-on-bella-swan-the-twilight-character-not-kristen-stewert/)
+- [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
 - [kristen stewart brother cameron](https://twilight.allwomenstalk.com/a-biography-on-kristen-stewart/)
+- [bethenny frankel pregnancy](https://celebs.allwomenstalk.com/bethenny-pregnant-in-the-city/)
 - [Hallows Eve!](https://allwomenstalk.com/hallows-eve/)
 - [Oscar Memories: Silver Screen Beauties ...](https://allwomenstalk.com/oscar-memories-silver-screen-beauties/)
 

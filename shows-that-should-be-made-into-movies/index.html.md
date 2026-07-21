@@ -3,7 +3,7 @@ title: "10 Shows That Should Be Made into Movies ..."
 description: "Pretty Little Liars; Mad Men; Game of Thrones; Once upon a Time; How I Met Your Mother; More ..."
 url: "https://movies.allwomenstalk.com/shows-that-should-be-made-into-movies/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 10 Shows That Should Be Made into Movies ...
@@ -54,16 +54,16 @@ What do you think of these shows that should be made into movies? What shows do 
 
 ## Related Posts
 
-- [movies inspired by video games](https://movies.allwomenstalk.com/movies-inspired-by-video-games/)
-- [7 Marvelous Movies Based on Top-Notch Plays ...](https://movies.allwomenstalk.com/marvelous-movies-based-on-top-notch-plays/)
-- [real paranormal movies](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
-- [7 Romantic Comedies to Look Forward to in 2013 ...](https://7fun.net/romantic-comedies-to-look-forward-to-in/)
+- [7 TV Shows That Would Make Great Movies ...](https://movies.allwomenstalk.com/tv-shows-that-would-make-great-movies/)
 - [8 Acclaimed Foreign Films to Watch ...](https://7fun.net/acclaimed-foreign-films-to-watch/)
 - [10 Fashionable Movies That Will Inspire Your Wardr...](https://fashion.allwomenstalk.com/fashionable-movies-that-will-inspire-your-wardrobe/)
+- [movies inspired by video games](https://movies.allwomenstalk.com/movies-inspired-by-video-games/)
+- [real paranormal movies](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
 - [7 Great Health Documentaries to Watch ...](https://health.allwomenstalk.com/great-health-documentaries-to-watch/)
-- [7 TV Shows That Would Make Great Movies ...](https://movies.allwomenstalk.com/tv-shows-that-would-make-great-movies/)
 - [10 Must See Animated Movies ...](https://bilbr.com/must-see-animated-movies/)
 - [8 Most Anticipated Movies of 2013 ...](https://movies.allwomenstalk.com/most-anticipated-movies-of/)
+- [7 Romantic Comedies to Look Forward to in 2013 ...](https://7fun.net/romantic-comedies-to-look-forward-to-in/)
+- [7 Marvelous Movies Based on Top-Notch Plays ...](https://movies.allwomenstalk.com/marvelous-movies-based-on-top-notch-plays/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 

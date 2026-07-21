@@ -3,7 +3,7 @@ title: "21 Movies Based on Pulitzer Prize Winners ..."
 description: "The Road; The Hours; The Magnificent Ambersons; The Age of Innocence; Gone with the Wind; More ..."
 url: "https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 21 Movies Based on Pulitzer Prize Winners ...
@@ -138,15 +138,15 @@ How many have you seen? And how many of the books/plays have you read. Are you p
 
 ## Related Posts
 
-- [most secual movies](https://movies.allwomenstalk.com/the-most-sexually-charged-movies-of-all-time/)
-- [disney movie old](https://movies.allwomenstalk.com/old-disney-movies-you-should-watch-before-you-die/)
-- [horror movies you shouldn't watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [films about being single](https://love.allwomenstalk.com/the-best-movies-about-being-single/)
-- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
+- [horror movies you shouldn't watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
-- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
-- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
 - [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
+- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
+- [good movies to watch when sick](https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/)
+- [disney movie old](https://movies.allwomenstalk.com/old-disney-movies-you-should-watch-before-you-die/)
+- [most secual movies](https://movies.allwomenstalk.com/the-most-sexually-charged-movies-of-all-time/)
+- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
 - [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
 - [8 Movies Based on Books ...](https://movies.allwomenstalk.com/movies-based-on-books/)

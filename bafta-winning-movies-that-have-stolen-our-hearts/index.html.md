@@ -3,7 +3,7 @@ title: "7 2014 BAFTA Winning Movies That Have Stolen Our Hearts ..."
 description: "12 Years a Slave; Gravity; American Hustle; The Great Beauty (La Grande Bellezza); Frozen; More ..."
 url: "https://movies.allwomenstalk.com/bafta-winning-movies-that-have-stolen-our-hearts/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 2014 BAFTA Winning Movies That Have Stolen Our Hearts ...
@@ -42,16 +42,16 @@ Some of my favorite films from the 2014 BAFTA nominee list got a look in for awa
 
 ## Related Posts
 
-- [7 Eddie Murphy Movies That Always Brighten My Day ...](https://7fun.net/eddie-murphy-movies-that-always-brighten-my-day/)
+- [7 British Comedies You Need to Start Watching ...](https://7fun.net/british-comedies-you-need-to-start-watching/)
 - [7 Unmissable Documentaries That Will Change Your P...](https://movies.allwomenstalk.com/unmissable-documentaries-that-will-change-your-perspective-about-life/)
 - [7 Movies That Will Inspire You to Run ...](https://movies.allwomenstalk.com/movies-that-will-inspire-you-to-run/)
+- [7 Great Movies Set in High School You Will Enjoy ....](https://movies.allwomenstalk.com/great-movies-set-in-high-school-you-are-going-to-enjoy/)
+- [7 Eddie Murphy Movies That Always Brighten My Day ...](https://7fun.net/eddie-murphy-movies-that-always-brighten-my-day/)
+- [7 Silly Rom-Com Lies to Ignore Completeley ...](https://movies.allwomenstalk.com/silly-rom-com-lies-to-ignore-completeley/)
+- [7 Great Marvel Movies to Add to Your List ...](https://movies.allwomenstalk.com/great-marvel-movies-to-add-to-your-list/)
 - [7 Endlessly Funny Comedies to Watch when You Are F...](https://movies.allwomenstalk.com/endlessly-funny-comedies-to-watch-when-you-are-feeling-down/)
 - [7 Australian Movies the World Needs to Watch Immed...](https://movies.allwomenstalk.com/australian-movies-the-world-needs-to-watch-immediately/)
 - [best movies set in india](https://movies.allwomenstalk.com/awesome-movies-set-in-india/)
-- [7 Great Marvel Movies to Add to Your List ...](https://movies.allwomenstalk.com/great-marvel-movies-to-add-to-your-list/)
-- [7 British Comedies You Need to Start Watching ...](https://7fun.net/british-comedies-you-need-to-start-watching/)
-- [7 Silly Rom-Com Lies to Ignore Completeley ...](https://movies.allwomenstalk.com/silly-rom-com-lies-to-ignore-completeley/)
-- [7 Great Movies Set in High School You Will Enjoy ....](https://movies.allwomenstalk.com/great-movies-set-in-high-school-you-are-going-to-enjoy/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 - [8 Truly Inspirational Movies ...](https://movies.allwomenstalk.com/truly-inspirational-movies/)
 

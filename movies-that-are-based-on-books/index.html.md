@@ -3,7 +3,7 @@ title: "9 Movies That Are Based on Books ..."
 description: "Terms of Endearment; Fast Times at Ridgemont High; Die Hard; Fried Green Tomatoes; Breakfast at Tiffany's; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-are-based-on-books/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 9 Movies That Are Based on Books ...
@@ -59,15 +59,15 @@ As a serious bookworm, I love to read books that I know are on their way to beco
 
 ## Related Posts
 
+- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
 - [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
-- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
-- [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
-- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
-- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
 - [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
 - [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
-- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
+- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
+- [movies on science](https://movies.allwomenstalk.com/amazing-movies-about-science/)
+- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
 - [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)

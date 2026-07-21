@@ -3,7 +3,7 @@ title: "13 Famously Fumbled Movie Quotes That Will Surprise You ..."
 description: "Dirty Harry - “do You Feel Lucky, Punk?”; Star Wars Episode V: the Empire Strikes Back - “Luke, I Am Your Father.”; Apollo 13 - “Houston, We Have a Problem.”; Dracula (1931) - “I Want to Suck Your Blood.”; Snow White and the Seven Dwarfs - “ Mirror, Mirror on the Wall, Who is the Fairest of Them All?”; More ..."
 url: "https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 13 Famously Fumbled Movie Quotes That Will Surprise You ...
@@ -81,14 +81,14 @@ All of these movie quotes have always resonated with me whenever I thought about
 ## Related Posts
 
 - [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
 - [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
-- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
-- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
-- [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
-- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
 - [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
+- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
+- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
+- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
+- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
 - [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [10 Famous Movie One Liners ...](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)

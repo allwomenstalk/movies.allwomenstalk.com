@@ -3,7 +3,7 @@ title: "7 Ways Sex and the City Ruined Our Lives ..."
 description: "Designer Everything; Rent Control; Bra Optional; Bank of Charlotte; Luxury Galore; More ..."
 url: "https://movies.allwomenstalk.com/ways-sex-and-the-city-ruined-our-lives/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Ways Sex and the City Ruined Our Lives ...
@@ -44,16 +44,16 @@ Top Photo Source:
 
 ## Related Posts
 
-- [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
-- [how freaky are cancers](https://love.allwomenstalk.com/awesome-sex-tips-for-a-cancer/)
-- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
-- [my wife makes excuses not to sleep with me](https://love.allwomenstalk.com/excuses-not-to-have-sex-you-can-pull-when-you-are-not-in-the-mood/)
-- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
+- [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
 - [elbow kisses](https://love.allwomenstalk.com/erogenous-zones-to-explore/)
+- [how freaky are cancers](https://love.allwomenstalk.com/awesome-sex-tips-for-a-cancer/)
+- [soymonks life](https://food.allwomenstalk.com/worst-foods-for-your-sex-life/)
+- [i want to make it clear](https://love.allwomenstalk.com/ways-to-make-clear-you-just-want-sex/)
+- [gemini man scorpio woman](https://love.allwomenstalk.com/enchanting-sex-tips-for-a-gemini/)
 - [weird surveys](https://health.allwomenstalk.com/weird-things-we-learnt-from-sex-surveys-this-year/)
 - [why do people have one night stands](https://love.allwomenstalk.com/pros-cons-of-one-night-stands/)
-- [soymonks life](https://food.allwomenstalk.com/worst-foods-for-your-sex-life/)
-- [7 Surprisingly Common Sex Injuries ...](https://love.allwomenstalk.com/surprisingly-common-sex-injuries/)
+- [my wife makes excuses not to sleep with me](https://love.allwomenstalk.com/excuses-not-to-have-sex-you-can-pull-when-you-are-not-in-the-mood/)
+- [are sagittarius good in bed](https://love.allwomenstalk.com/beautiful-sex-tips-for-a-sagittarius/)
 - [8 of the Worst Reasons to Get Pregnant ...](https://parenting.allwomenstalk.com/8-of-the-worst-reasons-to-get-pregnant/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 

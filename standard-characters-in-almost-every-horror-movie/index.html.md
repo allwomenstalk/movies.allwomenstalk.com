@@ -3,7 +3,7 @@ title: "7 Standard Characters in Almost Every Horror Movie ..."
 description: "The Villain; The Wise Elder; The Ditzy Friend Who Won’t Make It; The Convincing Red Herring; The Diehard Survivalist; More ..."
 url: "https://movies.allwomenstalk.com/standard-characters-in-almost-every-horror-movie/"
 category: "movies"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Standard Characters in Almost Every Horror Movie ...
@@ -42,16 +42,16 @@ Don’t get me wrong. I love horror movies. There’s nothing like those brief m
 
 ## Related Posts
 
-- [weird talents](https://lifestyle.allwomenstalk.com/creative-talents-that-are-underrated-and-underappreciated/)
+- [cope 7tv](https://movies.allwomenstalk.com/tv-show-techniques-that-have-been-overused-and-abused/)
+- [tv shows that make you think](https://movies.allwomenstalk.com/brilliant-tv-shows-that-will-make-you-smarter/)
 - [good luck rabbit foot](https://lifestyle.allwomenstalk.com/common-good-luck-charms-and-their-origins/)
-- [moving commercials](https://lifestyle.allwomenstalk.com/sad-tv-commercials-guaranteed-to-make-you-cry/)
+- [inventions that were a mistake](https://lifestyle.allwomenstalk.com/amazing-inventions-that-were-mistakes-come-good/)
+- [weird talents](https://lifestyle.allwomenstalk.com/creative-talents-that-are-underrated-and-underappreciated/)
 - [sean bean movies where he lives](https://movies.allwomenstalk.com/times-sean-bean-has-died-on-screen/)
 - [best vsauce videos](https://lifestyle.allwomenstalk.com/most-fascinating-and-educational-youtube-channels-you-cant-miss/)
 - [did robin hood exist](https://celebs.allwomenstalk.com/amazingly-influential-figures-who-never-actually-existed/)
-- [cope 7tv](https://movies.allwomenstalk.com/tv-show-techniques-that-have-been-overused-and-abused/)
-- [tv shows that make you think](https://movies.allwomenstalk.com/brilliant-tv-shows-that-will-make-you-smarter/)
+- [moving commercials](https://lifestyle.allwomenstalk.com/sad-tv-commercials-guaranteed-to-make-you-cry/)
 - [i wish it was real](https://lifestyle.allwomenstalk.com/fictitious-things-we-wish-existed-in-real-life/)
-- [inventions that were a mistake](https://lifestyle.allwomenstalk.com/amazing-inventions-that-were-mistakes-come-good/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)
 - [5 Scary Monsters from Movies ...](https://twilight.allwomenstalk.com/5-scary-monsters-from-movies/)
 
