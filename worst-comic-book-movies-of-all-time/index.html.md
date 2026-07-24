@@ -3,7 +3,7 @@ title: "7 Worst Comic-book Movies of All Time ..."
 description: "Spawn (1997); Daredevil (2003); The Phantom (1996); Spider-Man 3 (2007); Barb Wire (1996); More ..."
 url: "https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Worst Comic\-book Movies of All Time ...
@@ -50,15 +50,15 @@ I’m sure some of you enjoyed these movies so I’m happy to hear why you disag
 ## Related Posts
 
 - [films for kids and adults](https://movies.allwomenstalk.com/kids-movies-you-need-to-rewatch-as-an-adult/)
-- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
 - [food fight film](https://movies.allwomenstalk.com/of-the-best-movie-food-fights-ever/)
-- [best tv shows you haven't seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
 - [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
 - [films like house bunny](https://movies.allwomenstalk.com/amazing-movies-to-watch-if-you-loved-mean-girls/)
-- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
-- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
 - [anti valentine's day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
-- [movies everyone needs to see](https://movies.allwomenstalk.com/movies-everyone-should-watch-before-graduation/)
+- [best tv shows you haven't seen](https://movies.allwomenstalk.com/tv-shows-you-shouldve-binge-watched-but-havent-yet/)
+- [movie theaters in eureka](https://travel.allwomenstalk.com/you-will-not-believe-how-old-these-movie-theaters-are/)
+- [tim roth game of thrones](https://movies.allwomenstalk.com/calling-all-game-of-thrones-fans-peter-dinklage-movies-you-need-to-see/)
+- [lgbt movies romance](https://movies.allwomenstalk.com/lgbt-movies-with-the-best-love-stories-youve-ever-seen/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 

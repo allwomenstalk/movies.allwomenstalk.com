@@ -3,7 +3,7 @@ title: "7 Awesome Old-School Vampire Flicks ..."
 description: "Vampire in Brooklyn; Fright Night; Shadow of the Vampire; The Lost Boys; From Dusk Till Dawn; More ..."
 url: "https://movies.allwomenstalk.com/awesome-old-school-vampire-flicks/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Awesome Old\-School Vampire Flicks ...
@@ -44,16 +44,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1731077978722494
 
 ## Related Posts
 
-- [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
-- [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
 - [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
-- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 - [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
-- [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
-- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
-- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
-- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [movies set in paris](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
+- [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
+- [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
+- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
+- [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
+- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
+- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
+- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Werewolf Movies ...](https://twilight.allwomenstalk.com/5-werewolf-movies/)
 

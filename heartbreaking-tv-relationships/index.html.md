@@ -3,7 +3,7 @@ title: "7 Heartbreaking TV Relationships ..."
 description: "Nate and Lisa; Hannah and Ben; Carrie and Aidan; Mya and Emily; Mark and Lexie; More ..."
 url: "https://movies.allwomenstalk.com/heartbreaking-tv-relationships/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Heartbreaking TV Relationships ...
@@ -42,16 +42,16 @@ It’s so strange how there are couples on this list that I don’t even like, b
 
 ## Related Posts
 
-- [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
+- [7 Astonishing Mental Disorders ...](https://health.allwomenstalk.com/astonishing-mental-disorders/)
 - [7 TV Characters I'd Love to Have in My Life ...](https://movies.allwomenstalk.com/tv-characters-id-love-to-have-in-my-life/)
+- [best tv series crime](https://celebs.allwomenstalk.com/best-crime-tv-shows/)
+- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
+- [8 Spring TV Finales to Look Forward to ...](https://movies.allwomenstalk.com/spring-tv-finales-to-look-forward-to/)
 - [scrubs musical episode](https://movies.allwomenstalk.com/favorite-scrubs-episodes/)
 - [7 Great Competition Shows ...](https://movies.allwomenstalk.com/great-competition-shows/)
 - [Top 8 Shows for Teens ...](https://lifestyle.allwomenstalk.com/top-shows-for-teens/)
-- [8 Spring TV Finales to Look Forward to ...](https://movies.allwomenstalk.com/spring-tv-finales-to-look-forward-to/)
-- [9 Unusual Ways to Be Buried ...](https://paranormal.allwomenstalk.com/unusual-ways-to-be-buried/)
-- [7 Shows I Could Live without ...](https://movies.allwomenstalk.com/shows-i-could-live-without/)
-- [7 Astonishing Mental Disorders ...](https://health.allwomenstalk.com/astonishing-mental-disorders/)
 - [7 Creative Cable Shows They Should Bring Back ...](https://movies.allwomenstalk.com/creative-cable-shows-they-should-bring-back/)
+- [7 Shows I Could Live without ...](https://movies.allwomenstalk.com/shows-i-could-live-without/)
 - [7 Recent Celebrity Breakups ...](https://celebs.allwomenstalk.com/recent-celebrity-breakups/)
 - [7 Celeb Hook Ups and Break Ups ...](https://allwomenstalk.com/7-celeb-hook-ups-and-break-ups/)
 

@@ -3,7 +3,7 @@ title: "7 Comic Books That Deserve to Be Movies ..."
 description: "The Stand; Hush; 1985; The Punisher; Daredevil; More ..."
 url: "https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Comic Books That Deserve to Be Movies ...
@@ -45,15 +45,15 @@ Top Photo Credit: [AnnaRenee](https://www.flickr.com/photos/annarenee/1977623638
 ## Related Posts
 
 - [good movie trilogies](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
-- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
-- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
-- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
+- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 - [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
 - [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
-- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
-- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
+- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [loreal le stylo smoky always pearly pink](https://movies.allwomenstalk.com/best-sports-movies-ever-made/)
+- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
+- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
+- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

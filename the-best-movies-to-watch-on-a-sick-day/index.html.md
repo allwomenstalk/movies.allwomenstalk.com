@@ -3,7 +3,7 @@ title: "The Best Movies to Watch when You're Home on a Sick Day 🤒 ..."
 description: "The Princess Bride; Office Space; Ferris Bueller’s Day off; Harold and Maude; The Royal Tenenbaums; More ..."
 url: "https://movies.allwomenstalk.com/the-best-movies-to-watch-on-a-sick-day/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # The Best Movies to Watch when You're Home on a Sick Day 🤒 ...
@@ -144,16 +144,16 @@ What’s your favorite sick day movie?
 
 ## Related Posts
 
-- [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
+- [country love movies](https://movies.allwomenstalk.com/movies-about-love-that-dont-actually-suck/)
 - [boss tattoo rocky horror](https://beauty.allwomenstalk.com/these-tattoos-will-impress-any-movie-buff/)
 - [movie that motivates you](https://movies.allwomenstalk.com/movies-thatll-motivate-you-to-be-a-better-person/)
-- [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
-- [country love movies](https://movies.allwomenstalk.com/movies-about-love-that-dont-actually-suck/)
-- [quarter life crisis movies](https://movies.allwomenstalk.com/your-quarter-life-crisis-as-told-in-the-movies/)
-- [horror movies you shouldn't watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
-- [funny movie scene](https://movies.allwomenstalk.com/the-best-i-quit-moments-from-the-movies/)
 - [seduces movie](https://movies.allwomenstalk.com/the-sexiest-seduction-scenes-from-movies/)
 - [films about being single](https://love.allwomenstalk.com/the-best-movies-about-being-single/)
+- [cutest couples in movies](https://movies.allwomenstalk.com/the-cutest-movie-couples-to-watch-on-valentines-day/)
+- [remakes of tv shows](https://movies.allwomenstalk.com/tv-shows-and-movies-that-definitely-deserve-a-reboot/)
+- [funny movie scene](https://movies.allwomenstalk.com/the-best-i-quit-moments-from-the-movies/)
+- [quarter life crisis movies](https://movies.allwomenstalk.com/your-quarter-life-crisis-as-told-in-the-movies/)
+- [horror movies you shouldn't watch alone](https://movies.allwomenstalk.com/dont-watch-these-scary-movies-while-youre-alone/)
 - [8 Movies to Watch when You Are Sad ...](https://movies.allwomenstalk.com/8-movies-to-watch-when-you-are-sad/)
 - [9 Excellent Movies to Watch This Valentine's Day ....](https://bilbr.com/9-cool-movies-to-watch-this-valentines-day/)
 

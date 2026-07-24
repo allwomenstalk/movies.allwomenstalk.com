@@ -3,7 +3,7 @@ title: "7 Iconic Movies Roles That Were Almost Played by Other Actors ..."
 description: "Will Smith as Neo; Mel Gibson in Gladiator; Jack Nicholson as the Godfather; Christopher Walken as Han Solo; John Travolta as Forrest Gump; More ..."
 url: "https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Iconic Movies Roles That Were Almost Played by Other Actors ...
@@ -45,15 +45,15 @@ Top Photo Credit: [tymorg85](https://www.flickr.com/photos/33194829@N08/45761171
 ## Related Posts
 
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
-- [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
-- [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
 - [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
-- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [older actress blonde hair](https://celebs.allwomenstalk.com/25-hottest-blonde-celebrities/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
+- [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
+- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
+- [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
 - [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [9 Iconic Roles in the Movies ...](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 

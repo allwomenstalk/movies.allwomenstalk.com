@@ -3,7 +3,7 @@ title: "7 Awesome Hollywood Remakes ..."
 description: "The Magnificent Seven; Scarface; The Man Who Knew Too Much; Cape Fear; The Departed; More ..."
 url: "https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Awesome Hollywood Remakes ...
@@ -44,15 +44,15 @@ Top image source: _bestgamewallpapers.com_
 
 ## Related Posts
 
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
-- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
-- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
-- [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
-- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
+- [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
+- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
+- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)

@@ -3,7 +3,7 @@ title: "Who's Your Money on?: 7 of the Top 2015 Oscar Nominees ..."
 description: "The Theory of Everything; American Sniper; Birdman; Foxcatcher; The Imitation Game; More ..."
 url: "https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/"
 category: "movies"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # Who's Your Money on?: 7 of the Top 2015 Oscar Nominees ...
@@ -42,16 +42,16 @@ Well, there you have it! These are just seven of the top 2015 Oscar nominees. To
 
 ## Related Posts
 
-- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
-- [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
-- [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
-- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
-- [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
-- [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
 - [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
+- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
 - [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
-- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
+- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
+- [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
+- [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
 - [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
+- [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
 - [Golden Globe 2011 Nominations ...](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [The Oscar Race is on...](https://celebs.allwomenstalk.com/the-oscar-race-is-on/)
 
