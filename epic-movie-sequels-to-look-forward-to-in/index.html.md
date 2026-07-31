@@ -3,7 +3,7 @@ title: "7 Epic Movie Sequels to Look Forward to in 2014 ..."
 description: "Captain America: the Winter Soldier; Mockingjay; 22 Jump Street; The Amazing Spiderman 2; X-Men: Days of Future past; More ..."
 url: "https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Epic Movie Sequels to Look Forward to in 2014 ...
@@ -42,15 +42,15 @@ There you have it! I'm super excited for this movie sequels this year. Which one
 
 ## Related Posts
 
-- [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
-- [chick flick actresses](https://movies.allwomenstalk.com/must-see-90s-chick-flicks/)
-- [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
-- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
-- [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
-- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
 - [watch room in rome movie](https://movies.allwomenstalk.com/best-movies-to-watch-before-you-go-to-italy/)
-- [controversial movies of all time](https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/)
+- [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
 - [best audrey hepburn film](https://movies.allwomenstalk.com/of-audrey-hepburns-greatest-films/)
+- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
+- [controversial movies of all time](https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/)
+- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
+- [chick flick actresses](https://movies.allwomenstalk.com/must-see-90s-chick-flicks/)
+- [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
+- [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
 - [danny masterson roseanne](https://movies.allwomenstalk.com/of-my-favorite-tv-and-movie-cast-reunions/)
 - [7 Awesome New Movies I Can't Wait to Come out ...](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 - [8 Awesome Movies I Can't Wait to See in 2013 ...](https://movies.allwomenstalk.com/awesome-movies-i-cant-wait-to-see-in/)

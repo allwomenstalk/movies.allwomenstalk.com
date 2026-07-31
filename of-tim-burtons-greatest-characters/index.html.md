@@ -3,7 +3,7 @@ title: "10 of Tim Burton's Greatest Characters ..."
 description: "Edward Scissorhands; Sally (the Nightmare before Christmas); Beetlejuice; Catwoman (Batman Returns); The Hatter (Alice in Wonderland); More ..."
 url: "https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 10 of Tim Burton's Greatest Characters ...
@@ -72,16 +72,16 @@ Which is your favorite Tim Burton movie and character? (They don’t have to be 
 
 ## Related Posts
 
-- [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
-- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
 - [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
+- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
 - [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
+- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
+- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
+- [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
 - [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
+- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
 - [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
 - [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
-- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
-- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
-- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)
 - [5 Interesting Twilight Characters ...](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
 

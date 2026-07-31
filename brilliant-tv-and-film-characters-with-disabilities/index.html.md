@@ -3,7 +3,7 @@ title: "7 Brilliant TV and Film Characters with Disabilities ..."
 description: "Gregory House, House; Becky, Glee; Raymond, Rain Man; Joe Swanson, Family Guy; Artie Abrams, Glee; More ..."
 url: "https://movies.allwomenstalk.com/brilliant-tv-and-film-characters-with-disabilities/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Brilliant TV and Film Characters with Disabilities ...
@@ -56,16 +56,16 @@ Do you think that we should see more disabled people on our screens and if so, h
 
 ## Related Posts
 
-- [britain's favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
+- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
+- [best dysfunctional family tv shows](https://movies.allwomenstalk.com/of-the-most-dysfunctional-tv-couples/)
 - [7 Best Fan Vidders on YouTube ...](https://celebs.allwomenstalk.com/best-fan-vidders-on-youtube/)
-- [bones nigel murray actor](https://movies.allwomenstalk.com/hot-guys-on-bones-who-take-our-breath-away/)
 - [comedians in serious roles](https://movies.allwomenstalk.com/of-the-best-dramatic-performances-by-comedians-thatll-blow-your-mind/)
 - [david attenbourough shows](https://movies.allwomenstalk.com/spectacular-wildlife-shows-by-david-attenborough/)
 - [lie to me canceled](https://movies.allwomenstalk.com/tv-shows-that-were-canceled-way-before-their-time/)
-- [financial crime tv series](https://movies.allwomenstalk.com/informative-true-crime-television-shows/)
-- [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
 - [tv shows from the 2000s](https://movies.allwomenstalk.com/staple-american-shows-of-the-2000s/)
-- [best dysfunctional family tv shows](https://movies.allwomenstalk.com/of-the-most-dysfunctional-tv-couples/)
+- [bones nigel murray actor](https://movies.allwomenstalk.com/hot-guys-on-bones-who-take-our-breath-away/)
+- [guilty pleasure apk](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-stop-watching/)
+- [britain's favourite christmas adverts](https://movies.allwomenstalk.com/of-the-best-british-christmas-adverts/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 

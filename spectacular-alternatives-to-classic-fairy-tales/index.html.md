@@ -3,7 +3,7 @@ title: "7 Spectacular Alternatives to Classic Fairy Tales ..."
 description: "Red Riding Hood; Tangled; Pretty Woman; Splash; Beastly; More ..."
 url: "https://movies.allwomenstalk.com/spectacular-alternatives-to-classic-fairy-tales/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Spectacular Alternatives to Classic Fairy Tales ...
@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/17087818)
 
 ## Related Posts
 
-- [summer fantasy reads](https://lifestyle.allwomenstalk.com/awesome-fantasy-novels-to-read-over-summer/)
 - [sci fi coffee table books](https://lifestyle.allwomenstalk.com/must-have-coffee-table-books/)
-- [kindle better than book](https://lifestyle.allwomenstalk.com/good-reasons-why-books-are-better-than-kindles/)
 - [make coffee table book](https://lifestyle.allwomenstalk.com/creative-coffee-table-books-to-own/)
-- [non-fiction lgbt](https://lifestyle.allwomenstalk.com/interesting-non-fiction-lgbt-reads/)
+- [kindle better than book](https://lifestyle.allwomenstalk.com/good-reasons-why-books-are-better-than-kindles/)
 - [kay scarpetta movies](https://lifestyle.allwomenstalk.com/reasons-to-read-the-kay-scarpetta-book-series/)
-- [rhoda janzen husband](https://lifestyle.allwomenstalk.com/funny-memoir-books-to-lighten-your-mood/)
-- [ray bradbury books](https://lifestyle.allwomenstalk.com/unmissable-ray-bradbury-novels/)
 - [children's books adults should read](https://lifestyle.allwomenstalk.com/childrens-books-to-read-as-an-adult/)
 - [book series matched](https://movies.allwomenstalk.com/book-series-to-read-if-you-loved-the-hunger-games/)
+- [rhoda janzen husband](https://lifestyle.allwomenstalk.com/funny-memoir-books-to-lighten-your-mood/)
+- [summer fantasy reads](https://lifestyle.allwomenstalk.com/awesome-fantasy-novels-to-read-over-summer/)
+- [ray bradbury books](https://lifestyle.allwomenstalk.com/unmissable-ray-bradbury-novels/)
+- [non-fiction lgbt](https://lifestyle.allwomenstalk.com/interesting-non-fiction-lgbt-reads/)
 - [7 Best from Rags to Riches Stories ...](https://celebs.allwomenstalk.com/best-from-rags-to-riches-stories/)
 - [7 of My Favorite Fairy Tales ...](https://allwomenstalk.com/7-of-my-favorite-fairy-tales/)
 

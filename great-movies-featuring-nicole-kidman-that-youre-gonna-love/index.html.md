@@ -3,7 +3,7 @@ title: "7 Great Movies Featuring Nicole Kidman That You're Gonna Love ..."
 description: "The Others; The Golden Compass; Bewitched; Practical Magic; Moulin Rouge!; More ..."
 url: "https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Great Movies Featuring Nicole Kidman That You're Gonna Love ...
@@ -57,15 +57,15 @@ Nicole Kidman is a fabulous actress and I can’t wait to see more of her films,
 ## Related Posts
 
 - [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
-- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
 - [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
-- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
-- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
 - [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
-- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
 - [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
+- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

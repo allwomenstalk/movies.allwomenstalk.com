@@ -3,7 +3,7 @@ title: "7 Saddest Scrubs Episodes and Moments That Still Leave Us in Tears"
 description: "\"My Screw Up\"; Laverne's Death; Season 8 Finale; \"My Old Lady\"; \"My Lunch\"; More ..."
 url: "https://movies.allwomenstalk.com/sad-moments-from-scrubs-that-left-me-in-tears/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Saddest Scrubs Episodes and Moments That Still Leave Us in Tears
@@ -66,16 +66,16 @@ There you have it! These iconic scenes from Scrubs still leave me in tears. Beli
 
 ## Related Posts
 
-- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
 - [what spider is the most poisonous](https://lifestyle.allwomenstalk.com/of-the-worlds-most-poisonous-spiders/)
 - [disney series movies](https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/)
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
-- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
 - [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
-- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
+- [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
 - [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
 - [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
+- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
+- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
+- [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
 - [7 Shocking Movie Moments ...](https://allwomenstalk.com/7-shocking-movie-moments/)
 - [7 Seriously Funny Bloopers ...](https://7fun.net/7-seriously-funny-bloopers/)
 

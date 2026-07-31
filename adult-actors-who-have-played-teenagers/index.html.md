@@ -3,7 +3,7 @@ title: "Gabrielle Union and Other Actors Who Were Adults Playing Teens ..."
 description: "Stockard Channing in Grease; Jennifer Grey in Dirty Dancing; Tobey Maguire in Spider-Man; Emilia Clarke in Game of Thrones; Sissy Spacek in Carrie; More ..."
 url: "https://movies.allwomenstalk.com/adult-actors-who-have-played-teenagers/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # Gabrielle Union and Other Actors Who Were Adults Playing Teens ...
@@ -68,16 +68,16 @@ What other adults who’ve played teenagers can you think of?
 
 ## Related Posts
 
-- [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
-- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
+- [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
+- [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
+- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
+- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
+- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
 - [ex disney singers](https://music.allwomenstalk.com/former-disney-stars-that-are-dominating-the-radio/)
 - [sexiest celebrities](https://celebs.allwomenstalk.com/sexy-male-celebrities-who-arent-white/)
-- [sam heughan sexiest man alive](https://celebs.allwomenstalk.com/the-sexiest-men-of/)
-- [worlds sexiest sportsmen](https://fitness.allwomenstalk.com/sizzling-sportsmen-of-the-hottest-male-athletes/)
-- [biggest names](https://parenting.allwomenstalk.com/the-biggest-baby-names-of/)
-- [heidi gum](https://celebs.allwomenstalk.com/celebrity-bubble-gum-girls/)
-- [gardening celebrities](https://gardening.allwomenstalk.com/celebrity-gardens-you-have-to-see-to-believe/)
-- [ian mcshane charlie and the chocolate factory](https://movies.allwomenstalk.com/brits-that-are-hits-in-us-tv-shows/)
+- [harrison ford tom hanks](https://lifestyle.allwomenstalk.com/celebs-that-would-make-a-better-president-than-kanye/)
+- [dick van patten net worth](https://celebs.allwomenstalk.com/the-celebs-we-said-a-sad-farewell-to-in/)
 - [Upcoming Movies for Hollywood Stars ...](https://allwomenstalk.com/upcoming-movies-for-hollywood-stars/)
 - [Hollywood Baby Secrets ...](https://allwomenstalk.com/hollywood-baby-secrets/)
 

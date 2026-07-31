@@ -3,7 +3,7 @@ title: "7 Dreadful Disney Sequels ..."
 description: "Cinderella II: Dreams Come True; Tarzan and Jane; Pocahontas II: Journey to a New World; The Hunchback of Notre Dame II; The Jungle Book 2; More ..."
 url: "https://movies.allwomenstalk.com/dreadful-disney-sequels/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Dreadful Disney Sequels ...
@@ -48,16 +48,16 @@ Top Photo Credit: _†hinhin_of_you_
 
 ## Related Posts
 
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
-- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
-- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
-- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
 - [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
 - [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

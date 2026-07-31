@@ -3,7 +3,7 @@ title: "8 Awesome TV Shows from the 80's ..."
 description: "The Facts of Life; Cheers; Family Ties; The Cosby Show; Miami Vice; More ..."
 url: "https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 8 Awesome TV Shows from the 80's ...
@@ -63,15 +63,15 @@ Did you watch any of these TV shows from the 80’s? Did I forget any of your fa
 ## Related Posts
 
 - [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
-- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
-- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
 - [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
 - [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
+- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
+- [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

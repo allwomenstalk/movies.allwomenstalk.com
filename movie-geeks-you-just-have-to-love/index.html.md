@@ -3,7 +3,7 @@ title: "9 Movie Geeks You Just Have to Love ..."
 description: "Steve Rogers in Captain America; Hermione Granger in Harry Potter; Garth Algar in Wayne's World; Shaun in Shaun of the Dead; Dr. Raymond Stantz, Dr. Egon Spengler and Louis Tully in Ghostbusters; More ..."
 url: "https://movies.allwomenstalk.com/movie-geeks-you-just-have-to-love/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 9 Movie Geeks You Just Have to Love ...
@@ -70,14 +70,14 @@ That’s it – my list of movie geeks. Now, I know you are all going to have pl
 
 - [movie night names](https://movies.allwomenstalk.com/awesome-movie-night-ideas-to-liven-up-your-night/)
 - [nip tuck on netflix](https://movies.allwomenstalk.com/best-tv-series-on-netflix-youve-gotta-watch/)
-- [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
-- [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
-- [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
-- [to live movie](https://movies.allwomenstalk.com/best-movie-worlds-youd-like-to-live-in/)
-- [films with joseph gordon-levitt](https://movies.allwomenstalk.com/great-and-intriguing-movies-featuring-joseph-gordon-levitt/)
-- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
 - [biographical movies](https://movies.allwomenstalk.com/best-biographical-movies-about-the-fabulous-and-famous/)
+- [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
+- [to live movie](https://movies.allwomenstalk.com/best-movie-worlds-youd-like-to-live-in/)
+- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
 - [what movie is the scariest movie of all time](https://movies.allwomenstalk.com/super-scary-movies-for-a-scare-your-pants-off-marathon/)
+- [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
+- [films with joseph gordon-levitt](https://movies.allwomenstalk.com/great-and-intriguing-movies-featuring-joseph-gordon-levitt/)
+- [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 

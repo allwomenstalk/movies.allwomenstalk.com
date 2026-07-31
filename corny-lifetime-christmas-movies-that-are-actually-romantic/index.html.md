@@ -3,7 +3,7 @@ title: "7 Corny Lifetime Christmas Movies That Are Actually Romantic ..."
 description: "The Christmas Card; Holly's Holiday; A Snow Globe Christmas; Holiday Switch; An Accidental Christmas; More ..."
 url: "https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Corny Lifetime Christmas Movies That Are Actually Romantic ...
@@ -42,16 +42,16 @@ If you want to watch holiday movies you've never seen before, you should turn on
 
 ## Related Posts
 
+- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
 - [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
+- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
 - [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
 - [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
-- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
-- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
-- [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
 - [it's true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
-- [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
 - [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
-- [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
+- [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
+- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
+- [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [8 Classic Romantic Comedies ...](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 

@@ -3,7 +3,7 @@ title: "7 Cancelled TV Shows That Should Definitely Come Back ..."
 description: "Boston Public, 2000-2004 (Fox); The Finder, 2012 (Fox); The 4400, 2004-2007 (USA Network); Firefly, 2002-2003 (FOX); Pushing Daisies, 2007-2009 (ABC); More ..."
 url: "https://movies.allwomenstalk.com/cancelled-tv-shows-that-should-definitely-come-back/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Cancelled TV Shows That Should Definitely Come Back ...
@@ -63,15 +63,15 @@ There are a lot of reasons a show gets cancelled - bad time slot, conflicts with
 
 ## Related Posts
 
-- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
-- [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
-- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
+- [tim burton personality type](https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/)
 - [best shows to learn history](https://movies.allwomenstalk.com/history-buffs-will-love-these-tv-series/)
 - [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
-- [tim burton personality type](https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/)
 - [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
-- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
 - [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
+- [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
+- [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
+- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
+- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
 - [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)

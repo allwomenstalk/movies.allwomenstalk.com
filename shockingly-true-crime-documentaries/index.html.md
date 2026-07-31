@@ -3,7 +3,7 @@ title: "7 Disturbing True Crime Documentaries You Need to Watch (Including Wanda
 description: "The Paradise Lost Trilogy; Capturing the Friedmans; The Thin Blue Line; The Trials of Darryl Hunt; Cocaine Cowboys; More ..."
 url: "https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/"
 category: "movies"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Disturbing True Crime Documentaries You Need to Watch \(Including Wanda Jean Allen\)
@@ -59,16 +59,16 @@ Some **crime documentaries** show the flaws in the justice system, while others 
 
 ## Related Posts
 
-- [celebs with ms](https://celebs.allwomenstalk.com/17th-annual-race-to-erase-ms/)
-- [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
-- [Leslie Nielsen Passes Away at 84 ...](https://celebs.allwomenstalk.com/leslie-nielsen-passes-away-at-84/)
-- [The Magical Journey across Middle Earth Continues ...](https://celebs.allwomenstalk.com/the-magical-journey-across-middle-earth-continues/)
-- [stella rose gahan height](https://celebs.allwomenstalk.com/gahan-has-a-laugh/)
-- [Justin and Jesse's Social Network Woes ...](https://celebs.allwomenstalk.com/justin-and-jesses-social-network-woes/)
-- [42 Photos of 21st Annual "a Time for Heroes" ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
-- [old tv shows worth watching](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
 - [hunger games bread scene](https://movies.allwomenstalk.com/hunger-games-highlights/)
+- [celebs with ms](https://celebs.allwomenstalk.com/17th-annual-race-to-erase-ms/)
+- [old tv shows worth watching](https://movies.allwomenstalk.com/old-tv-shows-worth-watching-again/)
+- [stella rose gahan height](https://celebs.allwomenstalk.com/gahan-has-a-laugh/)
+- [The Magical Journey across Middle Earth Continues ...](https://celebs.allwomenstalk.com/the-magical-journey-across-middle-earth-continues/)
+- [42 Photos of 21st Annual "a Time for Heroes" ...](https://celebs.allwomenstalk.com/21st-annual-a-time-for-heroes/)
+- [Justin and Jesse's Social Network Woes ...](https://celebs.allwomenstalk.com/justin-and-jesses-social-network-woes/)
 - [Top 10 TV Dramas ...](https://movies.allwomenstalk.com/top-tv-dramas/)
+- [Leslie Nielsen Passes Away at 84 ...](https://celebs.allwomenstalk.com/leslie-nielsen-passes-away-at-84/)
+- [8 Pretty Weekenders ...](https://bags.allwomenstalk.com/8-pretty-weekenders/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [8 Documentaries You Must See ...](https://allwomenstalk.com/8-documentaries-you-must-see/)
 
