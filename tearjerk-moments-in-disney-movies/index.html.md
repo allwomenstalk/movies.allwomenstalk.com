@@ -1,57 +1,69 @@
 ---
-title: "7 Tearjerk Moments in Disney Movies ..."
+title: "7 Heartbreaking Tearjerk Moments in Disney Movies That Still Make Us Cry"
 description: "When Oliver Roams the Streets of New York; When Eugene is Dying; When Dumbo’s Mother Sings \"Baby Mine\"; When Ray Dies; When Willow Tweed Leaves Todd in the Forest; More ..."
 url: "https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
-# 7 Tearjerk Moments in Disney Movies ...
+# 7 Heartbreaking Tearjerk Moments in Disney Movies That Still Make Us Cry
 
-Along with the fun, laughter, and singing, there are also tearjerk moments in Disney movies. I don’t think any other animated or cartoon filmmakers could top Disney’s ability to get their audience crying rivers, while still making the movie a classic that everyone loves! As much as I hate crying, I never get enough of Disney movies and their tearjerk moments.
+Along with the fun, laughter, and iconic musical numbers, there are unforgettable tearjerk moments in Disney movies that catch us completely off guard. No other animation studio can rival Disney’s unique ability to get audiences crying rivers of emotional tears while creating timeless cinematic classics. From heartbreaking character farewells to tender parent-child reunions, these emotional milestones define our childhood memories. Whether you are exploring our [classic movie archives](https://movies.allwomenstalk.com/) or rewatching your childhood favorites on [Disney+](https://www.disneyplus.com), these tearjerk moments remain just as powerful today as when we first saw them on the big screen.
+
+| Disney Movie | Heartbreaking Scene | Emotional Theme |
+| --- | --- | --- |
+| Tangled | Eugene Sacrifice | Selfless Love |
+| Dumbo | Baby Mine Lullaby | Motherly Love |
+| The Lion King | Mufasa Death | Grief and Loss |
 
 ## 1. When Oliver Roams the Streets of New York
 
-Every time I see "Oliver and Company," I secretly hope someone will adopt Oliver and I won’t have to see him endure the pouring rain, running from vicious stray dogs, and sleeping under trucks! Thankfully the song playing during this tearjerk moment is uplifting and gives assurance that things will get better for Oliver!
+Every time I watch _Oliver & Company_, I secretly hope that someone will step up and adopt Oliver so he doesn't have to endure the pouring rain, escape vicious stray dogs, or sleep alone under cold city trucks. This tender opening sequence captures the vulnerability of an abandoned kitten wandering the bustling streets of Manhattan. Thankfully, the uplifting song "Once Upon a Time in New York City" plays during this emotional sequence, offering reassurance that brighter days lie ahead for little Oliver. For official history on this 1988 animated feature, check out [Disney's D23 Vault](https://d23.com).
 
 ## 2. When Eugene is Dying
 
-I don’t know about you, but when I first saw "Tangled," this moment made me extremely angry. While fighting back tears, I sat in the first row of the theater loudly repeating, "He better not die!" As soon as Eugene whispered, "You were my new dream," the tears started flowing.
+When watching _Tangled_ in theaters, this scene triggered an immediate wave of shock and anger. While fighting back tears in the front row, I found myself quietly repeating, "He better not die!" As soon as Eugene cuts Rapunzel's golden hair to free her and whispers his final words, "You were my new dream," the tears flow uncontrollably. It is a selfless act of true love that remains one of Disney's most emotionally resonant climaxes, much like [Mufasa's heartbreaking sacrifice](#7) in _The Lion King_.
 
 ## 3. When Dumbo’s Mother Sings "Baby Mine"
 
-This is a sad moment. Dumbo goes to see his mom locked up, and then she sings to him while she cuddles and rocks him. The whole situation is unfortunate. When poor little Dumbo shed his tears and wiped his little eyes with his mom’s trunk, I couldn’t keep from tearing up.
+Many viewers often ask, **does Dumbo's mom die** in the movie? While Mrs. Jumbo does not die, her forced imprisonment and separation from her baby make for an agonizingly sad sequence. When little Dumbo visits his mother locked away in the circus wagon, she tenderly cradles and rocks him through the iron bars while singing "Baby Mine." Watching poor Dumbo shed tears and wipe his eyes with his mother's trunk is a tearjerk scene that guarantees waterworks every single time. Learn more about the film's legacy on [Wikipedia's Dumbo overview](https://en.wikipedia.org/wiki/Dumbo).
 
 ## 4. When Ray Dies
 
-I consider this a tearjerk moment that caught me completely off guard. In the "Princess and the Frog" when the Shadowman hit Ray, I was convinced that he would be fine in the end. I made myself believe Disney wouldn’t let him die, and maybe the lady from the bayou would give him a healing potion or something! When I realized Disney was going to let Ray die, I got a little choked up. When another bright star gleamed in the sky next to Evangeline, I felt a lot better and the sad tears turn into tears of joy.
+This emotional highlight in _The Princess and the Frog_ caught audience members completely off guard. When Dr. Facilier crushes Ray the firefly, it seemed unthinkable that Disney would actually kill off such a beloved, lighthearted companion. Many hoped the magical bayou priestess Mama Odie would step in with a healing potion to save him. Realizing that Ray was truly passing away brought a lump to everyone's throat. However, when a new bright star gleams in the night sky right beside his beloved Evangeline, the bittersweet tears transform into pure joy.
 
 ## 5. When Willow Tweed Leaves Todd in the Forest
 
-I can’t bear to watch the "Fox and the Hound" more than once every 6 years! The whole movie is a cry-fest. When Willow Tweed leaves Todd alone in the forest, it breaks my heart and crushes my soul! Todd gets into the car thinking he’s going on a fun ride, Willow Tweed reminisces on the good times they had, and then she takes off his collar and just leaves him in the forest! And if that’s not enough, it starts to rain! "Goodbye may seem forever, farewell is like the end, but in my heart is a memory, and there you'll always be." This is one of the saddest tearjerk moments in Disney movies!
+Rewatching _The Fox and the Hound_ is an absolute emotional test. The scene where Widow Tweed drives Tod into the forest to protect him from Amos Slade is soul-crushing. Tod sits happily in the car expecting a fun getaway, while Widow Tweed silently reminisces about their precious bond. Removing his collar and abandoning him in the woods as rain begins to fall is devastating. The poem recited during her drive home captures the heartache:
+
+- "Goodbye may seem forever..."
+- "...farewell is like the end..."
+- "...but in my heart is a memory, and there you'll always be."
+
+This unforgettable sequence stands out as one of the most poignant moments in animated film history, carrying an emotional weight similar to [Dumbo's separation from his mother](#3).
 
 ## 6. When Bambi Realizes His Mother is Dead
 
-You’d think when Bambi’s mother is shot the tears would arrive immediately after. Nope! The waterworks don’t appear until after Bambi celebrates that they made it unharmed, then realizes his mother isn’t still behind him. He keeps calling out to her, but there’s no answer. Finally, his father appears and says, "Your mother can’t be with you anymore." After that moment, I don’t know how anyone can keep it together!
+The tragedy in _Bambi_ does not hit immediately when the gunshot echoes through the forest. The true waterworks begin when Bambi excitedly reaches the thicket believing both he and his mother escaped safely, only to turn around and find the empty snowfield. He desperately searches and calls out, "Mother! Mother!", receiving only silence in response. When the Great Prince of the Forest appears through the snowfall to deliver the quiet words, "Your mother can’t be with you anymore," it seals one of the most heartbreaking scenes ever put to animation.
 
 ## 7. When Mufasa Dies
 
-This famous tearjerk moment is the saddest of them all. Little Simba is out in the gorge practicing his roaring, when a stampede comes his way. Mufasa comes to the rescue, and then things go from bad to worse. Mufasa finally saves Simba, but he gets himself stuck in the stampede. Then the glorious moment arrives when Mufasa jumps out of the stampede and onto the cliff. The music is intense and has everyone’s adrenaline racing! It looks like he is going to survive, but Scar helps him to his death, and lets him fall off the cliff. That had to be the most disturbing death I’d ever seen in my childhood.
+This iconic scene in _The Lion King_ remains the defining tearjerk moment for an entire generation. Young Simba is practicing his roar in the gorge when a wild wildebeest stampede traps him. Mufasa courageously leaps into danger to rescue his son, placing Simba safely onto a ledge. Just when it seems Mufasa has climbed to safety, Scar commits the ultimate betrayal, throwing Mufasa back into the rushing herd below. Seeing Simba nudge his father's body crying, "Wake up, Dad, we gotta go home," is a devastating cinematic memory. Read more details on [Wikipedia's Lion King entry](https://en.wikipedia.org/wiki/The_Lion_King).
 
-It’s crazy how Disney movies can make the audience feel so involved, even to the point of tears! Which of these tearjerk moments in Disney movies made you cry the most?
+It is extraordinary how Disney storytellers pull us into these animated worlds so deeply that we feel their sorrow firsthand. Which of these tearjerk moments in Disney movies made you cry the most? Share your thoughts and favorite Disney memories in the comments below!
 
 ## Related Posts
 
-- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
 - [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
-- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
-- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
 - [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
-- [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
+- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
 - [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
+- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
+- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
 - [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [7 Best Romantic Movie Scenes ...](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
 

@@ -3,7 +3,7 @@ title: "7 of the Best TV Friendships ..."
 description: "Ted, Barney, Marshall; The Doctor and Donna; Joey and Chandler; Sheldon and Penny; Wilson and House; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-tv-friendships/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 of the Best TV Friendships ...
@@ -42,16 +42,16 @@ I love talking about great TV friendships! They’re all so amazing for their ow
 
 ## Related Posts
 
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
+- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
 - [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
 - [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
-- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
-- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
 - [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
+- [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
-- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Most Popular Television Shows ...](https://allwomenstalk.com/7-most-popular-television-shows/)
 

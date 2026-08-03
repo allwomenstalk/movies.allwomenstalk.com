@@ -3,7 +3,7 @@ title: "20 Priceless SNL Sketches ..."
 description: "I Wish It Was Christmas Today; Wild and Crazy Guys; Celebrity Jeopardy; Buckwheat; Stuart Smalley; More ..."
 url: "https://movies.allwomenstalk.com/priceless-snl-sketches/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 20 Priceless SNL Sketches ...
@@ -94,16 +94,16 @@ SNL is an iconic show, it's been around forever. Some years the cast and the ske
 
 ## Related Posts
 
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
-- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
 - [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
+- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
+- [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
+- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
+- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
+- [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
 - [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
 - [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
-- [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
-- [house md character](https://movies.allwomenstalk.com/of-the-most-annoying-tv-characters/)
-- [best tv show friendships](https://movies.allwomenstalk.com/of-the-best-tv-friendships/)
 - [10 Funniest Songs Ever ...](https://allwomenstalk.com/10-funniest-songs-ever/)
 - [10 Funniest Animals ...](https://allwomenstalk.com/10-funniest-animals/)
 

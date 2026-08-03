@@ -3,7 +3,7 @@ title: "9 Words Invented by TV Shows ..."
 description: "Omnishambles; Muppet; Khaleesi; Platonish; Cromulent; More ..."
 url: "https://movies.allwomenstalk.com/words-invented-by-tv-shows/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 9 Words Invented by TV Shows ...
@@ -68,16 +68,16 @@ Because of their overwhelming popularity, TV shows can easily influence the lang
 
 ## Related Posts
 
+- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
+- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
+- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
+- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
+- [pickup line español](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
+- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
 - [funny words like shenanigans](https://funny.allwomenstalk.com/silly-sounding-words-that-you-should-use-more-often/)
 - [anti jokes list](https://funny.allwomenstalk.com/anti-jokes-that-will-make-you-burst-out-in-laughter/)
 - [latin motos](https://funny.allwomenstalk.com/funny-latin-phrases-youll-benefit-from-learning/)
 - [funny signs to make](https://funny.allwomenstalk.com/funny-signs-to-make-you-chuckle-and-scratch-your-head/)
-- [hermit the frog drawing](https://inspiration.allwomenstalk.com/quotes-from-kermit-the-frog-the-puppet-with-a-lot-to-say/)
-- [peter pan puns](https://funny.allwomenstalk.com/of-the-wittiest-puns-you-must-hear/)
-- [when something means something else](https://lifestyle.allwomenstalk.com/colloquial-words-that-used-to-mean-something-else/)
-- [pickup line español](https://funny.allwomenstalk.com/silly-pick-up-lines-in-latin/)
-- [old timer sayings funny](https://funny.allwomenstalk.com/silly-old-time-phrases-that-youll-love-using/)
-- [words teenagers use](https://teen.allwomenstalk.com/words-teenagers-love-to-use/)
 - [9 Foods Named after People ...](https://celebs.allwomenstalk.com/9-foods-named-after-people/)
 - [9 Interesting Facts about Mythology ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 

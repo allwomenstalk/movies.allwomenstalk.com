@@ -3,7 +3,7 @@ title: "9 Classic Halloween Movies to Enjoy Every Year ..."
 description: "Hocus Pocus; Casper; Beetlejuice; The Nightmare before Christmas; Corpse Bride; More ..."
 url: "https://movies.allwomenstalk.com/classic-halloween-movies-to-watch-this-month/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 9 Classic Halloween Movies to Enjoy Every Year ...
@@ -50,16 +50,16 @@ Well, there you have it. There are SO many other Halloween movies that are binge
 
 ## Related Posts
 
+- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
+- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
 - [inside of a cake pop](https://food.allwomenstalk.com/halloween-cake-pops-that-are-too-adorable-to-handle/)
-- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
+- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
+- [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
+- [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
 - [tattoos edgy](https://beauty.allwomenstalk.com/wear-these-temporary-tattoos-for-halloween/)
 - [husband and wife costume](https://diy.allwomenstalk.com/rock-one-of-these-fantastic-couples-costumes-this-halloween/)
-- [jack o lantern inspiration](https://diy.allwomenstalk.com/jack-o-lantern-inspiration-youll-love/)
 - [harley quinn sminkning](https://makeup.allwomenstalk.com/halloween-makeup-tutorials-to-test-out-on-the-31st/)
-- [sweet candy corn](https://food.allwomenstalk.com/candy-corn-recipes-to-make-halloween-a-scream/)
-- [halloween unicorn makeup](https://makeup.allwomenstalk.com/look-either-spooky-or-sweet-with-these-halloween-makeup-ideas/)
-- [crows decor](https://diy.allwomenstalk.com/delightfully-creepy-raven-or-crow-diy-decor-for-halloween/)
-- [stitched mouth face paint](https://makeup.allwomenstalk.com/halloween-makeup-101-how-to-create-a-stitched-mouth/)
+- [tv shows to dress up as group](https://fashion.allwomenstalk.com/halloween-costumes-to-wear-with-your-bffs/)
 - [10 Classic Old Christmas Movies You'll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 - [Top 10 Scary Movies of All Time ...](https://7fun.net/top-10-scary-movies-of-all-time/)
 

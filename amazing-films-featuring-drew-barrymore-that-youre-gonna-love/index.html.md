@@ -3,7 +3,7 @@ title: "7 Amazing Films Featuring Drew Barrymore That You're Gonna Love ..."
 description: "Riding in Cars with Boys; Music and Lyrics; Ever after: a Cinderella Story; Olive, the Other Reindeer; E.T. the Extra-Terrestrial; More ..."
 url: "https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Amazing Films Featuring Drew Barrymore That You're Gonna Love ...
@@ -42,16 +42,16 @@ Now that you know which Drew Barrymore films to check out, it’s time to cozy o
 
 ## Related Posts
 
-- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
-- [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
-- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
-- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [movie related to psychology](https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/)
+- [what movies is anne hathaway in](https://movies.allwomenstalk.com/great-anne-hathaway-movies-that-i-enjoyed/)
+- [movies about female friendship](https://movies.allwomenstalk.com/movies-about-friendship-to-watch-with-your-girls/)
+- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
+- [comedy specials netflix](https://funny.allwomenstalk.com/hilarious-stand-up-specials-available-on-netflix/)
+- [life is beautiful joshua](https://movies.allwomenstalk.com/great-moments-from-the-award-winning-film-life-is-beautiful/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 

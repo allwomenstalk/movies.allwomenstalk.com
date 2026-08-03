@@ -3,7 +3,7 @@ title: "7 Sweet TV Quotes about Love ..."
 description: "\"and if You Ever Decided to Leave Me I Would Go and Find You and Bring You Home Because You Would Be Wrong.\" – Mad about You; \"Because She's Your Lobster… It's a Known Fact That Lobsters Fall in Love and Mate for Life. You Know What? You Can Actually See Old Lobster Couples Walkin' around Their Tank, You Know, Holding Claws…\" – Friends; \"You and I Are Meant to Be Together. Period. the End. Cue Happy Ending Music.\" – Dawson’s Creek; \"I Was Just a Guy Who Had a Crush on a Girl, Who Had a Boyfriend. and I Had to do the Hardest Thing That I’ve Ever Had to do, Which Was Just to Wait… a Lot of People Told Me I Was Crazy to Wait This Long for a Date with a Girl I Work with but I Think, Even then I Knew That I Was Waiting for My Wife.\" – the Office; \"Together or Not at All.\" – Doctor Who; More ..."
 url: "https://movies.allwomenstalk.com/sweet-tv-quotes-about-love/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Sweet TV Quotes about Love ...
@@ -47,11 +47,11 @@ Trying to choose these quotes was extremely difficult because there are so many 
 - [unexpected valentine's day gifts](https://love.allwomenstalk.com/unexpected-valentines-day-gifts-for-your-lover/)
 - [singles on valentine's day](https://love.allwomenstalk.com/valentines-day-tips-for-singles/)
 - [valentines day decor ideas](https://diy.allwomenstalk.com/delightful-valentines-day-decor/)
-- [tell yourself i love you](https://lifestyle.allwomenstalk.com/ways-to-tell-yourself-i-love-you/)
+- [homemade valentines gift for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts-for-your-man/)
 - [10 pleasure coupons for him ideas](https://love.allwomenstalk.com/low-cost-ideas-for-valentines-day/)
 - [highly romantic scenes](https://movies.allwomenstalk.com/most-romantic-scenes-on-tv/)
 - [most aphrodisiac foods](https://food.allwomenstalk.com/amazing-aphrodisiac-meals-for-valentines-day/)
-- [homemade valentines gift for him](https://diy.allwomenstalk.com/diy-valentines-day-gifts-for-your-man/)
+- [tell yourself i love you](https://lifestyle.allwomenstalk.com/ways-to-tell-yourself-i-love-you/)
 - [7 Different Kinds of Love ...](https://allwomenstalk.com/7-different-kinds-of-love/)
 - [7 Ways to Say 'I Love You' ...](https://allwomenstalk.com/7-ways-to-say-i-love-you/)
 

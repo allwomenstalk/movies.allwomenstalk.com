@@ -3,7 +3,7 @@ title: "Christmas Movies We Love That Aren't Really Christmas Movies ..."
 description: "Die Hard; Batman Returns; The Lord of the Rings Trilogy; The Harry Potter Anthology; Iron Man 3; More ..."
 url: "https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # Christmas Movies We Love That Aren't Really Christmas Movies ...
@@ -48,16 +48,16 @@ There is something deliciously seasonal about Edward Scissorhands. It’s a beau
 
 ## Related Posts
 
-- [romance movies that will make you cry](https://movies.allwomenstalk.com/movies-like-notebook/)
-- [movies about supernatural](https://movies.allwomenstalk.com/movies-like-twilight-that-will-quench-your-thirst-for-the-supernatural/)
-- [best period dramas movies](https://movies.allwomenstalk.com/best-movie-costume-dramas-for-history-lovers/)
 - [netflix scam movies](https://movies.allwomenstalk.com/top-movies-about-online-dating-that-will-make-you-feel-all-the-feels/)
-- [movies similar to 27 dresses](https://movies.allwomenstalk.com/movies-like-bridesmaids/)
-- [movies about internet](https://movies.allwomenstalk.com/movies-for-internet-addicts/)
-- [movies like mean girls on netflix](https://movies.allwomenstalk.com/movies-like-the-duff-everyone-can-relate-to/)
-- [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
-- [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
 - [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
+- [movies about internet](https://movies.allwomenstalk.com/movies-for-internet-addicts/)
+- [movies similar to 27 dresses](https://movies.allwomenstalk.com/movies-like-bridesmaids/)
+- [romance movies that will make you cry](https://movies.allwomenstalk.com/movies-like-notebook/)
+- [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
+- [best period dramas movies](https://movies.allwomenstalk.com/best-movie-costume-dramas-for-history-lovers/)
+- [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
+- [movies like mean girls on netflix](https://movies.allwomenstalk.com/movies-like-the-duff-everyone-can-relate-to/)
+- [movies about supernatural](https://movies.allwomenstalk.com/movies-like-twilight-that-will-quench-your-thirst-for-the-supernatural/)
 - [8 Touching Holiday Movies You Can't Miss ...](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
 - [10 Classic Old Christmas Movies You'll Love ...](https://movies.allwomenstalk.com/classic-old-christmas-movies-youll-love/)
 

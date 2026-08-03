@@ -1,63 +1,85 @@
 ---
-title: "7 Disney Movies Set in the UK ..."
+title: "7 Magical Disney Movies Set in the UK: From London to Scotland"
 description: "Candleshoe (1977); 101 Dalmatians (1996); Brave (2012); The Sword in the Stone (1963); One of Our Dinosaurs is Missing (1975); More ..."
 url: "https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
-# 7 Disney Movies Set in the UK ...
+# 7 Magical Disney Movies Set in the UK: From London to Scotland
 
-There are a number of Disney movies set in the UK. They include live action and animations. They include classic children’s stories and legends, and stories written for the screen. They are among some of the oldest productions and also the most recent. Let’s see how many of the Disney movies set in the UK you have seen.
+There are a number of Disney movies set in the UK, spanning timeless live-action favorites and beloved animated classics. Whether you want to explore what Disney films are set in England, discover Disney movies set in Scotland, or dive into Disney movies that take place in London, the United Kingdom has provided a rich backdrop for magical storytelling across generations. These films range from some of the oldest Disney animated movies to modern cinematic adventures. Let’s see how many of these iconic Disney movies set in the UK you have watched!
+
+| Movie Title | Setting / Region | Release Year |
+| --- | --- | --- |
+| Candleshoe | English Countryside | 1977 |
+| 101 Dalmatians | London, England | 1996 |
+| Brave | Scottish Highlands | 2012 |
+| The Sword in the Stone | Medieval England | 1963 |
+| One of Our Dinosaurs is Missing | London & Countryside | 1975 |
+| Alice in Wonderland | English Countryside & Wonderland | 1951 |
+| Mary Poppins | Edwardian London | 1964 |
 
 ## 1. Candleshoe (1977)
 
 On iTunes at [itunes.apple.com](https://itunes.apple.com/us/movie/candleshoe/id299438789)
-Starring Jodie Foster as an American teenager who comes to England to hustle an old lady and find some hidden treasure, Candleshoe is a classic tale where the baddies get their comeuppance. It is one of the live action Disney movies set in the UK and enjoys the setting of a grand old house in the charming countryside. The great English actor David Niven steals the show with his multiple characters.
+Starring a young Jodie Foster as Casey Brown, an American teenager who travels to England to hustle an elderly noblewoman while searching for hidden treasure inside a stately estate, _Candleshoe_ remains a quintessential entry among live action Disney movies. Set against the rolling landscapes of the English countryside, this film delivers heartwarming charm where the villains inevitably get their comeuppance. Legendary British actor David Niven delivers a tour-de-force performance, portraying multiple hilarious characters that elevate the entire adventure. If you enjoy rich countryside settings like those found in [Disney movies set in Scotland](#3), this cozy mystery is a delightful starting point.
 
 ## 2. 101 Dalmatians (1996)
 
 On iTunes at [itunes.apple.com](https://itunes.apple.com/us/movie/101-dalmatians/id283634018)
-There are various versions to choose from but I’m going with the live action one. Basically because this one is the one in which you see lots of London. I will admit though, I do love the animated version because those puppies are so darned cute. Who can resist them as they escape the evil clutches of arch villainess Cruella De Vil.
+There are various versions to choose from, but Stephen Herek’s 1996 live-action adaptation stands out as one of the quintessential Disney movies set in London. Glenn Close delivers an unforgettable, iconic performance as Cruella De Vil, hunting down spotted puppies across bustling London landmarks and snowy countryside estates. Although the 1961 animated original ranks among the oldest Disney animated movies with timeless charm, seeing real-life spots around London makes this version particularly engaging for fans curious about British settings. Much like the soaring views of London seen in [Mary Poppins](#7), the city backdrop here brings an extra layer of magic to the puppy rescue mission.
 
 ## 3. Brave (2012)
 
 On iTunes at [itunes.apple.com](https://goo.gl/aq0UHW)
-One of the more recent Disney movies set in the UK, Brave introduces us to the feisty, red haired Princess Merida, a young woman determined to follow her own path in life despite the obstacles of tradition and family. Featuring the voices of Scotland’s own sons, Billy Connelly and Robbie Coltrane, and a whole host of familiar British names, Brave is a rip roaring adventure in a land of myth and legend.
+As one of the most celebrated Disney movies set in Scotland, _Brave_ introduces audiences to Princess Merida, a headstrong archer determined to carve out her own destiny despite ancient traditions. Pixar’s animation captures the mist-shrouded Highlands, stone circles, and dense forests with detail. Featuring voice work from Scottish legends Billy Connolly and Robbie Coltrane alongside an all-star British cast, _Brave_ is a high-spirited adventure in a land of myth and legend. You can explore official Scottish heritage settings on [VisitScotland](https://www.visitscotland.com), which inspired many of the film’s atmospheric landscapes.
+
+Key elements that make _Brave_ an outstanding Scottish tale include:
+
+- Authentic Scottish voice talent and traditional Gaelic musical influences.
+- Visually striking landscapes inspired by ancient standing stones and medieval castles.
+- An empowering story centered on bravery, independence, and family reconciliation.
 
 ## 4. The Sword in the Stone (1963)
 
 On iTunes at [itunes.apple.com](https://itunes.apple.com/us/movie/the-sword-in-the-stone/id297917390)
-I had to look twice when I saw that this movie is now more than 50 years old. The story is a familiar one, and one we’ve seen in many incarnations on the small and big screen down the years. The Sword in the Stone is the story of the boy Arthur Pendragon who would grow up into the legendary king thanks to the education and guiding hand of the wizard Merlin.
+When considering what Disney films are set in England, _The Sword in the Stone_ is a legendary classic that reimagines Arthurian folklore. Released over six decades ago, it remains one of the most beloved animated Disney movies set in England. The narrative follows young Arthur Pendragon—affectionately nicknamed "Wart"—under the eccentric tutelage of the wizard Merlin and his educated owl Archimedes. Through whimsical transformations into animals, Arthur learns essential life lessons before fulfilling his destiny to draw Excalibur from the stone. The magical education in this story shares thematic parallels with the fantastical journey seen in [Alice in Wonderland](#6).
 
 ## 5. One of Our Dinosaurs is Missing (1975)
 
 On iTunes at [itunes.apple.com](https://itunes.apple.com/us/movie/one-our-dinosaurs-is-missing/id443373839)
-This is one of my favorite Disney movies ever and would be even if it wasn’t set in the UK. It is the madcap adventure of a group of British nannies saving a microfilm from some Chinese secret agents. Only trouble is, the microfilm is hidden in a dinosaur at the British Museum. Poor old dino gets put in a truck and is driven around the streets of London and the British countryside as the nannies save the day. Peter Ustinov is hilarious as the head Chinese agent.
+A wildly eccentric comedy, _One of Our Dinosaurs is Missing_ is a standout adventure among live action Disney movies set in the UK. The plot revolves around a brave group of British nannies who go to extraordinary lengths to save a secret microfilm concealed inside a massive Diplodocus skeleton. The dinosaur fossil is taken right out of London's world-famous [British Museum](https://www.britishmuseum.org) and hauled across the streets of London and into the quiet English countryside in a frantic getaway. Sir Peter Ustinov brings hilarious comedic energy to his role, making this heist chase a memorable vintage family film.
 
 ## 6. Alice in Wonderland (1951)
 
 On iTunes at [itunes.apple.com](https://itunes.apple.com/us/movie/alice-in-wonderland-1951/id412102121)
-Technically the adventures of Alice don’t take place in the UK, because practically the entire story takes place in Wonderland, a magical place inhabited by a real motley crew of characters. But we know that Alice lives in England and we know it’s truly amazing what tricks a bored child can get up to on a sunny afternoon. Do you prefer the animated version or the Johnny Depp movie?
+While Alice's whimsical adventures unfold primarily within the surreal realm of Wonderland, the framing story takes place in the tranquil English countryside. Adapted from Lewis Carroll's classic British literature, this 1951 masterpiece is counted among the oldest Disney animated movies. It perfectly captures how a curious young English girl daydreaming on a sunny afternoon can unlock an unforgettable world of White Rabbits, Mad Hatters, and Cheshire Cats. Fans of magical British storytelling who appreciate historical myths like [Arthurian legend in The Sword in the Stone](#4) will find endless charm in Alice's timeless dreamscape.
+
+Why _Alice in Wonderland_ remains an enduring classic:
+
+- Vibrant surrealist artwork led by legendary Disney concept artist Mary Blair.
+- Memorable songs and iconic characters adapted directly from classic English literature.
+- A playful celebration of imagination, curiosity, and childlike wonder.
 
 ## 7. Mary Poppins (1964)
 
 On iTunes at [itunes.apple.com](https://itunes.apple.com/us/movie/mary-poppins/id749302475)
-It was 50 years ago that Mary Poppins flew into the lives of the Banks family and hearts of millions of children around the world. And 50 years later, we’re still enraptured as the streets and rooftops of London ring with the sounds of songs we can’t but help sing along to. Seriously, is there a child (or even an adult) on Earth who doesn’t have Supercalifragilisticexpialidocious in their vocabulary?
+No collection of Disney movies set in London would be complete without _Mary Poppins_. Decades after its release, Julie Andrews and Dick Van Dyke continue to enchant audiences as the magical nanny and her chimney-sweep companion bring joy to 17 Cherry Tree Lane. From dancing on London rooftops to jumping into sidewalk chalk drawings, this groundbreaking film won five Academy Awards and remains a crown jewel of British-set cinema. Official updates on Disney classics and streaming details can be found on [Disney+](https://www.disneyplus.com).
 
-So come let’s go fly a kite and then come back to applaud the genius entertainment of the Disney movies set in the UK. Do let me know of Disney movies set in your own country or one you want to visit.
+Whether you are soaring high over London rooftops or trekking through the Scottish Highlands, these Disney films set in the UK offer extraordinary storytelling for movie lovers of all ages. Which of these Disney movies set in England, Scotland, or London is your personal favorite? Let us know in the comments below, or share which UK-based film you plan to watch next!
 
 ## Related Posts
 
+- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
+- [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
+- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
+- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
 - [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
 - [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
-- [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
 - [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
-- [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
-- [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
 - [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
-- [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
 - [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 - [10 Amazing British Movie Stars ...](https://movies.allwomenstalk.com/amazing-british-movie-stars/)

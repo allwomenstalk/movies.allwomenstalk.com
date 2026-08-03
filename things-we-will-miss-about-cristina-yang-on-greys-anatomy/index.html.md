@@ -3,7 +3,7 @@ title: "7 Things We Will Miss about Cristina Yang on Grey's Anatomy ..."
 description: "Her Sarcasm; Her Friendship with Meredith; Her One-liners; Her Medical Brilliance; Her Honesty; More ..."
 url: "https://movies.allwomenstalk.com/things-we-will-miss-about-cristina-yang-on-greys-anatomy/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Things We Will Miss about Cristina Yang on Grey's Anatomy ...
@@ -42,16 +42,16 @@ I think we still have yet to process the fact that Cristina Yang is no longer pa
 
 ## Related Posts
 
-- [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
-- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
-- [tv shows like impractical jokers](https://funny.allwomenstalk.com/comical-tv-shows-to-watch-if-youre-looking-for-a-laugh/)
 - [most watched ted talks](https://inspiration.allwomenstalk.com/most-watched-ted-talks-to-stir-up-your-curiosity/)
+- [paintbrush lollipops 90s](https://food.allwomenstalk.com/lollipops-that-90s-kids-grew-up-on/)
 - [i never went to college](https://money.allwomenstalk.com/impressive-entrepreneurs-who-never-went-to-college/)
-- [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
-- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
-- [popular podcasts radiolab](https://movies.allwomenstalk.com/radiolab-podcasts-you-must-listen-to/)
-- [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
+- [tv shows like impractical jokers](https://funny.allwomenstalk.com/comical-tv-shows-to-watch-if-youre-looking-for-a-laugh/)
 - [all that spin offs](https://movies.allwomenstalk.com/spin-off-shows-that-are-pretty-amazing/)
+- [alan partridge farmers](https://movies.allwomenstalk.com/of-alan-partridges-craziest-moments/)
+- [amazing tv shows](https://movies.allwomenstalk.com/amazing-tv-shows-for-hiatus-season/)
+- [rick mayle](https://celebs.allwomenstalk.com/best-performances-of-rik-mayall-as-a-tribute-to-a-comedy-great/)
+- [popular podcasts radiolab](https://movies.allwomenstalk.com/radiolab-podcasts-you-must-listen-to/)
+- [teen witch kiss scene](https://love.allwomenstalk.com/of-the-cutest-kissing-scenes-recently-on-television/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 - [5 Things I Love about the Twilight Series ...](https://twilight.allwomenstalk.com/5-things-i-love-about-the-twilight-series/)
 

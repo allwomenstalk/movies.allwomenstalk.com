@@ -3,7 +3,7 @@ title: "9 of Dr. Cristina Yang's Best Moments on Grey's Anatomy ..."
 description: "You're My Person; Dancing It out; The Runaway Groom; The Vigil; Venting in the Vent; More ..."
 url: "https://movies.allwomenstalk.com/of-dr-cristina-yangs-best-moments-on-greys-anatomy/"
 category: "movies"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 9 of Dr. Cristina Yang's Best Moments on Grey's Anatomy ...
@@ -50,16 +50,16 @@ Cristina has always been a standout on the show, and I'll miss seeing her every 
 
 ## Related Posts
 
-- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
-- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
-- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
-- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
-- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
 - [vanessa hudgens cute](https://celebs.allwomenstalk.com/sibling-love-vanessa-hudgens-cutest-pics-with-stella/)
-- [manuel bonaduce](https://celebs.allwomenstalk.com/matt-bomer-set-to-guest-star-on-ahs/)
-- [parks and recreation bloopers season 3](https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/)
-- [vanessa hudgens heels](https://fashion.allwomenstalk.com/best-vanessa-hudgens-looks/)
 - [lorde without makeup](https://celebs.allwomenstalk.com/dare-to-go-bare-with-inspiration-from-lordes-makeup-free-selfies/)
+- [eminem date rihanna](https://music.allwomenstalk.com/eminem-and-rihanna-kill-it-in-detroit/)
+- [manuel bonaduce](https://celebs.allwomenstalk.com/matt-bomer-set-to-guest-star-on-ahs/)
+- [mindy kaling tom cruise](https://celebs.allwomenstalk.com/mindy-kalings-behind-the-scenes-set-photos/)
+- [Kudos to Keira for Taking a Stand ...](https://celebs.allwomenstalk.com/kudos-to-keira-for-taking-a-stand/)
+- [vanessa hudgens heels](https://fashion.allwomenstalk.com/best-vanessa-hudgens-looks/)
+- [parks and recreation bloopers season 3](https://celebs.allwomenstalk.com/amy-poehler-will-keep-you-laughing-in-new-parks-rec-gag-reel/)
+- [dave grohl ice bucket challenge](https://celebs.allwomenstalk.com/the-foo-fighters-re-enact-carrie-for-the-als-challenge-and-its-awesome/)
+- [emma watson elle](https://celebs.allwomenstalk.com/emma-watson-shines-on-new-elle-cover-while-discussing-feminism/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [9 Memorable TV Theme Songs ...](https://lifestyle.allwomenstalk.com/memorable-tv-theme-songs/)
 
