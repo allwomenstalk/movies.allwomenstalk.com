@@ -3,7 +3,7 @@ title: "7 Movies That Rocked 2014 ..."
 description: "The Grand Budapest Hotel; HER; Guardians of the Galaxy; How to Train Your Dragon 2; Fury; More ..."
 url: "https://movies.allwomenstalk.com/movies-that-rocked/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Movies That Rocked 2014 ...
@@ -43,15 +43,15 @@ What’s your favorite movie from 2014? Why is it your favorite?
 ## Related Posts
 
 - [movies that motivate you](https://movies.allwomenstalk.com/movies-that-will-boost-your-energy/)
-- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
-- [goofy christmas children & family films](https://movies.allwomenstalk.com/hilarious-holiday-movies-to-watch-with-the-family/)
-- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
-- [the santa clause villains](https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/)
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
 - [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
+- [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
 - [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
+- [goofy christmas children & family films](https://movies.allwomenstalk.com/hilarious-holiday-movies-to-watch-with-the-family/)
+- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
 - [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
+- [the santa clause villains](https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

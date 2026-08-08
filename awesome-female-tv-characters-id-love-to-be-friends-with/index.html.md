@@ -3,7 +3,7 @@ title: "10 Awesome Female TV Characters I'd Love to Be Friends with ..."
 description: "Lily Aldren; Jessica Day; Kenzi; Phoebe Buffay; Veronica Mars; More ..."
 url: "https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 10 Awesome Female TV Characters I'd Love to Be Friends with ...
@@ -54,13 +54,13 @@ This list was a lot harder to write than I thought it would be! I had such a har
 
 ## Related Posts
 
+- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
+- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
+- [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
+- [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
 - [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
 - [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
-- [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
-- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
 - [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
-- [misty copeland feet](https://celebs.allwomenstalk.com/famous-ballerinas-you-should-know/)
-- [girl role models](https://parenting.allwomenstalk.com/female-role-models-for-your-daughter/)
 - [oscar mbo child](https://celebs.allwomenstalk.com/female-watch-brand-ambassadors/)
 - [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
 - [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)

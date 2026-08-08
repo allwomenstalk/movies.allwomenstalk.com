@@ -3,7 +3,7 @@ title: "8 of My Favourite Movie Characters ..."
 description: "Aragorn; Jack Sparrow; Marty McFly and Doc Brown; Indiana Jones; Nicolas Angel; More ..."
 url: "https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 8 of My Favourite Movie Characters ...
@@ -81,14 +81,14 @@ Top image source: [mariapaola.edublogs.org](https://mariapaola.edublogs.org/file
 ## Related Posts
 
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
-- [color stylo timeless spark](https://movies.allwomenstalk.com/best-movie-bromances/)
-- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
-- [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
-- [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
 - [topless scenes in movies](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
 - [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
-- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 - [most pirated movie of all time](https://movies.allwomenstalk.com/most-pirated-movies/)
+- [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
+- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
+- [color stylo timeless spark](https://movies.allwomenstalk.com/best-movie-bromances/)
+- [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
+- [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
 - [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
 - [8 Most Memorable Silent Movie Stars ...](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)

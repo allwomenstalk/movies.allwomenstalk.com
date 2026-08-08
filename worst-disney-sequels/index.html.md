@@ -3,7 +3,7 @@ title: "7 Worst Disney Sequels ..."
 description: "Lady and the Tramp II: Scamp's Adventure; Aladdin: the Return of Jafar; The Fox and the Hound 2; Beauty and the Beast: the Enchanted Christmas; Peter Pan 2: Return to Neverland; More ..."
 url: "https://movies.allwomenstalk.com/worst-disney-sequels/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Worst Disney Sequels ...
@@ -42,16 +42,16 @@ Sad to say, I own most of these horrible sequels because, like say, I was a trie
 
 ## Related Posts
 
-- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
-- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
-- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
-- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
-- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
-- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
 - [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
 - [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
+- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
+- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
+- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
+- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
+- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

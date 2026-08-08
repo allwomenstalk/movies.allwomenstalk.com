@@ -3,7 +3,7 @@ title: "7 One Tree Hill Stars and Where They Are Now ..."
 description: "Chad Michael Murray; Sophia Bush; Bethany Joy Lenz; James Lafferty; Hilarie Burton; More ..."
 url: "https://movies.allwomenstalk.com/one-tree-hill-stars-and-where-they-are-now/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 One Tree Hill Stars and Where They Are Now ...
@@ -56,16 +56,16 @@ Their One Tree Hill days might be over, but the fans still have their eyes peele
 
 ## Related Posts
 
-- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
-- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
 - [jessica lucas body](https://celebs.allwomenstalk.com/ridiculously-talented-canadian-stars-to-watch-out-for/)
 - [harry potter cast where are they now](https://movies.allwomenstalk.com/harry-potter-cast-members-and-where-they-are-now/)
-- [lisa kudrow iq](https://celebs.allwomenstalk.com/celebrities-who-are-more-intelligent-than-you-think/)
-- [actors who haven't won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
-- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
 - [movies actors regret](https://movies.allwomenstalk.com/actors-who-regret-their-roles/)
-- [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
+- [actors who haven't won an oscar](https://movies.allwomenstalk.com/amazing-actors-who-are-yet-to-win-an-oscar/)
 - [what instruments can taylor swift play](https://music.allwomenstalk.com/pop-stars-who-can-also-play-an-instrument/)
+- [celebrities who are also artists](https://celebs.allwomenstalk.com/celebrities-who-are-also-artists/)
+- [celebrities with the best hair](https://celebs.allwomenstalk.com/gorgeous-celebrities-with-the-best-hair/)
+- [kijjimb](https://celebs.allwomenstalk.com/of-the-cutest-celeb-throwback-photos/)
+- [celebrity ad campaigns](https://fashion.allwomenstalk.com/amazing-celebrity-ad-campaigns-that-we-love/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Celebrities Who Dropped out of High School ...](https://allwomenstalk.com/8-celebrities-that-dropped-out-of-highschool/)
 

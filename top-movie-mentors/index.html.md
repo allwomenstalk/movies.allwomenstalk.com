@@ -3,7 +3,7 @@ title: "8 Influential Movie Mentors Who Shaped Iconic Stories"
 description: "Yoda from Star Wars; Professor Charles Xavier from X-Men; Gordon Gekko from Wall Street; Mr. Miyagi from The Karate Kid; More ..."
 url: "https://movies.allwomenstalk.com/top-movie-mentors/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 8 Influential Movie Mentors Who Shaped Iconic Stories
@@ -28,16 +28,16 @@ Mr. Miyagi remains the gold standard for movie mentors. His famous "wax on, wax 
 
 ## Related Posts
 
-- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
 - [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
 - [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
-- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
+- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [move you die movie](https://movies.allwomenstalk.com/powerful-movie-scenes-that-will-move-you/)
 - [funny movies to watch with mom](https://movies.allwomenstalk.com/great-movies-to-watch-with-your-mom/)
+- [best movies to motivate you to workout](https://movies.allwomenstalk.com/movies-to-inspire-you-to-get-fit/)
 - [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [natalie.portman movies](https://movies.allwomenstalk.com/great-natalie-portman-movies/)
-- [mean girls musical movie trailor](https://movies.allwomenstalk.com/movies-that-should-be-broadway-musicals/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 

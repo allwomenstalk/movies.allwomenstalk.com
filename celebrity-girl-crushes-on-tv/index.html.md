@@ -3,7 +3,7 @@ title: "10 Celebrity Girl Crushes on TV ..."
 description: "Temperance Brennan (Bones); Joan Harris; Phoebe Halliwell; Hannah/Belle; Aria Montgomery; More ..."
 url: "https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 10 Celebrity Girl Crushes on TV ...
@@ -54,14 +54,14 @@ I know for a fact that there are a lot that I missed! There are so many amazing 
 
 ## Related Posts
 
-- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
-- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
+- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [engaged celebrities](https://wedding.allwomenstalk.com/recently-engaged-celebrities/)
 - [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
 - [teen role model](https://celebs.allwomenstalk.com/good-celebrity-teen-role-models/)
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [who looks like cillian murphy](https://lifestyle.allwomenstalk.com/famous-introverts/)
 - [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
-- [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [celebrity overexposure](https://celebs.allwomenstalk.com/overexposed-celebrities-im-sick-of/)
 - [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
 - [Top 10 Sexy Women in Hollywood ...](https://movies.allwomenstalk.com/top-10-sexy-women-in-hollywood/)

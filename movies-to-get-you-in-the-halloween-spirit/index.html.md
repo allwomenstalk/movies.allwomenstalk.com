@@ -3,7 +3,7 @@ title: "8 Movies to Get You in the Halloween Spirit ..."
 description: "Halloween Town; Hocus Pocus; Coraline; The Nightmare before Christmas; Corpse Bride; More ..."
 url: "https://movies.allwomenstalk.com/movies-to-get-you-in-the-halloween-spirit/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 8 Movies to Get You in the Halloween Spirit ...
@@ -46,16 +46,16 @@ This movie is for the ultimate horror movie junkie. There are 8 of these terrify
 
 ## Related Posts
 
-- [halloween cocktails](https://food.allwomenstalk.com/frightfully-good-halloween-cocktails/)
-- [evil ice queen makeup](https://makeup.allwomenstalk.com/creepy-halloween-makeup-ideas-from-instagram/)
 - [crown and coke costume](https://lifestyle.allwomenstalk.com/adorable-couple-costumes-for-halloween/)
-- [girl star wars costume ideas](https://lifestyle.allwomenstalk.com/star-wars-costume-ideas-for-women/)
-- [most blood in a horror movie](https://movies.allwomenstalk.com/bloodcurdling-horror-movies-for-halloween/)
 - [sims diamond diy](https://diy.allwomenstalk.com/cheap-diy-halloween-costumes/)
+- [halloween cocktails](https://food.allwomenstalk.com/frightfully-good-halloween-cocktails/)
 - [halloween makeup videos](https://makeup.allwomenstalk.com/youtube-halloween-makeup-tutorials/)
+- [most blood in a horror movie](https://movies.allwomenstalk.com/bloodcurdling-horror-movies-for-halloween/)
+- [makeup inspired](https://makeup.allwomenstalk.com/halloween-makeup-inspiration/)
+- [evil ice queen makeup](https://makeup.allwomenstalk.com/creepy-halloween-makeup-ideas-from-instagram/)
+- [girl star wars costume ideas](https://lifestyle.allwomenstalk.com/star-wars-costume-ideas-for-women/)
 - [jim pam halloween costume](https://fashion.allwomenstalk.com/tv-couples-halloween-costumes/)
 - [halloween costume blond hair](https://lifestyle.allwomenstalk.com/halloween-costume-ideas-for-girls-who-cant-decide/)
-- [makeup inspired](https://makeup.allwomenstalk.com/halloween-makeup-inspiration/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Best Summer Movies ...](https://movies.allwomenstalk.com/best-summer-movies/)
 

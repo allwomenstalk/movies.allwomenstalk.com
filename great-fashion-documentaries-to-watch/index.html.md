@@ -3,7 +3,7 @@ title: "7 Great Fashion Documentaries to Watch and Enjoy ..."
 description: "The September Issue; Diana Vreeland: the Eye Has to Travel; Bill Cunningham New York; Valentino: the Last Emperor; Lagerfeld Confidential; More ..."
 url: "https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Great Fashion Documentaries to Watch and Enjoy ...
@@ -49,16 +49,16 @@ Whether it’s what goes on in the hallowed halls of Vogue or an insight into th
 
 ## Related Posts
 
-- [lady gaga's dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
-- [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
 - [how to style printed pants](https://streetstyle.allwomenstalk.com/fabulous-street-style-takes-on-statement-pants/)
+- [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
+- [list of fashion icons](https://fashion.allwomenstalk.com/amazing-fashion-icons-whose-style-will-inspire-your-closet/)
 - [best fashion and beauty websites](https://fashion.allwomenstalk.com/amazing-fashion-and-beauty-websites-you-have-to-check-out/)
-- [english fashion styles for ladies](https://fashion.allwomenstalk.com/fabulous-british-fashion-icons-to-look-up-to/)
-- [zooey deschanel style dresses](https://fashion.allwomenstalk.com/super-trendy-and-fun-zooey-deschanel-looks-to-steal/)
+- [lady gaga's dresses](https://fashion.allwomenstalk.com/of-lady-gagas-most-outrageous-outfits-that-will-make-you-gasp/)
 - [miley cyrus âge](https://fashion.allwomenstalk.com/key-looks-in-the-miley-cyrus-style-revolution/)
 - [where do celebrities sell their clothes](https://celebs.allwomenstalk.com/crazy-celebrities-who-make-fashion-sell-out/)
 - [fashion forward trends](https://fashion.allwomenstalk.com/stunning-fashion-forward-trends-from-classic-films/)
-- [list of fashion icons](https://fashion.allwomenstalk.com/amazing-fashion-icons-whose-style-will-inspire-your-closet/)
+- [zooey deschanel style dresses](https://fashion.allwomenstalk.com/super-trendy-and-fun-zooey-deschanel-looks-to-steal/)
+- [english fashion styles for ladies](https://fashion.allwomenstalk.com/fabulous-british-fashion-icons-to-look-up-to/)
 - [9 Incredibly Trendy Fashion Movies Every Stylish G...](https://movies.allwomenstalk.com/incredibly-trendy-fashion-movies-every-stylish-girl-should-see/)
 - [7 Outrageously Beautiful DIY Fashion Videos You Mu...](https://fashion.allwomenstalk.com/outrageously-beautiful-diy-fashion-videos-you-must-see/)
 

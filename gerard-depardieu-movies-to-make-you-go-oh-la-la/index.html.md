@@ -3,7 +3,7 @@ title: "7 Gerard Depardieu Movies to Make You Go Oh La La ..."
 description: "Jean De Florette; Green Card; Cyrano De Bergerac; The Man in the Iron Mask; The Last Holiday; More ..."
 url: "https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Gerard Depardieu Movies to Make You Go Oh La La ...
@@ -42,16 +42,16 @@ You might have guessed by now that I am quite a fan. I know he’s not a typical
 
 ## Related Posts
 
-- [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
-- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
-- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
 - [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
-- [fairy tale movies to watch](https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/)
-- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
-- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
+- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
 - [best of tyler perry movies](https://movies.allwomenstalk.com/tyler-perry-movies-that-teach-us-valuable-lessons/)
-- [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
+- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
 - [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
+- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
+- [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
+- [fairy tale movies to watch](https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/)
+- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
+- [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [8 Fabulous French Films ...](https://movies.allwomenstalk.com/fabulous-french-films/)
 

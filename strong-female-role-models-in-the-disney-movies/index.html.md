@@ -3,7 +3,7 @@ title: "Strong Female Role Models in the Disney Movies ..."
 description: "Nala (the Lion King); Kanga (the Many Adventures of Winnie the Pooh); Wendy (Peter Pan); Mrs. Potts (Beauty & the Beast); Megara (Hercules); More ..."
 url: "https://movies.allwomenstalk.com/strong-female-role-models-in-the-disney-movies/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # Strong Female Role Models in the Disney Movies ...
@@ -86,15 +86,15 @@ Who is your favorite non-princess/lead character female role model in the Disney
 
 ## Related Posts
 
+- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
 - [business lady outfit](https://fashion.allwomenstalk.com/check-out-business-lady-vibes-from-these-gorge-celebrities/)
 - [what makes serena williams great](https://celebs.allwomenstalk.com/why-serena-williams-is-awesome/)
-- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
-- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
-- [dorkiest things](https://inspiration.allwomenstalk.com/nerdy-things-that-are-now-incredibly-attractive/)
-- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
-- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
-- [body goals for ladies](https://inspiration.allwomenstalk.com/goals-every-woman-should-set-for-herself/)
 - [best skywalks in the world](https://travel.allwomenstalk.com/incredible-skywalks-that-will-take-you-to-the-edge/)
+- [little girl movie characters](https://movies.allwomenstalk.com/which-of-these-girl-power-movie-characters-is-you/)
+- [role models to write about](https://inspiration.allwomenstalk.com/are-you-an-aspiring-writer-these-women-should-be-your-role-models/)
+- [big sister and little sister simpsons](https://movies.allwomenstalk.com/fictional-sisters-you-wish-were-your-sibling/)
+- [is jack sparrow an anti hero](https://movies.allwomenstalk.com/female-anti-heroes-we-just-have-to-love/)
+- [body goals for ladies](https://inspiration.allwomenstalk.com/goals-every-woman-should-set-for-herself/)
 - [becoming a femme fatale movie](https://movies.allwomenstalk.com/which-of-these-movie-femme-fatales-do-you-want-to-be/)
 - [7 Strong and Inspiring Female Characters from Movi...](https://movies.allwomenstalk.com/7-strong-and-inspiring-female-characters-from-movies/)
 - [9 Female Movie Superheroes ...](https://movies.allwomenstalk.com/female-movie-superheroes/)

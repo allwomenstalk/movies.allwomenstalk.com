@@ -3,7 +3,7 @@ title: "7 Psychology-Related Films That I Recommend ..."
 description: "A Beautiful Mind; The Butterfly Effect; The Snake Pit; Sybil; Primal Fear; More ..."
 url: "https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 7 Psychology\-Related Films That I Recommend ...
@@ -42,16 +42,16 @@ Psychology-related films are great to watch because they address developmental e
 
 ## Related Posts
 
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
-- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
-- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
 - [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
 - [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
+- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
 - [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

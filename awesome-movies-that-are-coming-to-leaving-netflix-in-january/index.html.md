@@ -3,7 +3,7 @@ title: "10 Movies Leaving Netflix (And Coming!) Including Cast Away Streaming"
 description: "101 Dalmatians; Mean Girls; Cast Away; Shall We Dance?; Bad Boys 2; More ..."
 url: "https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 10 Movies Leaving Netflix \(And Coming!\) Including Cast Away Streaming
@@ -96,16 +96,16 @@ Which movies are you happy to see as new additions to Netflix? Which movies are 
 
 ## Related Posts
 
-- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
-- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
-- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
-- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
 - [films by john hughes](https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
+- [family tradition movie](https://movies.allwomenstalk.com/holiday-movies-about-family-to-make-a-tradition-every-year/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
+- [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
+- [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
+- [classic christmas claymation movies](https://movies.allwomenstalk.com/classic-christmas-movies-to-watch-this-season/)
+- [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 

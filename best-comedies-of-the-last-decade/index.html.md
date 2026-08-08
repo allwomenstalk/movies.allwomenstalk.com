@@ -3,7 +3,7 @@ title: "30 Best Comedies of the Last Decade ..."
 description: "Bruce Almighty; Napoleon Dynamite; Zombieland; My Big Fat Greek Wedding; Anchorman: the Legend of Ron Burgundy; More ..."
 url: "https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/"
 category: "movies"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 30 Best Comedies of the Last Decade ...
@@ -144,16 +144,16 @@ I love comedies, and looking back, I have to agree that the 2000s gave birth to 
 
 ## Related Posts
 
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
-- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
-- [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
-- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
 - [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
-- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
+- [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
+- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
+- [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
 - [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
+- [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
+- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
+- [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
 - [8 Classic Romantic Comedies ...](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 - [Top 8 Romantic Comedies of 2012 ...](https://movies.allwomenstalk.com/top-romantic-comedies-of-2012/)
 
