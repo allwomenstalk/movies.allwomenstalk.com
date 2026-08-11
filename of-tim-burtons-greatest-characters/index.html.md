@@ -3,7 +3,7 @@ title: "10 of Tim Burton's Greatest Characters ..."
 description: "Edward Scissorhands; Sally (the Nightmare before Christmas); Beetlejuice; Catwoman (Batman Returns); The Hatter (Alice in Wonderland); More ..."
 url: "https://movies.allwomenstalk.com/of-tim-burtons-greatest-characters/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 10 of Tim Burton's Greatest Characters ...
@@ -72,16 +72,16 @@ Which is your favorite Tim Burton movie and character? (They don’t have to be 
 
 ## Related Posts
 
+- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
 - [funny logos](https://funny.allwomenstalk.com/funniest-logo-design-fails-ever-who-designed-these/)
 - [harry potter book eight](https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/)
-- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
-- [romance disney movies](https://love.allwomenstalk.com/shock-here-are-the-lies-that-disney-told-us-about-romance/)
-- [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
-- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
-- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
-- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
 - [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
+- [periods pain image](https://funny.allwomenstalk.com/cartoons-that-portray-what-our-periods-are-really-like/)
+- [best black and white romantic movies](https://movies.allwomenstalk.com/epic-black-and-white-romances/)
 - [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
+- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
+- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
+- [jk rowling twotter](https://apps.allwomenstalk.com/times-j-k-rowling-owned-twitter/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)
 - [5 Interesting Twilight Characters ...](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
 

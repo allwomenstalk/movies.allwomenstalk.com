@@ -3,7 +3,7 @@ title: "7 of the Best TV Friendships ..."
 description: "Ted, Barney, Marshall; The Doctor and Donna; Joey and Chandler; Sheldon and Penny; Wilson and House; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-tv-friendships/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 of the Best TV Friendships ...
@@ -42,16 +42,16 @@ I love talking about great TV friendships! They’re all so amazing for their ow
 
 ## Related Posts
 
-- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
-- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
-- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
-- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
-- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
+- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
 - [anonymous acts of kindness](https://lifestyle.allwomenstalk.com/random-acts-of-kindness-2/)
 - [shows that went on too long](https://money.allwomenstalk.com/shows-that-lasted-way-too-long/)
-- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
-- [mysteries of the mayans](https://travel.allwomenstalk.com/mysteries-of-the-mayans-revealed/)
+- [felicia day chris hardwick](https://lifestyle.allwomenstalk.com/great-youtube-shows/)
+- [videos of funny pranks](https://lifestyle.allwomenstalk.com/funny-youtube-pranks-thatll-surely-make-you-smile/)
+- [childhood tv programmes](https://movies.allwomenstalk.com/childhood-tv-shows-they-should-bring-back/)
+- [top chef: just desserts scandal](https://movies.allwomenstalk.com/fab-competition-tv-shows-that-are-amazing-to-watch/)
 - [fresh pronce of bell air](https://movies.allwomenstalk.com/best-reruns-to-watch-when-you-get-home-from-school/)
+- [most annoying characters](https://celebs.allwomenstalk.com/most-annoying-tv-characters/)
+- [sudden dance in public](https://lifestyle.allwomenstalk.com/spectacular-dancing-flash-mobs/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 - [7 Most Popular Television Shows ...](https://allwomenstalk.com/7-most-popular-television-shows/)
 

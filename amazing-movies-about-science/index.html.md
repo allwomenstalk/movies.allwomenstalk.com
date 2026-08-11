@@ -3,7 +3,7 @@ title: "7 Amazing Movies about Science ..."
 description: "Longitude; Creation; A Beautiful Mind; Madame Curie; Jurassic Park; More ..."
 url: "https://movies.allwomenstalk.com/amazing-movies-about-science/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Amazing Movies about Science ...
@@ -42,16 +42,16 @@ Science isn't as dull as you might think, so check out these movies and some of 
 
 ## Related Posts
 
-- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
-- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
-- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
-- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
-- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
-- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
-- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
-- [فيلم بريطاني ملكي](https://movies.allwomenstalk.com/movies-about-british-kings-and-queens/)
-- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
 - [most famous john wayne movies](https://movies.allwomenstalk.com/john-wayne-movies-everyone-should-see/)
+- [movies that were surprisingly good](https://movies.allwomenstalk.com/movies-that-were-surprisingly-successful/)
+- [فيلم بريطاني ملكي](https://movies.allwomenstalk.com/movies-about-british-kings-and-queens/)
+- [agatha christie best films](https://movies.allwomenstalk.com/movies-based-on-the-novels-of-agatha-christie/)
+- [movies about world war 1](https://movies.allwomenstalk.com/movies-about-world-war-i/)
+- [similar movies released same time](https://movies.allwomenstalk.com/pairs-of-similar-movies-released-at-the-same-time/)
+- [movie about fake town](https://movies.allwomenstalk.com/coolest-fictional-cities-in-the-movies/)
+- [old long movie names](https://movies.allwomenstalk.com/movies-with-incredibly-long-titles/)
+- [movies set in south of france](https://movies.allwomenstalk.com/fantastic-films-to-watch-before-visiting-france/)
+- [hot man movie](https://funny.allwomenstalk.com/funny-movies-with-hot-actors/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

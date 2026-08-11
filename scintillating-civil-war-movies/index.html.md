@@ -3,7 +3,7 @@ title: "7 Scintillating Civil War Romance Movies to Experience Today"
 description: "Gone with the Wind; Shenandoah; The Horse Soldiers; Ride with the Devil; Gettysburg; More ..."
 url: "https://movies.allwomenstalk.com/scintillating-civil-war-movies/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Scintillating Civil War Romance Movies to Experience Today
@@ -54,16 +54,16 @@ Which one of these scintillating Civil War movies do you like best? Which would 
 
 ## Related Posts
 
-- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
-- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
-- [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
-- [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
 - [loreal le stylo smoky always pearly pink](https://movies.allwomenstalk.com/best-sports-movies-ever-made/)
-- [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
-- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [funny airplane movies](https://movies.allwomenstalk.com/great-airplane-movies/)
+- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
+- [8 New Action Movies ...](https://bilbr.com/new-action-movies/)
+- [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
+- [8 Funniest Movie Lines Ever ...](https://movies.allwomenstalk.com/funniest-movie-lines-ever/)
+- [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
 - [relatable movie characters male](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
+- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

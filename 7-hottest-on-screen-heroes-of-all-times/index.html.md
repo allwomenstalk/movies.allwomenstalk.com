@@ -3,7 +3,7 @@ title: "7 Hottest on-Screen Heroes of All Times ..."
 description: "Batman; Xander Cage; Blade; Spartacus; James Bond; More ..."
 url: "https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Hottest on\-Screen Heroes of All Times ...
@@ -56,15 +56,15 @@ So, tell me – do you have your list of the hottest on-screen heroes of all tim
 
 ## Related Posts
 
-- [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
-- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [best looking moms](https://celebs.allwomenstalk.com/25-hottest-celebrity-moms/)
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [hot supermodels](https://celebs.allwomenstalk.com/25-hottest-supermodels/)
 - [why are hollywood actors on strike](https://celebs.allwomenstalk.com/25-most-messed-up-celebrities/)
-- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [are celebrities overpaid](https://celebs.allwomenstalk.com/the-most-overpaid-actors-in-hollywood/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
+- [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
+- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)

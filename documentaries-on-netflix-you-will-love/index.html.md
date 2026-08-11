@@ -3,7 +3,7 @@ title: "7 Eye-Opening Documentaries on Netflix You Will Love"
 description: "The Bridge; The Dhamma Brothers; Cropsey; Food Matters; For the Bible Tells Me so; More ..."
 url: "https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Eye\-Opening Documentaries on Netflix You Will Love
@@ -58,16 +58,16 @@ There are many other great documentaries on Netflix that I am slowly working my 
 
 ## Related Posts
 
-- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
-- [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
-- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
-- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
-- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
-- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
-- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
-- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
 - [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
+- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
+- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
+- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
+- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
+- [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
+- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
+- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
+- [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

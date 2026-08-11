@@ -3,7 +3,7 @@ title: "12 Feminist Movies Every Girl Should See at Least Once ..."
 description: "POCAHONTAS; THELMA & LOUISE; MISS CONGENIALITY; MATILDA; The HUNTING GROUND; More ..."
 url: "https://movies.allwomenstalk.com/feminist-movies/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 12 Feminist Movies Every Girl Should See at Least Once ...
@@ -68,14 +68,14 @@ The Stepford Wives is a thriller, horror and sci-fi movie all rolled into one. T
 
 - [zorro sprinkhaan](https://movies.allwomenstalk.com/movies-that-are-20-years-old-in-2018/)
 - [Top 7 Movies That Woman Must See at Least Once ...](https://bilbr.com/movies-every-woman-must-see/)
-- [Top 10 Rom Coms Everyone Needs to See ...](https://7fun.net/romcoms-everyone-should-see/)
-- [Christmas Movies the Whole Family ‍‍‍ Will Enjoy �...](https://movies.allwomenstalk.com/christmas-movies-for-the-whole-family/)
-- [10 Movies That Turn 10 Years Old in 2018 ...](https://movies.allwomenstalk.com/movies-that-are-years-old-in/)
-- [classic movies musicals](https://movies.allwomenstalk.com/classic-film-musicals-you-must-watch/)
-- [New Movies to Watch in March 2018 ...](https://movies.allwomenstalk.com/new-movies-to-watch-in-march/)
 - [Best Romantic Movies for Valentine's Day (Part 1 o...](https://movies.allwomenstalk.com/best-romantic-movies-for-valentines-day/)
+- [Christmas Movies the Whole Family ‍‍‍ Will Enjoy �...](https://movies.allwomenstalk.com/christmas-movies-for-the-whole-family/)
 - [Movies to Look Forward 🤗 to in 2018 Part II ...](https://movies.allwomenstalk.com/movies-to-look-forward-to-in-part-ii/)
+- [10 Movies That Turn 10 Years Old in 2018 ...](https://movies.allwomenstalk.com/movies-that-are-years-old-in/)
 - [15 Must See Christmas Movies This Season ...](https://movies.allwomenstalk.com/what-to-watch-in-a-christmas-movie-marathon/)
+- [New Movies to Watch in March 2018 ...](https://movies.allwomenstalk.com/new-movies-to-watch-in-march/)
+- [classic movies musicals](https://movies.allwomenstalk.com/classic-film-musicals-you-must-watch/)
+- [Top 10 Rom Coms Everyone Needs to See ...](https://7fun.net/romcoms-everyone-should-see/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [7 Best Movies for a Girls' Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 

@@ -3,7 +3,7 @@ title: "7 Excellent Adaptations by Andrew Davies ..."
 description: "Bridget Jones’s Diary; House of Cards; Northanger Abbey; Bleak House; Tipping the Velvet; More ..."
 url: "https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Excellent Adaptations by Andrew Davies ...
@@ -56,16 +56,16 @@ Andrew Davies has taken the classic works of the likes of Evelyn Waugh, William 
 
 ## Related Posts
 
+- [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
+- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
+- [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
+- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
 - [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
 - [high iq tv series](https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/)
 - [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
-- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
-- [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
-- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
-- [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
-- [which of celestina's biggest hits speaks to you th...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
 - [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
-- [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
+- [which of celestina's biggest hits speaks to you th...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
+- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
 - [7 Best Book to Movie Adaptations ...](https://allwomenstalk.com/7-best-book-to-movie-adaptations/)
 - [7 Wonderful Shakespeare Movies ...](https://allwomenstalk.com/wonderful-shakespeare-movies/)
 

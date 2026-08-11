@@ -3,7 +3,7 @@ title: "7 Totally Tubular 80s Flicks ..."
 description: "Amadeus; The Breakfast Club; E.T; Batman; Ferris Beuller's Day off; More ..."
 url: "https://movies.allwomenstalk.com/totally-tubular-80s-flicks/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Totally Tubular 80s Flicks ...
@@ -55,16 +55,16 @@ Now, those definitely aren't all of the most totally tubular 80s flicks, but the
 
 ## Related Posts
 
-- [riche le stylo smoky shadow bottomless](https://movies.allwomenstalk.com/flicks-about-the-beach/)
-- [7 Worst Hollywood Remakes ...](https://movies.allwomenstalk.com/worst-hollywood-remakes/)
-- [movies everyone must watch](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [stellar movie](https://movies.allwomenstalk.com/stellar-movie-franchises/)
 - [subtitled movies](https://movies.allwomenstalk.com/great-foreign-films-with-subtitles/)
 - [15 Glorious Gangster Movies ...](https://bilbr.com/glorious-gangster-movies/)
+- [9 Irrespressible Movies Hollywood Should Remake .....](https://movies.allwomenstalk.com/irrespressible-movies-hollywood-should-remake/)
+- [7 Worst Hollywood Remakes ...](https://movies.allwomenstalk.com/worst-hollywood-remakes/)
 - [romantic movies 2011](https://7fun.net/romantic-movies-of-2011/)
 - [liner movie](https://movies.allwomenstalk.com/10-famous-movie-one-liners/)
-- [9 Irrespressible Movies Hollywood Should Remake .....](https://movies.allwomenstalk.com/irrespressible-movies-hollywood-should-remake/)
+- [movies everyone must watch](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [steamy scenes movie](https://movies.allwomenstalk.com/steamiest-sex-scenes-in-hollywood/)
+- [riche le stylo smoky shadow bottomless](https://movies.allwomenstalk.com/flicks-about-the-beach/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 

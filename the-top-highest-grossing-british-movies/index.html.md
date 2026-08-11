@@ -3,7 +3,7 @@ title: "The Top 25 Highest Grossing British Movies ..."
 description: "Star Wars : the Force Awakens (2015); Skyfall (2012); Spectre; Harry Potter and the Deathly Hallows – Part II (2011); Mamma Mia (2008); More ..."
 url: "https://movies.allwomenstalk.com/the-top-highest-grossing-british-movies/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # The Top 25 Highest Grossing British Movies ...
@@ -118,16 +118,16 @@ Which is your favorite?
 
 ## Related Posts
 
+- [movies to watch when you're in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
+- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
+- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
 - [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
 - [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
+- [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
+- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
+- [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
 - [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
 - [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
-- [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
-- [movies about dystopias](https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/)
-- [halloween movies with cats](https://movies.allwomenstalk.com/cinema-for-scaredy-cats-cheesy-charming-halloween-flicks/)
-- [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
-- [movies to watch when you're in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
-- [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
 - [7 Highest Grossing Films in History ...](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 

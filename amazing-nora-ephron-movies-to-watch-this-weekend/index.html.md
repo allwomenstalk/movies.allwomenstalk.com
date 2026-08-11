@@ -3,7 +3,7 @@ title: "7 Amazing Nora Ephron Movies to Watch This Weekend ..."
 description: "You’ve Got Mail; Sleepless in Seattle; Julie and Julia; Hanging up; Heartburn; More ..."
 url: "https://movies.allwomenstalk.com/amazing-nora-ephron-movies-to-watch-this-weekend/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Amazing Nora Ephron Movies to Watch This Weekend ...
@@ -43,15 +43,15 @@ What’s your favorite Nora Ephron movie? Is it one from this list? Let me know 
 ## Related Posts
 
 - [zac efron nicholas sparks movie](https://movies.allwomenstalk.com/best-nicholas-sparks-inspired-movies/)
-- [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
-- [all disney movies in order from oldest to newest](https://movies.allwomenstalk.com/rare-disney-movies-youve-never-heard-of/)
-- [michael caine accent](https://movies.allwomenstalk.com/michael-caine-movies-everyone-should-see/)
-- [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
-- [top steve carell movies](https://movies.allwomenstalk.com/of-steve-carells-funniest-movietv-roles/)
-- [catherine hepburn movies](https://movies.allwomenstalk.com/katharine-hepburn-films-you-must-see/)
-- [must see movies 2013](https://movies.allwomenstalk.com/amazing-movies-of-that-youve-got-to-watch/)
-- [best steampunk movie](https://movies.allwomenstalk.com/fantastic-steampunk-themed-movies-to-enjoy-on-movie-night/)
 - [movies to watch when you feel low](https://movies.allwomenstalk.com/movies-to-boost-your-mood-when-youre-feeling-low/)
+- [michael caine accent](https://movies.allwomenstalk.com/michael-caine-movies-everyone-should-see/)
+- [top steve carell movies](https://movies.allwomenstalk.com/of-steve-carells-funniest-movietv-roles/)
+- [all disney movies in order from oldest to newest](https://movies.allwomenstalk.com/rare-disney-movies-youve-never-heard-of/)
+- [best tv proposals](https://movies.allwomenstalk.com/more-sweet-tv-and-movie-proposals/)
+- [best steampunk movie](https://movies.allwomenstalk.com/fantastic-steampunk-themed-movies-to-enjoy-on-movie-night/)
+- [catherine hepburn movies](https://movies.allwomenstalk.com/katharine-hepburn-films-you-must-see/)
+- [upcoming sequels](https://movies.allwomenstalk.com/upcoming-sequels-that-deserve-your-excitement/)
+- [must see movies 2013](https://movies.allwomenstalk.com/amazing-movies-of-that-youve-got-to-watch/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

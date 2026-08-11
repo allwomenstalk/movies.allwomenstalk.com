@@ -3,7 +3,7 @@ title: "7 Shows for a Girl's Night in Party ..."
 description: "Sex and the City; AbFab; Will and Grace; Revenge; True Blood; More ..."
 url: "https://movies.allwomenstalk.com/shows-for-a-girls-night-in-party/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Shows for a Girl's Night in Party ...
@@ -42,16 +42,16 @@ A great girl’s night in can be hard to plan, but I hope this list helps you wh
 
 ## Related Posts
 
-- [ditzy female tv characters](https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/)
-- [heroic female characters](https://movies.allwomenstalk.com/strong-heroic-female-characters-from-tv/)
-- [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
-- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
-- [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
-- [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)
-- [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
-- [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
-- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
 - [down to earth celebrities](https://celebs.allwomenstalk.com/female-celebrities-i-find-incredibly-sweet-and-down-to-earth/)
+- [carrie bradshaw 80s outfit](https://fashion.allwomenstalk.com/fashionable-female-characters-on-tv-today/)
+- [heroic female characters](https://movies.allwomenstalk.com/strong-heroic-female-characters-from-tv/)
+- [shakespeare characters by lines](https://lifestyle.allwomenstalk.com/of-shakespeares-great-women/)
+- [abc talk shows](https://lifestyle.allwomenstalk.com/hot-shows-for-women-on-abc/)
+- [ditzy female tv characters](https://movies.allwomenstalk.com/awesome-female-tv-characters-id-love-to-be-friends-with/)
+- [punk rock singers female](https://music.allwomenstalk.com/rocking-female-fronted-bands/)
+- [heroes blonde girl](https://movies.allwomenstalk.com/female-superheroes-to-look-up-to/)
+- [female celebrities in the 90s](https://celebs.allwomenstalk.com/female-celebrities-who-were-my-role-models-when-i-was-younger/)
+- [lena dunham marilyn monroe](https://celebs.allwomenstalk.com/influential-women-from-tv-film/)
 - [7 Great TV Shows for Women ...](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
 - [7 Reality Shows I Can't Miss ...](https://allwomenstalk.com/7-reality-shows-i-cant-miss/)
 

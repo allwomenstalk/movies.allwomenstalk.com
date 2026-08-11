@@ -3,7 +3,7 @@ title: "7 New Movies Worth Checking out ..."
 description: "The Tourist; Harry Potter and the Deathly Hallows Part 1; Little Fockers; Tangled; Burlesque; More ..."
 url: "https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 New Movies Worth Checking out ...
@@ -44,16 +44,16 @@ Top Photo Credit: [coxy](https://www.flickr.com/photos/coxy/2682439021/)
 
 ## Related Posts
 
-- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
-- [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
-- [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
-- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
-- [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
-- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
 - [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
-- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
+- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
+- [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
+- [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
+- [stars of the silent screen](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
+- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
+- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
+- [best action movies for date night](https://movies.allwomenstalk.com/10-action-movies-i-love-and-why/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 - [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
 

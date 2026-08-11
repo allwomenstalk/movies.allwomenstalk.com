@@ -3,7 +3,7 @@ title: "The Most Romantic Grand Gestures in the Movies ..."
 description: "The Five-Year Engagement; Bridget Jones’ Diary; Never Been Kissed; Sixteen Candles; Pitch Perfect; More ..."
 url: "https://movies.allwomenstalk.com/the-most-romantic-grand-gestures-in-the-movies/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # The Most Romantic Grand Gestures in the Movies ...
@@ -182,16 +182,16 @@ Of course, not all romantic gestures are appreciated or the love remains unrequi
 
 ## Related Posts
 
+- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
 - [baddie pick up lines](https://movies.allwomenstalk.com/the-best-pickup-lines-in-the-movies/)
 - [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
-- [breakup movies to watch](https://movies.allwomenstalk.com/the-best-breakup-movies-of-all-time-for-girls-who-love-a-good-cry/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
 - [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
-- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
 - [best mother movies](https://movies.allwomenstalk.com/movies-you-should-watch-with-your-mama-on-mothers-day/)
-- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
+- [kid romance movies](https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/)
+- [breakup movies to watch](https://movies.allwomenstalk.com/the-best-breakup-movies-of-all-time-for-girls-who-love-a-good-cry/)
 - [movies with mothers](https://movies.allwomenstalk.com/watch-these-movies-to-bond-with-mom-on-mothers-day/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)
 - [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 

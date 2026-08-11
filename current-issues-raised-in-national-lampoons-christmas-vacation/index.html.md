@@ -3,7 +3,7 @@ title: "Current Issues Raised in National Lampoon's Christmas Vacation ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://movies.allwomenstalk.com/current-issues-raised-in-national-lampoons-christmas-vacation/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # Current Issues Raised in National Lampoon's Christmas Vacation ...
@@ -20,15 +20,15 @@ Does feminism mean we can't say what our first impressions of someone are anymor
 
 ## Related Posts
 
-- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
-- [70's tv shows](https://movies.allwomenstalk.com/the-70s-was-the-best-decade-in-television/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/tied-ship-by-erin-hanson/)
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-dread-of-christmas/)
 - [shows 2008](https://movies.allwomenstalk.com/tv-shows-turning-in/)
-- [poem about ocd](https://books.allwomenstalk.com/ocd-by-neil-hilborn/)
-- [we live in a world](https://lifestyle.allwomenstalk.com/we-live-in-a-fucked-up-world/)
-- [fable forest](https://inspiration.allwomenstalk.com/the-fable-in-the-forest-by-erin-hanson/)
+- [70's tv shows](https://movies.allwomenstalk.com/the-70s-was-the-best-decade-in-television/)
+- [loreal le stylo eye hollywood icon](https://lifestyle.allwomenstalk.com/weird-things-humans-do/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/tied-ship-by-erin-hanson/)
 - [phobia of disney](https://movies.allwomenstalk.com/fears-that-develop-from-watching-disney-movies/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/the-dread-of-christmas/)
+- [poem about ocd](https://books.allwomenstalk.com/ocd-by-neil-hilborn/)
+- [fable forest](https://inspiration.allwomenstalk.com/the-fable-in-the-forest-by-erin-hanson/)
+- [we live in a world](https://lifestyle.allwomenstalk.com/we-live-in-a-fucked-up-world/)
 - [funny holiday video](https://funny.allwomenstalk.com/mila-stauffers-video-thoughts-on-the-holidays/)
 - [19 Common Misconceptions from Movies ...](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [The Holiday](https://allwomenstalk.com/the-holiday/)

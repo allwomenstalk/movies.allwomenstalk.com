@@ -3,7 +3,7 @@ title: "8 Movies Based on Books ..."
 description: "The Virgin Suicides; Fried Green Tomatoes; The First Wives Club; Capote; Trainspotting; More ..."
 url: "https://movies.allwomenstalk.com/movies-based-on-books/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 8 Movies Based on Books ...
@@ -49,15 +49,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/18421170)
 ## Related Posts
 
 - [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
-- [vampire movie old school](https://movies.allwomenstalk.com/awesome-old-school-vampire-flicks/)
-- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
+- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
+- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 - [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
 - [movies set in paris](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
-- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
-- [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
 - [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
+- [vampire movie old school](https://movies.allwomenstalk.com/awesome-old-school-vampire-flicks/)
+- [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
+- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
 - [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
-- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [8 Great Movies Based on Comic Books ...](https://movies.allwomenstalk.com/great-movies-based-on-comic-books/)
 

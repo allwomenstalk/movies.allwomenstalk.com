@@ -3,7 +3,7 @@ title: "7 Modern Movies Inspired by the Works of Shakespeare ..."
 description: "10 Things I Hate about You; She’s the Man; The Lion King; O; Romeo Must Die; More ..."
 url: "https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Modern Movies Inspired by the Works of Shakespeare ...
@@ -43,15 +43,15 @@ These are just a few modern movies that have borrowed from the works of William 
 ## Related Posts
 
 - [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
+- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
+- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
 - [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
 - [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
-- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
 - [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 of My Favorite Jane Austen Movies ...](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 

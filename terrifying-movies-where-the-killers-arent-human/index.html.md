@@ -3,7 +3,7 @@ title: "Terrifying Movies Where the Killers Aren't Human ..."
 description: "Jaws; Snakes on a Plane; The Birds; Piranha; Deep Blue Sea; More ..."
 url: "https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # Terrifying Movies Where the Killers Aren't Human ...
@@ -42,16 +42,16 @@ These are my favorite movies where the killers aren't human, which are yours?
 
 ## Related Posts
 
+- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
+- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
 - [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
 - [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
-- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
-- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
-- [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
-- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
 - [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
-- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
-- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
+- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
 - [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
+- [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
+- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
 - [5 Amazing Vampires from Movies ...](https://twilight.allwomenstalk.com/5-amazing-vampires-from-movies/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 

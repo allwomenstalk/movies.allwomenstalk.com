@@ -3,7 +3,7 @@ title: "15 Upcoming Movie Remakes That Might Be Really Great ..."
 description: "Carrie; Annie; Robocop; An American Werewolf in London; All Quiet on the Western Front; More ..."
 url: "https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 15 Upcoming Movie Remakes That Might Be Really Great ...
@@ -75,15 +75,15 @@ A lot of upcoming movie remakes do look really fantastic, but there are others â
 
 ## Related Posts
 
-- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [top 20 romantic movies](https://movies.allwomenstalk.com/best-romantic-comedies-of-the-decade/)
-- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
-- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
-- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
 - [top comedy movies last 5 years](https://movies.allwomenstalk.com/best-comedies-of-the-last-decade/)
 - [shows family](https://movies.allwomenstalk.com/shows-to-watch-with-your-family/)
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
+- [top silent movies](https://movies.allwomenstalk.com/unmissable-silent-movies/)
+- [the best sports movies of all time](https://movies.allwomenstalk.com/best-sports-movies-of-all-time/)
+- [top 10 broadway musicals](https://lifestyle.allwomenstalk.com/of-my-favorite-broadway-musicals/)
 - [musicals about racism](https://lifestyle.allwomenstalk.com/thought-provoking-broadway-musicals/)
+- [inspirational true story movies](https://movies.allwomenstalk.com/inspiring-films-based-on-true-stories/)
 - [7 Tearjerk Moments in Disney Movies ...](https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)

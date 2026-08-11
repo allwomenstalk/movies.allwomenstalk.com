@@ -3,7 +3,7 @@ title: "7 Good Comedies to Watch with Friends ..."
 description: "Your Highness; The Pacifier; The Naked Gun; Idiocracy; Grandma’s Boy; More ..."
 url: "https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Good Comedies to Watch with Friends ...
@@ -65,16 +65,16 @@ Top image source: [badassness.wpengine.netdna-cdn.com](https://goo.gl/wzzVZg)
 
 ## Related Posts
 
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
+- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
 - [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
-- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
-- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
 - [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 

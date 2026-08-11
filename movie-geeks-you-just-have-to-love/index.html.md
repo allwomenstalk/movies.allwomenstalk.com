@@ -3,7 +3,7 @@ title: "9 Movie Geeks You Just Have to Love ..."
 description: "Steve Rogers in Captain America; Hermione Granger in Harry Potter; Garth Algar in Wayne's World; Shaun in Shaun of the Dead; Dr. Raymond Stantz, Dr. Egon Spengler and Louis Tully in Ghostbusters; More ..."
 url: "https://movies.allwomenstalk.com/movie-geeks-you-just-have-to-love/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 9 Movie Geeks You Just Have to Love ...
@@ -69,15 +69,15 @@ That’s it – my list of movie geeks. Now, I know you are all going to have pl
 ## Related Posts
 
 - [films with joseph gordon-levitt](https://movies.allwomenstalk.com/great-and-intriguing-movies-featuring-joseph-gordon-levitt/)
-- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
-- [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
-- [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
 - [movie zac efron](https://movies.allwomenstalk.com/awesome-movies-starring-zac-efron/)
-- [nip tuck on netflix](https://movies.allwomenstalk.com/best-tv-series-on-netflix-youve-gotta-watch/)
 - [movie night names](https://movies.allwomenstalk.com/awesome-movie-night-ideas-to-liven-up-your-night/)
+- [old hollywood movies name](https://movies.allwomenstalk.com/old-school-hollywood-movies-i-adore/)
+- [quirky characters in movies](https://movies.allwomenstalk.com/quirky-and-lovable-characters-to-watch-on-screen/)
+- [nip tuck on netflix](https://movies.allwomenstalk.com/best-tv-series-on-netflix-youve-gotta-watch/)
 - [to live movie](https://movies.allwomenstalk.com/best-movie-worlds-youd-like-to-live-in/)
-- [biographical movies](https://movies.allwomenstalk.com/best-biographical-movies-about-the-fabulous-and-famous/)
 - [what movie is the scariest movie of all time](https://movies.allwomenstalk.com/super-scary-movies-for-a-scare-your-pants-off-marathon/)
+- [biographical movies](https://movies.allwomenstalk.com/best-biographical-movies-about-the-fabulous-and-famous/)
+- [action movie cliches](https://movies.allwomenstalk.com/action-movie-cliches-that-would-be-fun-to-live-out/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 

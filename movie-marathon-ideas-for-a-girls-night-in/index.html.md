@@ -3,7 +3,7 @@ title: "9 Movie Marathon Ideas for a Girls' Night in ..."
 description: "Harry Potter; Twilight; Julia Roberts; Baz Luhrman; Literature; More ..."
 url: "https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/"
 category: "movies"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 9 Movie Marathon Ideas for a Girls' Night in ...
@@ -73,15 +73,15 @@ Why not add a theme to your movie marathon? Nothing too rigid, just certain food
 
 ## Related Posts
 
-- [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
-- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
+- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
 - [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
 - [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
+- [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
 - [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
 - [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
-- [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
 - [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
-- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
+- [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
 - [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
 - [7 Best Movies for a Girls' Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [8 Movie Night Party Ideas That Rock ...](https://movies.allwomenstalk.com/movie-night-party-ideas-that-rock/)
