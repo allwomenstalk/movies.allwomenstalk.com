@@ -3,7 +3,7 @@ title: "7 Great Natalie Portman Movies ..."
 description: "Leon: the Professional...; Anywhere but Here...; Where the Heart is...; Garden State...; Closer...; More ..."
 url: "https://movies.allwomenstalk.com/great-natalie-portman-movies/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Great Natalie Portman Movies ...
@@ -61,16 +61,16 @@ What Natalie Portman movie is your favorite? Are there any Natalie Portman movie
 
 ## Related Posts
 
-- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 - [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
-- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
-- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
 - [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
+- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
+- [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
+- [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
+- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
 - [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
 - [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

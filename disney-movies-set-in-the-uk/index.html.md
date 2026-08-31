@@ -3,7 +3,7 @@ title: "7 Magical Disney Movies Set in the UK: From London to Scotland"
 description: "Candleshoe (1977); 101 Dalmatians (1996); Brave (2012); The Sword in the Stone (1963); One of Our Dinosaurs is Missing (1975); More ..."
 url: "https://movies.allwomenstalk.com/disney-movies-set-in-the-uk/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Magical Disney Movies Set in the UK: From London to Scotland
@@ -71,14 +71,14 @@ Whether you are soaring high over London rooftops or trekking through the Scotti
 
 ## Related Posts
 
-- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
 - [witches tv series list](https://movies.allwomenstalk.com/excellent-movies-and-tv-shows-about-witches/)
 - [inspirational teacher movies](https://movies.allwomenstalk.com/inspiring-teachers-from-movies/)
 - [disney movie pictures](https://movies.allwomenstalk.com/great-images-from-some-of-the-best-disney-movies-of-all-time/)
 - [movie unwind](https://movies.allwomenstalk.com/best-movies-to-unwind-to/)
 - [best romantic high school series](https://movies.allwomenstalk.com/tv-series-about-high-school-that-you-will-love/)
-- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
 - [movie night essentials snacks](https://movies.allwomenstalk.com/movie-night-essentials-that-will-make-you-a-blockbuster-host/)
+- [benedict cumberbatch hobbies](https://movies.allwomenstalk.com/benedict-cumberbatch-performances-you-have-to-see/)
+- [bathrooms in movies](https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/)
 - [movies for the soul](https://movies.allwomenstalk.com/best-films-to-awaken-the-human-spirit/)
 - [best romcoms on netflix](https://movies.allwomenstalk.com/romantic-comedies-to-check-out-on-netflix-this-month/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)

@@ -3,7 +3,7 @@ title: "17 Movies to Watch if You and Your Man Are Kids at Heart ..."
 description: "Monsters University; Zootopia; Toy Story 3; Finding Dory; How to Train Your Dragon; More ..."
 url: "https://movies.allwomenstalk.com/movies-to-watch-with-your-boyfriend-if-youre-kids-at-heart/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 17 Movies to Watch if You and Your Man Are Kids at Heart ...
@@ -82,14 +82,14 @@ Now you have plenty of movies to watch with your boyfriend the next time that yo
 
 ## Related Posts
 
+- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
 - [movies ya](https://movies.allwomenstalk.com/amazing-movies-based-on-ya-novels-for-teen-girls/)
+- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
 - [classic 90s movies](https://movies.allwomenstalk.com/things-we-can-learn-from-classic-90s-films/)
+- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [most common favorite movie](https://movies.allwomenstalk.com/the-most-common-movie-misquotes/)
 - [mrs doubtfire sweeping gif](https://movies.allwomenstalk.com/if-youre-feeling-sad-these-movies-will-lift-your-spirits/)
-- [movies about shopping](https://movies.allwomenstalk.com/the-best-ever-shopping-scenes-in-the-movies-every-shopaholic-will-love/)
-- [spicy movues](https://movies.allwomenstalk.com/movies-that-will-get-you-and-your-partner-all-steamed-up/)
 - [movies about female friendships](https://movies.allwomenstalk.com/these-amazing-films-are-all-about-female-friendships/)
-- [boring movies on netflix](https://movies.allwomenstalk.com/movies-on-netflix-for-girls-who-are-bored-with-mainstream/)
 - [the moth diaries مترجم](https://movies.allwomenstalk.com/thriller-lovers-will-get-lost-in-these-movies/)
 - [romantic movies on netflix that will make you cry](https://movies.allwomenstalk.com/the-most-tear-jerking-movies-that-will-make-you-cry-on-netflix/)
 - [7 Romantic Movies Guys Dig ...](https://bilbr.com/7-romantic-movies-guys-dig/)

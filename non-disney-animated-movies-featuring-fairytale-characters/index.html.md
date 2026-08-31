@@ -3,7 +3,7 @@ title: "The Ultimate Animated Fairy Movies List: 7 Non-Disney Classics"
 description: "The Shrek Movies; The Snow Queen; The Swan Princess; Thumbelina; Peter & the Wolf; More ..."
 url: "https://movies.allwomenstalk.com/non-disney-animated-movies-featuring-fairytale-characters/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # The Ultimate Animated Fairy Movies List: 7 Non\-Disney Classics
@@ -62,16 +62,16 @@ While these movies might not have the same marketing machine as Disney, they are
 
 ## Related Posts
 
-- [films van amanda seyfried](https://movies.allwomenstalk.com/movies-starring-amanda-seyfried-i-cant-get-enough-of/)
-- [movie writers](https://movies.allwomenstalk.com/fantastic-movies-about-writers-that-will-motivate-you/)
-- [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
-- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
-- [why did beautiful creatures flop](https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/)
-- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
-- [2000s movies comedy](https://movies.allwomenstalk.com/comedies-from-the-early-2000s-that-you-should-rewatch/)
-- [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
 - [watch room in rome movie](https://movies.allwomenstalk.com/best-movies-to-watch-before-you-go-to-italy/)
 - [watch this boys life](https://movies.allwomenstalk.com/great-leonardo-dicaprio-films-that-are-addictive/)
+- [epic movie sequel](https://movies.allwomenstalk.com/epic-movie-sequels-to-look-forward-to-in/)
+- [2000s movies comedy](https://movies.allwomenstalk.com/comedies-from-the-early-2000s-that-you-should-rewatch/)
+- [films van amanda seyfried](https://movies.allwomenstalk.com/movies-starring-amanda-seyfried-i-cant-get-enough-of/)
+- [movie with ice cube and queen latifah](https://movies.allwomenstalk.com/sensational-queen-latifah-movies-worth-watching-over-and-over/)
+- [why did beautiful creatures flop](https://movies.allwomenstalk.com/movies-that-flopped-much-to-everyones-surprise/)
+- [underated disney movies](https://movies.allwomenstalk.com/underrated-disney-movies-to-watch-right-now/)
+- [recent movies with maggie smith](https://movies.allwomenstalk.com/maggie-smith-films-that-you-will-love/)
+- [movie writers](https://movies.allwomenstalk.com/fantastic-movies-about-writers-that-will-motivate-you/)
 - [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [Top 10 Disney Animated Films ...](https://bilbr.com/top-disney-animated-films/)
 

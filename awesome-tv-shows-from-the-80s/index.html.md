@@ -3,7 +3,7 @@ title: "8 Awesome TV Shows from the 80's ..."
 description: "The Facts of Life; Cheers; Family Ties; The Cosby Show; Miami Vice; More ..."
 url: "https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 8 Awesome TV Shows from the 80's ...
@@ -62,16 +62,16 @@ Did you watch any of these TV shows from the 80’s? Did I forget any of your fa
 
 ## Related Posts
 
-- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
-- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
 - [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
 - [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
 - [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
-- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
+- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
 - [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
 - [8 Best TV Shows of All Time ...](https://7fun.net/8-best-tv-shows-of-all-time/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

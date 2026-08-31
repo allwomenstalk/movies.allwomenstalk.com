@@ -3,7 +3,7 @@ title: "7 Psychology-Related Films That I Recommend ..."
 description: "A Beautiful Mind; The Butterfly Effect; The Snake Pit; Sybil; Primal Fear; More ..."
 url: "https://movies.allwomenstalk.com/psychology-related-films-that-i-recommend/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Psychology\-Related Films That I Recommend ...
@@ -42,16 +42,16 @@ Psychology-related films are great to watch because they address developmental e
 
 ## Related Posts
 
-- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
 - [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
-- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
 - [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
-- [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
-- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
-- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
 - [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
+- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
+- [john candy films list](https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/)
+- [lights out like movies](https://movies.allwomenstalk.com/scary-movies-that-will-have-you-turning-on-the-lights/)
+- [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

@@ -3,7 +3,7 @@ title: "7 Heartbreaking Tearjerk Moments in Disney Movies That Still Make Us Cry
 description: "When Oliver Roams the Streets of New York; When Eugene is Dying; When Dumbo’s Mother Sings \"Baby Mine\"; When Ray Dies; When Willow Tweed Leaves Todd in the Forest; More ..."
 url: "https://movies.allwomenstalk.com/tearjerk-moments-in-disney-movies/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Heartbreaking Tearjerk Moments in Disney Movies That Still Make Us Cry
@@ -54,16 +54,16 @@ It is extraordinary how Disney storytellers pull us into these animated worlds s
 
 ## Related Posts
 
-- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
-- [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
 - [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
-- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
-- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
-- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
 - [80s movies you need to watch](https://movies.allwomenstalk.com/80s-movies-everyone-should-see/)
-- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
+- [senior romance](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)
 - [must watch musicals](https://movies.allwomenstalk.com/must-see-musicals/)
+- [great movies 2013](https://movies.allwomenstalk.com/must-see-movies-of/)
+- [movies like she said](https://movies.allwomenstalk.com/movies-that-teach-us-about-love/)
+- [best young adult tv series](https://movies.allwomenstalk.com/amazing-young-adult-tv-dramas/)
+- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
+- [pochohantas](https://movies.allwomenstalk.com/worst-disney-sequels/)
 - [Top 7 Amazing Pixar Flicks ...](https://movies.allwomenstalk.com/top-amazing-pixar-flicks/)
 - [7 Best Romantic Movie Scenes ...](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
 

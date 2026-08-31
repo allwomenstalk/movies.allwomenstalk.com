@@ -3,7 +3,7 @@ title: "10 Worst Movies of 2011 ..."
 description: "Conan the Barbarian; The Smurfs; Johnny English Reborn; Arthur; Green Lantern; More ..."
 url: "https://movies.allwomenstalk.com/worst-movies-of/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 10 Worst Movies of 2011 ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/19703484)
 
 ## Related Posts
 
-- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
-- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
-- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
-- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
-- [9 Devastatingly Disastrous Movie Remakes ...](https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/)
-- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
-- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
-- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
 - [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
 - [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
+- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
+- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
+- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
+- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
+- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
+- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
+- [9 Devastatingly Disastrous Movie Remakes ...](https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/)
+- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
 - [10 Best Action Movies of 2010 …](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

@@ -3,7 +3,7 @@ title: "8 Fabulous French Films Every Movie Lover Should See"
 description: "Les Choristes (the Chorus); Le Fabuleux Destin D'Amélie Poulain (Amélie); Au Revoir Les Enfants (Goodbye, Children); La Haine (Hate); Jules Et Jim (Jules and Jim); More ..."
 url: "https://movies.allwomenstalk.com/fabulous-french-films/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 8 Fabulous French Films Every Movie Lover Should See
@@ -65,16 +65,16 @@ There are some absolutely terrific foreign language films out there. What would 
 
 ## Related Posts
 
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [john williams movie soundtracks](https://movies.allwomenstalk.com/unforgettable-john-williams-soundtracks/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)
+- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
 - [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
 - [Top 8 Worst Movies Ever Made ...](https://movies.allwomenstalk.com/top-worst-movies-ever-made/)
-- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
-- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
 - [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
-- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
+- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Classic Romantic Comedies ...](https://movies.allwomenstalk.com/classic-romantic-comedies/)
 

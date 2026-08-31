@@ -3,7 +3,7 @@ title: "News Harry Potter Fans Have Been Waiting for ..."
 description: "It is Not a Movie about Harry Potter; It Will Be a Trilogy; It is Not Connected to the Previous Harry Potter Storylines; David Yates is Directing; It is Called “Fantastic Beasts and Where to Find Them”; More ..."
 url: "https://movies.allwomenstalk.com/news-harry-potter-fans-have-been-waiting-for/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # News Harry Potter Fans Have Been Waiting for ...
@@ -50,16 +50,16 @@ I know nothing will replace the Boy Wizard in our hearts, but I love that we can
 
 ## Related Posts
 
-- [scary military projects](https://lifestyle.allwomenstalk.com/strange-military-experiments-that-never-happened/)
-- [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
-- [greg smith genius wife](https://lifestyle.allwomenstalk.com/child-geniuses-who-could-give-einstein-a-run-for-his-money/)
-- [most dangerous dictators in history](https://lifestyle.allwomenstalk.com/of-historys-deadliest-dictators-you-never-heard-of/)
-- [weird science experiments in history](https://lifestyle.allwomenstalk.com/weird-experiments-even-wes-craven-wouldnt-have-thought-of/)
-- [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
-- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
 - [much marcle yew tree](https://lifestyle.allwomenstalk.com/youve-never-seen-anything-quite-like-these-ancient-trees/)
-- [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
 - [humans of new york santa](https://inspiration.allwomenstalk.com/inspirational-humans-of-new-york-hony-stories/)
+- [scary military projects](https://lifestyle.allwomenstalk.com/strange-military-experiments-that-never-happened/)
+- [most dangerous dictators in history](https://lifestyle.allwomenstalk.com/of-historys-deadliest-dictators-you-never-heard-of/)
+- [xavier samuel hot](https://celebs.allwomenstalk.com/hot-australian-hunks-i-wouldnt-mind-getting-down-under/)
+- [greg smith genius wife](https://lifestyle.allwomenstalk.com/child-geniuses-who-could-give-einstein-a-run-for-his-money/)
+- [unexplainable questions](https://lifestyle.allwomenstalk.com/science-questions-even-stephen-hawking-cant-answer/)
+- [weird science experiments in history](https://lifestyle.allwomenstalk.com/weird-experiments-even-wes-craven-wouldnt-have-thought-of/)
+- [75 banned vintage ads that were once acceptable in...](https://funny.allwomenstalk.com/you-will-not-believe-these-hilarious-retro-ads/)
+- [beryl utah hotels](https://travel.allwomenstalk.com/coffins-cars-and-cribs-the-craziest-hotel-beds/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [Breaking Dawn Will Officially Be in 2 Parts ...](https://twilight.allwomenstalk.com/breaking-dawn-will-officially-be-in-2-parts/)
 

@@ -3,7 +3,7 @@ title: "7 Best Horror Films of the '90s That Will Terrify You ..."
 description: "Stir of Echoes (1999); Flatliners (1990); It (1990); Blade (1998); Interview with the Vampire (1994); More ..."
 url: "https://movies.allwomenstalk.com/best-horror-films-of-the-90s-that-will-terrify-you/"
 category: "movies"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Best Horror Films of the '90s That Will Terrify You ...
@@ -42,15 +42,15 @@ Choosing just 7 horror films of the '90s was a tough decision for me, as many of
 
 ## Related Posts
 
-- [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
-- [channing tatum movies romantic](https://movies.allwomenstalk.com/best-channing-tatum-movie-roles-that-are-hard-not-to-love/)
-- [twilight stephenie meyer cameo](https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/)
-- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
 - [action 2014 movies](https://movies.allwomenstalk.com/new-action-movies-for/)
+- [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
+- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
+- [twilight stephenie meyer cameo](https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/)
+- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
 - [9 New Disney Movies I Can't Wait to See ...](https://movies.allwomenstalk.com/new-disney-movies-i-cant-wait-to-see/)
 - [pixar easter eggs for next movie](https://movies.allwomenstalk.com/great-pixar-movie-easter-eggs-you-probably-havent-noticed/)
 - [best egypt mythology movies](https://movies.allwomenstalk.com/movies-about-ancient-egypt-the-empire-and-egyptian-mythology/)
-- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
+- [channing tatum movies romantic](https://movies.allwomenstalk.com/best-channing-tatum-movie-roles-that-are-hard-not-to-love/)
 - [good horror movie marathons](https://movies.allwomenstalk.com/super-scary-movies-for-a-halloween-movie-marathon/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
