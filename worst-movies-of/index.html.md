@@ -3,7 +3,7 @@ title: "10 Worst Movies of 2011 ..."
 description: "Conan the Barbarian; The Smurfs; Johnny English Reborn; Arthur; Green Lantern; More ..."
 url: "https://movies.allwomenstalk.com/worst-movies-of/"
 category: "movies"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 10 Worst Movies of 2011 ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/19703484)
 
 ## Related Posts
 
-- [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
-- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
-- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
-- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
-- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
-- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
-- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
-- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
 - [9 Devastatingly Disastrous Movie Remakes ...](https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/)
+- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
+- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
+- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
+- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
+- [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
+- [8 Fantastic Foreign Films ...](https://movies.allwomenstalk.com/fantastic-foreign-films/)
 - [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
+- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
+- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
 - [10 Best Action Movies of 2010 …](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

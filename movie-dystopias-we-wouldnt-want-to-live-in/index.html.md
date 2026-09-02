@@ -3,7 +3,7 @@ title: "21 Movie Dystopias We Wouldn't Want to Live in ..."
 description: "The Hunger Games; Logan’s Run; Children of Men; Star Trek; The Matrix Trilogy; More ..."
 url: "https://movies.allwomenstalk.com/movie-dystopias-we-wouldnt-want-to-live-in/"
 category: "movies"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 21 Movie Dystopias We Wouldn't Want to Live in ...
@@ -119,16 +119,16 @@ Which would be your nightmare dystopian world?
 
 ## Related Posts
 
-- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
+- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
 - [shakespear movies](https://movies.allwomenstalk.com/modern-movie-adaptations-of-shakespeare-plays/)
 - [good movies to watch with bae](https://movies.allwomenstalk.com/classics-to-watch-on-netflix-with-your-bae/)
-- [how to watch horror movies without being scared](https://movies.allwomenstalk.com/how-to-watch-a-scary-movie-without-peeing-your-pants/)
+- [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
 - [bridget jones diary netflix](https://movies.allwomenstalk.com/add-these-exciting-movies-to-your-netflix-queue/)
+- [solo movie night](https://movies.allwomenstalk.com/the-best-movies-for-a-night-home-alone/)
 - [films to cheer you up](https://movies.allwomenstalk.com/these-movies-will-cheer-you-up-when-love-has-you-down/)
 - [movies to watch when you're in love](https://movies.allwomenstalk.com/movies-thatll-change-your-negative-view-on-love/)
-- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
-- [ferris bueller's day off izle](https://movies.allwomenstalk.com/best-movies-set-in-high-school/)
 - [thanksgiving veggietales movie](https://movies.allwomenstalk.com/thanksgiving-movies-to-watch-before-your-big-feast/)
+- [young love movies to watch](https://movies.allwomenstalk.com/best-romantic-movies-for-teens/)
 - [7 Movie Endings I Would Love to Change ...](https://movies.allwomenstalk.com/7-movie-endings-i-would-love-to-change/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 

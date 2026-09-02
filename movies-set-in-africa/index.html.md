@@ -3,7 +3,7 @@ title: "7 Movies Set in Africa ..."
 description: "Out of Africa; Blood Diamond; Shooting Dogs/beyond the Gates; Lawrence of Arabia; The Four Feathers; More ..."
 url: "https://movies.allwomenstalk.com/movies-set-in-africa/"
 category: "movies"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Movies Set in Africa ...
@@ -56,16 +56,16 @@ Movies set in Africa are an eclectic and thought-provoking collection. If you wa
 
 ## Related Posts
 
-- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
-- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
-- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [victoria rickman](https://movies.allwomenstalk.com/alan-rickman-movies-that-show-how-great-he-is/)
-- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
-- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
-- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
-- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
-- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
+- [funny teen girl movies](https://funny.allwomenstalk.com/funny-college-movies-all-students-should-watch/)
 - [movie the dragon](https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/)
+- [marathon tv series](https://movies.allwomenstalk.com/awesome-shows-to-marathon-watch/)
+- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
+- [terrible movies that are fun to watch](https://funny.allwomenstalk.com/terrible-movies-that-you-have-to-watch/)
+- [challenging movies](https://movies.allwomenstalk.com/most-mentally-challenging-tv-shows-and-movies/)
+- [twilight zone plastic surgery episode](https://movies.allwomenstalk.com/twilight-zone-episodes-for-a-nostalgic-movie-night/)
+- [movies about d-day](https://movies.allwomenstalk.com/movies-about-d-day-6th-june/)
+- [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
 

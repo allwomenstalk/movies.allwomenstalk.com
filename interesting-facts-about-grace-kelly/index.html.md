@@ -3,7 +3,7 @@ title: "10 Interesting Facts about Grace Kelly ..."
 description: "The Princess Diaries; Hitchcock's Muse; Stamp of Approval; Rooted in Success; Marnie No More; More ..."
 url: "https://movies.allwomenstalk.com/interesting-facts-about-grace-kelly/"
 category: "movies"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 10 Interesting Facts about Grace Kelly ...
@@ -56,14 +56,14 @@ These are just a few of the most interesting facts about Grace Kelly, star of th
 
 - [about the uk](https://travel.allwomenstalk.com/geographical-facts-about-the-uk/)
 - [things about michigan](https://travel.allwomenstalk.com/cool-facts-about-michigan-you-probably-dont-know/)
-- [gouffre mirolda](https://travel.allwomenstalk.com/geographical-facts-about-europe/)
-- [do pearls hurt oysters](https://jewelry.allwomenstalk.com/amazing-facts-about-pearls/)
-- [american indian custom](https://travel.allwomenstalk.com/fascinating-native-american-customs/)
-- [my freckled beauty](https://skincare.allwomenstalk.com/fun-facts-about-girls-with-freckles/)
-- [what is the flattest continent](https://travel.allwomenstalk.com/geographical-facts-of-australia/)
-- [highest mountain in brazil](https://travel.allwomenstalk.com/brilliant-facts-about-brazil/)
 - [unique/interesting facts about thanksgiving](https://allwomenstalk.com/7-facts-on-thanksgiving/)
+- [american indian custom](https://travel.allwomenstalk.com/fascinating-native-american-customs/)
+- [do pearls hurt oysters](https://jewelry.allwomenstalk.com/amazing-facts-about-pearls/)
+- [highest mountain in brazil](https://travel.allwomenstalk.com/brilliant-facts-about-brazil/)
+- [gouffre mirolda](https://travel.allwomenstalk.com/geographical-facts-about-europe/)
 - [chinese culture customs](https://travel.allwomenstalk.com/interesting-customs-of-chinese-culture/)
+- [what is the flattest continent](https://travel.allwomenstalk.com/geographical-facts-of-australia/)
+- [my freckled beauty](https://skincare.allwomenstalk.com/fun-facts-about-girls-with-freckles/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [5 Ghost Facts ...](https://twilight.allwomenstalk.com/5-ghost-facts/)
 

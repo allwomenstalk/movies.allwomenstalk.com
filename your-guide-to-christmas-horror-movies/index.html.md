@@ -3,7 +3,7 @@ title: "Your Guide to Christmas Horror Movies ..."
 description: "Black Christmas; Jack Frost; Silent Night, Deadly Night; Christmas Evil; More ..."
 url: "https://movies.allwomenstalk.com/your-guide-to-christmas-horror-movies/"
 category: "movies"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # Your Guide to Christmas Horror Movies ...
@@ -30,14 +30,14 @@ If you love a good horror film and you want to watch something a little scary or
 
 ## Related Posts
 
-- [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
-- [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
+- [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
+- [movies about internet](https://movies.allwomenstalk.com/movies-for-internet-addicts/)
+- [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
 - [netflix scam movies](https://movies.allwomenstalk.com/top-movies-about-online-dating-that-will-make-you-feel-all-the-feels/)
 - [christmas movies that arent christmas movies](https://movies.allwomenstalk.com/christmas-movies-we-love-that-arent-really-christmas-movies/)
-- [blowmind movies](https://movies.allwomenstalk.com/movies-like-inception/)
-- [magical christmas movies](https://movies.allwomenstalk.com/the-most-magical-movies-to-see-this-christmas-with-the-kids/)
+- [movies similar to harry potter and lord of the rin...](https://movies.allwomenstalk.com/movies-like-harry-potter/)
 - [romance movies that will make you cry](https://movies.allwomenstalk.com/movies-like-notebook/)
-- [movies about internet](https://movies.allwomenstalk.com/movies-for-internet-addicts/)
+- [hot night movies](https://movies.allwomenstalk.com/date-night-movies-to-get-you-in-the-mood/)
 - [idols film](https://movies.allwomenstalk.com/best-movies-to-watch-about-your-fave-rock-idols/)
 - [best period dramas movies](https://movies.allwomenstalk.com/best-movie-costume-dramas-for-history-lovers/)
 - [5 Weird Horror Movies to Watch ...](https://twilight.allwomenstalk.com/5-weird-horror-movies-to-watch/)
