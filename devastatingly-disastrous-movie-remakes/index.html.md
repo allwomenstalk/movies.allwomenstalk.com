@@ -3,7 +3,7 @@ title: "9 Devastatingly Disastrous Movie Remakes ..."
 description: "Psycho; Piranha; The Ladykillers; Cape Fear; Dinner for Schmucks; More ..."
 url: "https://movies.allwomenstalk.com/devastatingly-disastrous-movie-remakes/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 9 Devastatingly Disastrous Movie Remakes ...
@@ -48,20 +48,18 @@ Finally, the Foreign Film Remake strikes again. Something was definitely lost in
 
 It's doubtful that studios will give up on the idea of **movie remakes**. Execs seem to have this idea that their **movie remakes** will improve upon an original winner, when in reality most of them fall flat. Still, they go on and the cycle continues. Film fans, on the other hand, shudder with horror upon hearing that a favourite film is about to suffer a remake. Invariably the critical response is overwhelmingly negative as well. Can you think of any **movie remakes** that actually improved upon the original?
 
-Top Photo Credit: [weheartit.com](https://weheartit.com/entry/13736271)
-
 ## Related Posts
 
-- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
-- [7 Top Zombie Flicks You Shouldn't Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
-- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
-- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
-- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
-- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
-- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
 - [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
+- [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
+- [7 Top Zombie Flicks You Shouldn't Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
+- [great movie snacks](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
 - [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
+- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
+- [old romance movies](https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/)
+- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
+- [9 Believable and Memorable Biopics ...](https://movies.allwomenstalk.com/believable-and-memorable-biopics/)
+- [coen brothers filmography](https://movies.allwomenstalk.com/fantastic-films-from-the-coen-brothers/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [7 Awesome Hollywood Remakes ...](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 

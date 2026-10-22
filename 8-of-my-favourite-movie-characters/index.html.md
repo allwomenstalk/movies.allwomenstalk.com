@@ -3,7 +3,7 @@ title: "8 of My Favourite Movie Characters ..."
 description: "Aragorn; Jack Sparrow; Marty McFly and Doc Brown; Indiana Jones; Nicolas Angel; More ..."
 url: "https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 8 of My Favourite Movie Characters ...
@@ -81,15 +81,15 @@ Top image source: [mariapaola.edublogs.org](https://mariapaola.edublogs.org/file
 ## Related Posts
 
 - [top grossing films](https://movies.allwomenstalk.com/7-highest-grossing-films-in-history/)
-- [most pirated movie of all time](https://movies.allwomenstalk.com/most-pirated-movies/)
-- [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
-- [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
-- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
-- [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
-- [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
-- [color stylo timeless spark](https://movies.allwomenstalk.com/best-movie-bromances/)
-- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
 - [topless scenes in movies](https://movies.allwomenstalk.com/hottest-nude-movie-scenes/)
+- [color stylo timeless spark](https://movies.allwomenstalk.com/best-movie-bromances/)
+- [7 Stellar Summer Camp Movies ...](https://movies.allwomenstalk.com/stellar-summer-camp-movies/)
+- [most pirated movie of all time](https://movies.allwomenstalk.com/most-pirated-movies/)
+- [silent films on netflix](https://movies.allwomenstalk.com/8-reasons-i-love-silent-movies/)
+- [7 Must-Have Flicks for Your Collection ...](https://movies.allwomenstalk.com/must-have-flicks-for-your-collection/)
+- [best classic romantic comedy movies](https://movies.allwomenstalk.com/classic-romantic-comedies/)
+- [iconic role](https://movies.allwomenstalk.com/iconic-roles-in-the-movies/)
+- [best funny chick flicks](https://movies.allwomenstalk.com/great-chick-flicks-he-will-love-too/)
 - [8 Most Memorable Silent Movie Stars ...](https://movies.allwomenstalk.com/8-most-memorable-silent-movie-stars/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 

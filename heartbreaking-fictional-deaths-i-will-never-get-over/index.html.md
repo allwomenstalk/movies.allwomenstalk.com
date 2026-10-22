@@ -3,7 +3,7 @@ title: "9 Heartbreaking Fictional Deaths I Will Never Get over ..."
 description: "Ellie from up; Marley from Marley and Me; Bambi’s Mum from Bambi; Shmuel and Bruno from the Boy in the Striped Pajamas; Mufasa from the Lion King; More ..."
 url: "https://movies.allwomenstalk.com/heartbreaking-fictional-deaths-i-will-never-get-over/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 9 Heartbreaking Fictional Deaths I Will Never Get over ...
@@ -50,16 +50,16 @@ There are far too many heartbreaking fictional deaths to name, but these are jus
 
 ## Related Posts
 
-- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
-- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
-- [period piece actors](https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/)
-- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
-- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
-- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
-- [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
-- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
-- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
 - [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
+- [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
+- [period piece actors](https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/)
+- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
+- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
+- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
+- [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
+- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
+- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
+- [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
 - [7 Tragic Famous Love Stories ...](https://love.allwomenstalk.com/7-tragic-famous-love-stories/)
 - [8 Moments of My Life I'll Never Get Back ...](https://allwomenstalk.com/8-moments-of-my-life-ill-never-get-back/)
 

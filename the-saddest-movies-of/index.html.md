@@ -3,7 +3,7 @@ title: "10 Saddest Movies of All Time That Will Make You Cry"
 description: "Me before You; The Fault in Our Stars; Marley & Me; Dear 📃 John; Life 💓 as a 🅰️ House; More ..."
 url: "https://movies.allwomenstalk.com/the-saddest-movies-of/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 10 Saddest Movies of All Time That Will Make You Cry
@@ -72,16 +72,16 @@ Now it is your turn! Which films top your personal list of the saddest movies of
 
 ## Related Posts
 
-- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
-- [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
-- [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
 - [best motivational movies](https://movies.allwomenstalk.com/inspirational-movies-that-will-show-you-your-dreams-are-within-reach/)
-- [outlet.naiston glorious](https://movies.allwomenstalk.com/movies-thatll-give-you-the-perfect-outlet-for-your-pms-outbursts/)
-- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
+- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
 - [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
+- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
+- [parent comedy movies](https://movies.allwomenstalk.com/funny-movies-about-parenting/)
 - [loreal riche stylo smoky eternal sunshine](https://movies.allwomenstalk.com/iconic-movie-relationships-that-taught-us-all-about-love/)
-- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
+- [outlet.naiston glorious](https://movies.allwomenstalk.com/movies-thatll-give-you-the-perfect-outlet-for-your-pms-outbursts/)
+- [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
 - [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
+- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 

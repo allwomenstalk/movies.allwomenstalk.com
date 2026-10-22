@@ -3,7 +3,7 @@ title: "7 Eye-Opening Documentaries on Netflix You Will Love"
 description: "The Bridge; The Dhamma Brothers; Cropsey; Food Matters; For the Bible Tells Me so; More ..."
 url: "https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 7 Eye\-Opening Documentaries on Netflix You Will Love
@@ -58,16 +58,16 @@ There are many other great documentaries on Netflix that I am slowly working my 
 
 ## Related Posts
 
-- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
-- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
-- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
+- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
+- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
+- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
 - [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
 - [messages in disney movies](https://movies.allwomenstalk.com/disney-movies-that-taught-us-terrible-lessons/)
 - [riche le stylo smoky eye shadow always pearly pink](https://movies.allwomenstalk.com/judi-dench-movies-in-which-she-excels/)
-- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
-- [french revolution movie](https://movies.allwomenstalk.com/thought-provoking-movies-about-revolutionary-france/)
-- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
+- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
+- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
+- [movies that start at the end](https://movies.allwomenstalk.com/movies-that-start-with-the-ending/)
 - [7 Must See Alien Documentaries ...](https://paranormal.allwomenstalk.com/must-see-alien-documentaries/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

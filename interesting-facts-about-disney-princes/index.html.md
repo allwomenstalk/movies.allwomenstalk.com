@@ -3,7 +3,7 @@ title: "7 Interesting Facts about Disney Princes ..."
 description: "Aladdin; Flynn Rider; The Beast; Phillip; Naveen; More ..."
 url: "https://movies.allwomenstalk.com/interesting-facts-about-disney-princes/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 7 Interesting Facts about Disney Princes ...
@@ -56,16 +56,16 @@ I find these facts about Disney Princes interesting because they have played suc
 
 ## Related Posts
 
-- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
 - [do it on a dime](https://beauty.allwomenstalk.com/interesting-characteristics-of-a-dime/)
-- [fun facts about women's suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
 - [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
+- [true but unbelievable facts](https://lifestyle.allwomenstalk.com/crazy-facts-you-wont-believe-are-true/)
+- [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
+- [fun facts about women's suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
 - [where did the princess and the frog take place](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-princess-and-the-frog/)
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
-- [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
 - [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
+- [7 amazing facts about your eyes](https://health.allwomenstalk.com/amazing-facts-about-your-eyes-you-didnt-know-about/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
+- [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
 - [7 Most Loved Disney Characters ...](https://allwomenstalk.com/7-most-loved-disney-characters/)
 - [7 Adorable Disney Characters ...](https://movies.allwomenstalk.com/adorable-disney-characters/)
 

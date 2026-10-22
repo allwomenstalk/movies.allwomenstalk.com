@@ -3,7 +3,7 @@ title: "Top 10 Must-See Richard Curtis Movies ..."
 description: "Bridget Jones’s Diary (Writer); Notting Hill (Writer/Producer); Four Weddings and a Funeral (Writer/ Co-producer); Love Actually; The Boat That Rocked (Director/ Writer / Producer); More ..."
 url: "https://movies.allwomenstalk.com/top-must-see-richard-curtis-movies/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # Top 10 Must\-See Richard Curtis Movies ...
@@ -52,20 +52,18 @@ Not technically a movie, although there is a full-length feature (Blackadder Bac
 
 **Richard Curtis movies** have defined the British romcom – they are iconic and well-known worldwide thanks to his charming style. If you love Hugh Grant’s often swotty or clumsy characters then you just need to pick any Curtis movie to see him and British stars at their comedic best. What’s your favourite movie out of these Top 10 Must-See Richard Curtis Movies?
 
-Top Photo Credit: [pinterest.com](https://www.pinterest.com/pin/89086898848926645/)
-
 ## Related Posts
 
-- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
+- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
+- [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
 - [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
+- [movies taking place in ireland](https://movies.allwomenstalk.com/delightful-movies-set-in-ireland/)
 - [angelina jolie movies in order](https://movies.allwomenstalk.com/absolutely-amazing-angelina-jolie-movies/)
 - [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
 - [the best 60s movies](https://movies.allwomenstalk.com/groovy-60s-films-to-watch/)
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
-- [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
-- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [10 Best Chick Flicks of All Time ...](https://movies.allwomenstalk.com/10-best-chick-flicks-of-all-time/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 

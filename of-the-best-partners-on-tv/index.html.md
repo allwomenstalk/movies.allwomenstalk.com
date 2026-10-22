@@ -3,7 +3,7 @@ title: "7 of the Best Partners on TV ..."
 description: "Mulder and Scully; Emily and Nolan; Bones and Booth; Harvey and Donna; Jane and Lisbon; More ..."
 url: "https://movies.allwomenstalk.com/of-the-best-partners-on-tv/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 7 of the Best Partners on TV ...
@@ -42,16 +42,16 @@ These TV partners are awesome! I’m sure that there are a few on this list that
 
 ## Related Posts
 
-- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
 - [denny ducette](https://movies.allwomenstalk.com/tv-moments-that-made-me-cry-like-a-baby/)
-- [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
-- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
 - [loreal paris riche stylo smoldering](https://movies.allwomenstalk.com/worst-series-finales/)
-- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
+- [bill murray funniest movies](https://movies.allwomenstalk.com/brilliant-bill-murray-characters/)
+- [minnie mouse high heels](https://shoes.allwomenstalk.com/pretty-disney-pumps/)
+- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
+- [classic 7tv](https://movies.allwomenstalk.com/tv-shows-made-from-comic-books/)
 - [rugs to riches stories](https://celebs.allwomenstalk.com/rags-to-riches-stories/)
 - [why is minkus not in season 2](https://movies.allwomenstalk.com/tv-characters-that-disappeared-without-explination/)
-- [worst spinoffs](https://movies.allwomenstalk.com/worst-tv-spinoffs-of-all-time/)
 - [best unexpected kisses](https://movies.allwomenstalk.com/best-tv-show-first-kisses/)
+- [saturday night live stuart smalley](https://movies.allwomenstalk.com/priceless-snl-sketches/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Most Popular Television Shows ...](https://allwomenstalk.com/7-most-popular-television-shows/)
 

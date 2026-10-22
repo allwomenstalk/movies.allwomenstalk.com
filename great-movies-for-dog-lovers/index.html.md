@@ -3,7 +3,7 @@ title: "8 Great Movies for Dog Lovers ..."
 description: "Turner and Hooch; Lady and the Tramp; Lassie; Scooby-Doo; 101 Dalmations; More ..."
 url: "https://movies.allwomenstalk.com/great-movies-for-dog-lovers/"
 category: "movies"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 8 Great Movies for Dog Lovers ...
@@ -44,20 +44,18 @@ Nick Park and his clay-mation team at Aardvark Animations finally got round to g
 
 I hope you’ve enjoyed my pick of the many movies about dogs that have been made. You might disagree with my list, for example, K-9 rather Turner and Hooch, Haichi instead of Greyfriars Bobby, or the rather silly Beverley Hills Chihuahua over them all. What are your favorite dog movies?
 
-Top Photo Credit: [snapper31](https://www.flickr.com/photos/17889585@N03/3787591105/)
-
 ## Related Posts
 
 - [8 Riveting Robot Movies ...](https://movies.allwomenstalk.com/riveting-robot-movies/)
+- [8 Incredible Charlie Chaplin Movies ...](https://bilbr.com/incredible-charlie-chaplain-movies/)
 - [7 Best Sci-Fi Movies Ever ...](https://movies.allwomenstalk.com/best-sci-fi-movies-ever/)
 - [8 Stunning Nature Documentaries ...](https://movies.allwomenstalk.com/stunning-nature-documentaries/)
-- [11 Best Teen Movies Ever You've Got to Watch ...](https://bilbr.com/best-teen-movies-ever-youve-got-to-watch/)
-- [8 Beautiful Movies You'll Enjoy ...](https://movies.allwomenstalk.com/beautiful-movies-youll-enjoy/)
-- [best british movies of all time](https://movies.allwomenstalk.com/best-british-movies-of-all-time/)
-- [paris stylo smoky pearly pink](https://movies.allwomenstalk.com/impressive-apocalypse-movies/)
-- [8 Incredible Charlie Chaplin Movies ...](https://bilbr.com/incredible-charlie-chaplain-movies/)
-- [9 John Cusack Movies You've Got to Watch ASAP ...](https://bilbr.com/john-cusack-movies-youve-got-to-watch-asap/)
 - [movies about valentine's day](https://movies.allwomenstalk.com/movies-to-watch-on-valentines-day/)
+- [11 Best Teen Movies Ever You've Got to Watch ...](https://bilbr.com/best-teen-movies-ever-youve-got-to-watch/)
+- [best british movies of all time](https://movies.allwomenstalk.com/best-british-movies-of-all-time/)
+- [8 Beautiful Movies You'll Enjoy ...](https://movies.allwomenstalk.com/beautiful-movies-youll-enjoy/)
+- [9 John Cusack Movies You've Got to Watch ASAP ...](https://bilbr.com/john-cusack-movies-youve-got-to-watch-asap/)
+- [paris stylo smoky pearly pink](https://movies.allwomenstalk.com/impressive-apocalypse-movies/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [7 Awesome Animal-Based Movies ...](https://movies.allwomenstalk.com/awesome-animal-based-movies/)
 
