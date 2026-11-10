@@ -1,9 +1,9 @@
 ---
 title: "7 Disney Movies with Romance: The Best Love Stories Ranked"
-description: "Beauty & the Beast; Tangled; The Lion King; Cinderella; The Aristocats; More ..."
+description: "Beauty & the Beast; Tangled; The Lion King; Cinderella; The Aristocats"
 url: "https://movies.allwomenstalk.com/disney-love-stories-that-are-beautifully-romantic/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Disney Movies with Romance: The Best Love Stories Ranked
@@ -56,15 +56,15 @@ There are literally dozens of Disney films. Most of them feature some love story
 
 ## Related Posts
 
+- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
+- [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
 - [rom coms you need to watch](https://movies.allwomenstalk.com/lesser-known-romantic-comedies-you-need-to-watch/)
-- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
-- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
 - [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
-- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
 - [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
 - [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
-- [films by baz luhrmann](https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/)
-- [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
+- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
+- [girls movie night](https://movies.allwomenstalk.com/movie-marathon-ideas-for-a-girls-night-in/)
+- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
 - [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [8 Most Romantic Love Scenes ...](https://movies.allwomenstalk.com/most-romantic-love-scenes/)

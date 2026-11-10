@@ -1,9 +1,9 @@
 ---
 title: "10 Timeless Black and White Romantic Movies to Watch ..."
-description: "Casablanca; Roman Holiday; Laura; The Philadelphia Story; Sabrina; More ..."
+description: "Casablanca; Roman Holiday; Laura; The Philadelphia Story; Sabrina"
 url: "https://movies.allwomenstalk.com/timeless-black-and-white-romantic-movies-to-watch/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 10 Timeless Black and White Romantic Movies to Watch ...
@@ -54,16 +54,16 @@ There are tons of black and white romantic movies to watch – and plenty in col
 
 ## Related Posts
 
-- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
+- [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
 - [new movies that just come out](https://lifestyle.allwomenstalk.com/awesome-new-movies-i-cant-wait-to-come-out/)
 - [7 Top Zombie Flicks You Shouldn't Miss ...](https://movies.allwomenstalk.com/top-zombie-flicks-you-shouldnt-miss/)
-- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
-- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
-- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
-- [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
-- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
 - [tim burton films](https://movies.allwomenstalk.com/incredible-tim-burton-movies/)
-- [shows from 2011](https://lifestyle.allwomenstalk.com/broadway-shows-of-you-have-to-see/)
+- [things to watch with your boyfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-boyfriend/)
+- [8 Awesome Judd Apatow Movies ...](https://bilbr.com/awesome-judd-apatow-movies/)
+- [girl glow up movie](https://movies.allwomenstalk.com/movies-where-the-geeky-girl-gets-a-makeover/)
+- [Giveaway Contest: Lionsgate Films Blu-Ray Combo Pa...](https://7fun.net/giveaway-contest-lionsgate-films-blu-ray-combo-pack/)
+- [movie motivation](https://movies.allwomenstalk.com/most-beautiful-and-inspirational-movies-ever-made/)
+- [stylo smoky sunshine](https://celebs.allwomenstalk.com/screening-of-twelve/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 

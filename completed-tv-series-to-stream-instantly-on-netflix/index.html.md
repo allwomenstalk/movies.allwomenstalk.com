@@ -1,9 +1,9 @@
 ---
 title: "7 Completed TV Series to Stream Instantly on Netflix ..."
-description: "Friday Night Lights; United States of Tara; Freaks and Geeks; Jekyll; Buffy the Vampire Slayer; More ..."
+description: "Friday Night Lights; United States of Tara; Freaks and Geeks; Jekyll; Buffy the Vampire Slayer"
 url: "https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Completed TV Series to Stream Instantly on Netflix ...
@@ -44,16 +44,16 @@ I would just like to say that this post was originally inspired by Veronica Mars
 
 ## Related Posts
 
-- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
+- [ways to get news](https://lifestyle.allwomenstalk.com/unconventional-ways-to-get-the-news/)
+- [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
 - [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
 - [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [types of art movement](https://lifestyle.allwomenstalk.com/art-movements-explained/)
 - [if i could have a super power what would it be](https://lifestyle.allwomenstalk.com/superpowers-that-i-would-love-to-have/)
-- [ways to get news](https://lifestyle.allwomenstalk.com/unconventional-ways-to-get-the-news/)
+- [shows similar to dateline](https://lifestyle.allwomenstalk.com/best-true-crime-tv-shows/)
 - [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
 - [tv show from the 80s](https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/)
 - [jr ward book order](https://books.allwomenstalk.com/fatal-flaws-of-j-r-wards-black-dagger-brotherhood-series/)
-- [shows similar to dateline](https://lifestyle.allwomenstalk.com/best-true-crime-tv-shows/)
-- [supervillains](https://celebs.allwomenstalk.com/sexiest-supervillains/)
 - [7 Best Shows on TV Right Now ...](https://movies.allwomenstalk.com/7-best-shows-on-tv-right-now/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 

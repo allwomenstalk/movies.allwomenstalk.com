@@ -1,9 +1,9 @@
 ---
 title: "7 Awesome Old-School Vampire Flicks ..."
-description: "Vampire in Brooklyn; Fright Night; Shadow of the Vampire; The Lost Boys; From Dusk Till Dawn; More ..."
+description: "Vampire in Brooklyn; Fright Night; Shadow of the Vampire; The Lost Boys; From Dusk Till Dawn"
 url: "https://movies.allwomenstalk.com/awesome-old-school-vampire-flicks/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Awesome Old\-School Vampire Flicks ...
@@ -44,16 +44,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1731077978722494
 
 ## Related Posts
 
+- [movies set in paris](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
+- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
+- [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
+- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
+- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
 - [adam sandler movies top 10](https://movies.allwomenstalk.com/top-adam-sandler-movies/)
 - [10 Worst Movies of 2011 ...](https://movies.allwomenstalk.com/worst-movies-of/)
-- [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
-- [10 Best Movies of 2011 ...](https://7fun.net/best-movies-of-2011/)
-- [mindbending movies](https://movies.allwomenstalk.com/fantastical-and-mindbending-time-travel-movies/)
-- [movie scenes best](https://movies.allwomenstalk.com/best-movie-scenes-from-iconic-movies/)
-- [best movie love scenes](https://movies.allwomenstalk.com/best-romantic-movie-scenes/)
-- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [movie with great cinematography](https://movies.allwomenstalk.com/stunning-examples-of-best-cinematography/)
-- [movies set in paris](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
+- [touching movies](https://movies.allwomenstalk.com/touching-holiday-movies-you-cant-miss/)
+- [romantic movies 2013](https://movies.allwomenstalk.com/upcoming-romantic-movies-you-will-love/)
 - [5 Popular Vampires from Movies ...](https://twilight.allwomenstalk.com/5-popular-vampires-from-movies/)
 - [5 Werewolf Movies ...](https://twilight.allwomenstalk.com/5-werewolf-movies/)
 

@@ -1,9 +1,9 @@
 ---
 title: "Top 8 Romantic Comedies of 2011 ..."
-description: "No Strings Attached; Prom; Something Borrowed; Just Go with It; Bridesmaids; More ..."
+description: "No Strings Attached; Prom; Something Borrowed; Just Go with It; Bridesmaids"
 url: "https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Top 8 Romantic Comedies of 2011 ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/11030876)
 
 ## Related Posts
 
-- [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
-- [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
-- [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
-- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
-- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
-- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
+- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
-- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
+- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
+- [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
 - [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
+- [colin firth film](https://movies.allwomenstalk.com/8-colin-firth-movies-i-cant-get-enough-of/)
+- [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
+- [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
+- [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [10 Romantic Movies of 2010 ...](https://bilbr.com/romantic-movies-of/)
 

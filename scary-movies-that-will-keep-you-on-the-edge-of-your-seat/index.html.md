@@ -1,9 +1,9 @@
 ---
 title: "7 Scary Movies That Will Keep You on the Edge of Your Seat ..."
-description: "Saw; The Orphan; Halloween; The Exorcist; House at the End of the Street; More ..."
+description: "Saw; The Orphan; Halloween; The Exorcist; House at the End of the Street"
 url: "https://movies.allwomenstalk.com/scary-movies-that-will-keep-you-on-the-edge-of-your-seat/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Scary Movies That Will Keep You on the Edge of Your Seat ...
@@ -57,15 +57,15 @@ Scary movies can be really fun to watch if you're in the mood. What other scary 
 ## Related Posts
 
 - [hardx upcoming](https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/)
+- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
 - [iconic movie quotes](https://movies.allwomenstalk.com/90s-movies-quotes-that-will-make-you-swoon/)
 - [in real life members](https://movies.allwomenstalk.com/movies-starring-real-life-family-members/)
-- [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
-- [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
-- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
 - [french learning movies](https://movies.allwomenstalk.com/french-movies-that-will-help-you-learn-the-language/)
-- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
 - [movies of teens](https://movies.allwomenstalk.com/great-science-fiction-movies-for-teens/)
-- [tv shows with english subtitles](https://movies.allwomenstalk.com/best-tv-shows-with-subtitles-youll-love/)
+- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
+- [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
+- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [7 Horror Flicks That Give Me Permanent Goose Bumps...](https://movies.allwomenstalk.com/7-horror-flicks-that-give-me-permanent-goose-bumps/)
 

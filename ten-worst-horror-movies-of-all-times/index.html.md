@@ -1,9 +1,9 @@
 ---
 title: "Ten Worst Horror Movies of All Times ..."
-description: "Progeny; Jason X; Exorcist II: the Heretic; Dreamcatcher; Wicker Man (2006); More ..."
+description: "Progeny; Jason X; Exorcist II: the Heretic; Dreamcatcher; Wicker Man (2006)"
 url: "https://movies.allwomenstalk.com/ten-worst-horror-movies-of-all-times/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Ten Worst Horror Movies of All Times ...
@@ -57,15 +57,15 @@ Top image source: [austinchronicle.com](http://www.austinchronicle.com/binary/b8
 ## Related Posts
 
 - [9 Comedies to Watch before You Die ...](https://7fun.net/comedies-to-watch-before-you-die/)
-- [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
-- [glbt movies](https://movies.allwomenstalk.com/inspiring-lgbt-films/)
-- [underdog story movies](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
+- [film word](https://movies.allwomenstalk.com/favourite-four-word-film-reviews/)
+- [9 Great Disaster Movies ...](https://movies.allwomenstalk.com/great-disaster-movies/)
+- [harry potter food scenes](https://movies.allwomenstalk.com/memorable-and-tasty-food-scenes-in-a-movie/)
 - [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 - [nect flicks](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
-- [harry potter food scenes](https://movies.allwomenstalk.com/memorable-and-tasty-food-scenes-in-a-movie/)
-- [9 Great Disaster Movies ...](https://movies.allwomenstalk.com/great-disaster-movies/)
-- [film word](https://movies.allwomenstalk.com/favourite-four-word-film-reviews/)
 - [good movie trilogies](https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/)
+- [underdog story movies](https://movies.allwomenstalk.com/inspiring-underdog-movies-youll-love/)
+- [glbt movies](https://movies.allwomenstalk.com/inspiring-lgbt-films/)
+- [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 - [5 Horrible Horror Movies to Miss ...](https://twilight.allwomenstalk.com/5-horrible-horror-movies-to-miss/)
 

@@ -1,9 +1,9 @@
 ---
 title: "7 Lovely Indie Tearjerker Flicks You Need to Watch ..."
-description: "The Fountain; Dakota Skye; All the Days before Tomorrow; Wristcutters, a Love Story; The Virgin Suicides; More ..."
+description: "The Fountain; Dakota Skye; All the Days before Tomorrow; Wristcutters, a Love Story; The Virgin Suicides"
 url: "https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Lovely Indie Tearjerker Flicks You Need to Watch ...
@@ -56,15 +56,15 @@ Well, these are the movies that draw the tears right outta me. What movies do yo
 
 ## Related Posts
 
-- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
-- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
-- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
+- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
 - [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
 - [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
+- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
 - [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
+- [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
+- [latest chick flicks](https://movies.allwomenstalk.com/things-that-are-oh-so-wrong-with-chick-flicks/)
 - [dognappers from 101 dalmatians](https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)

@@ -1,9 +1,9 @@
 ---
 title: "7 Fun Facts about Disney's \"the Little Mermaid\" You Didn't Know ..."
-description: "Alyssa Milano; Ursula and Triton; Carlotta and Cinderella; Divine; Flotsam and Jetsam; More ..."
+description: "Alyssa Milano; Ursula and Triton; Carlotta and Cinderella; Divine; Flotsam and Jetsam"
 url: "https://movies.allwomenstalk.com/fun-facts-about-disneys-the-little-mermaid-you-didnt-know/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Fun Facts about Disney's "the Little Mermaid" You Didn't Know ...
@@ -56,16 +56,16 @@ There are so many fun facts about The Little Mermaid that my mind is just swimmi
 
 ## Related Posts
 
-- [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
-- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
+- [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
 - [fun fact about corn syrup](https://health.allwomenstalk.com/facts-about-high-fructose-corn-syrup-that-you-need-to-know/)
-- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
-- [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
+- [fleagram season 4](https://movies.allwomenstalk.com/surprising-facts-about-netflix-that-you-didnt-know/)
+- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
 - [fun facts about lupus](https://health.allwomenstalk.com/facts-about-lupus-that-you-probably-didnt-know/)
 - [antioxidant facts](https://health.allwomenstalk.com/surprising-but-interesting-facts-about-antioxidants/)
-- [brotp mean](https://movies.allwomenstalk.com/fan-terms-that-you-may-not-know/)
 - [simba getting thrown off cliff gif](https://movies.allwomenstalk.com/fun-facts-about-disneys-the-lion-king-you-didnt-know/)
-- [grapefruit facts](https://food.allwomenstalk.com/facts-about-grapefruits-that-you-should-know/)
+- [why do irish dancers dance with their arms straigh...](https://fitness.allwomenstalk.com/fun-facts-about-irish-dancing/)
+- [things that leave you speechless](https://lifestyle.allwomenstalk.com/amazing-random-facts-that-will-leave-you-speechless/)
+- [emma watson fun facts](https://movies.allwomenstalk.com/fun-facts-about-the-harry-potter-cast/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [9 Interesting Facts about Mythology ...](https://lifestyle.allwomenstalk.com/interesting-facts-about-mythology/)
 

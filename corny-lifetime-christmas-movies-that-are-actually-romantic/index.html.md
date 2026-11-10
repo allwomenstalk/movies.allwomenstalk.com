@@ -1,9 +1,9 @@
 ---
 title: "7 Corny Lifetime Christmas Movies That Are Surprisingly Romantic"
-description: "The Christmas Card; Holly's Holiday; A Snow Globe Christmas; Holiday Switch; An Accidental Christmas; More ..."
+description: "The Christmas Card; Holly's Holiday; A Snow Globe Christmas; Holiday Switch; An Accidental Christmas"
 url: "https://movies.allwomenstalk.com/corny-lifetime-christmas-movies-that-are-actually-romantic/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Corny Lifetime Christmas Movies That Are Surprisingly Romantic
@@ -54,14 +54,14 @@ If you're eager to discover festive films you haven't seen yet, spending an even
 
 ## Related Posts
 
-- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
 - [it's true all of it](https://movies.allwomenstalk.com/star-wars-memes-to-get-you-in-the-mood-for-the-new-movie/)
+- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
+- [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
+- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
 - [stuck in love where to watch](https://movies.allwomenstalk.com/binge-watch-these-movies-over-your-winter-break/)
 - [best booker prize winning books](https://movies.allwomenstalk.com/movies-based-on-booker-prize-winning-novels/)
-- [movies about empowering women](https://movies.allwomenstalk.com/empowering-movies-independent-women-will-love/)
-- [Watch These 10 Hilarious Sex Scenes from Famous Mo...](https://movies.allwomenstalk.com/watch-these-hilarious-sex-scenes-from-famous-movies/)
-- [one day movies](https://movies.allwomenstalk.com/movies-that-all-happen-in-one-day-or-less/)
 - [pulitzer prize winning](https://movies.allwomenstalk.com/movies-based-on-pulitzer-prize-winners/)
+- [movies taking place in rome](https://movies.allwomenstalk.com/feel-classy-by-watching-these-old-movies-set-in-rome/)
 - [not your typical christmas movie](https://movies.allwomenstalk.com/non-traditional-christmas-movies-to-watch-this-holiday/)
 - [movies to watch on netflix when you feel lonely](https://movies.allwomenstalk.com/watch-these-movies-when-youre-feeling-lonely/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)

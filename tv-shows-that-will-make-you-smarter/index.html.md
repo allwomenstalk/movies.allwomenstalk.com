@@ -1,9 +1,9 @@
 ---
 title: "Top TV Shows to Improve Your IQ ..."
-description: "QI; Mythbusters; Planet Earth; Redesign My Brain; Mad Men; More ..."
+description: "QI; Mythbusters; Planet Earth; Redesign My Brain; Mad Men"
 url: "https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Top TV Shows to Improve Your IQ ...
@@ -57,15 +57,15 @@ Are you looking forward to watching some of these shows? I’ve seen each and ev
 ## Related Posts
 
 - [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
-- [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
+- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
+- [youtubers like bethany mota](https://movies.allwomenstalk.com/relatable-youtubers-you-must-add-to-your-subscription-box/)
 - [which of celestina's biggest hits speaks to you th...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
-- [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
 - [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
 - [ice bucket fails](https://funny.allwomenstalk.com/lets-watch-the-best-ever-ice-bucket-challenge-fails-shall-we/)
-- [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
 - [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
-- [youtubers like bethany mota](https://movies.allwomenstalk.com/relatable-youtubers-you-must-add-to-your-subscription-box/)
-- [classic magazine covers](https://lifestyle.allwomenstalk.com/unforgettable-magazine-covers-from-days-gone-by/)
+- [national geographic baby peacock](https://lifestyle.allwomenstalk.com/national-geographic-birds-in-the-wild/)
+- [tgif programming](https://movies.allwomenstalk.com/tgif-thank-goodness-its-full-house/)
+- [robin williams tributes](https://celebs.allwomenstalk.com/touching-tributes-to-robin-williams/)
 - [7 Amazing Brain Training Apps to Try Today ...](https://apps.allwomenstalk.com/brain-training-apps/)
 - [Efficient Ways to Increase Your Emotional Intellig...](https://inspiration.allwomenstalk.com/very-efficient-ways-to-raise-your-emotional-intelligence/)
 

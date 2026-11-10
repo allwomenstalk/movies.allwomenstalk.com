@@ -1,9 +1,9 @@
 ---
 title: "So Bad That They're Good! 7 Awful Movies to Enjoy at Your Next Sleepover ..."
-description: "Showgirls; Chupacabra Vs the Alamo; Face/off; Burlesque; Wild Wild West; More ..."
+description: "Showgirls; Chupacabra Vs the Alamo; Face/off; Burlesque; Wild Wild West"
 url: "https://movies.allwomenstalk.com/so-bad-that-theyre-good-awful-movies-to-enjoy-at-your-next-sleepover/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # So Bad That They're Good! 7 Awful Movies to Enjoy at Your Next Sleepover ...
@@ -42,16 +42,16 @@ There's definitely a place for movies that are simply entertaining, rather than 
 
 ## Related Posts
 
-- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
-- [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
-- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
-- [last line of gone with the wind movie](https://movies.allwomenstalk.com/the-end-best-last-lines-in-the-movies/)
-- [jim carrey martial arts](https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/)
-- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
-- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
-- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
 - [best pixar shorts](https://movies.allwomenstalk.com/the-most-adorable-pixar-shorts-ever-created/)
+- [last line of gone with the wind movie](https://movies.allwomenstalk.com/the-end-best-last-lines-in-the-movies/)
+- [netnaija romance movies](https://movies.allwomenstalk.com/movies-thatll-encourage-a-make-out-session/)
+- [movie with siblings](https://movies.allwomenstalk.com/watch-these-movies-about-sisters-with-your-siblings/)
+- [jim carrey martial arts](https://movies.allwomenstalk.com/kick-ass-martial-arts-movies/)
+- [acapella movies like pitch perfect](https://movies.allwomenstalk.com/love-pitch-perfect-youll-love-these-movies-too/)
+- [virgin girls movie](https://movies.allwomenstalk.com/movies-about-losing-your-virginity-virgins-probably-shouldnt-watch/)
+- [quincy brown movies and tv shows](https://movies.allwomenstalk.com/the-hottest-movies-and-men-hitting-the-big-screen-this-summer/)
 - [movies about a chef](https://movies.allwomenstalk.com/films-guaranteed-to-make-you-super-hungry/)
+- [breakup blues film](https://movies.allwomenstalk.com/best-movies-to-beat-the-breakup-blues/)
 - [7 Best Movies for a Girls' Night in ...](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
 - [Ten Worst Horror Movies of All Times ...](https://movies.allwomenstalk.com/ten-worst-horror-movies-of-all-times/)
 

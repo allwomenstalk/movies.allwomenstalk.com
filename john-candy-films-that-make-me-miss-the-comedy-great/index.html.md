@@ -1,9 +1,9 @@
 ---
 title: "7 John Candy Films That Make Me Miss the Comedy Great ..."
-description: "Planes Trains and Automobiles; Uncle Buck; The Great Outdoors; Brewster's Millions; Cool Runnings; More ..."
+description: "Planes Trains and Automobiles; Uncle Buck; The Great Outdoors; Brewster's Millions; Cool Runnings"
 url: "https://movies.allwomenstalk.com/john-candy-films-that-make-me-miss-the-comedy-great/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 John Candy Films That Make Me Miss the Comedy Great ...
@@ -42,16 +42,16 @@ So, if you're feeling blue and in need of cheering up, don't reach for the treat
 
 ## Related Posts
 
-- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
-- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
-- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
-- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
-- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
-- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
 - [directors signature styles](https://movies.allwomenstalk.com/movie-directors-with-a-signature-style/)
 - [classic pirate movies](https://movies.allwomenstalk.com/pirate-movies-to-make-you-say-arrrgh-me-hearties/)
 - [goldie hawn 90's](https://movies.allwomenstalk.com/goldie-hawn-movies-that-are-pure-comedy-gold/)
+- [mother day movie](https://movies.allwomenstalk.com/best-movies-for-mothers-day/)
+- [must see indie movies](https://movies.allwomenstalk.com/must-watch-indie-films-for-the-weekend/)
+- [top alien invasion movies](https://movies.allwomenstalk.com/awesome-alien-invasion-movies/)
+- [top 10 movie mistakes](https://funny.allwomenstalk.com/funniest-movie-mistakes-you-didnt-pick-up-on/)
 - [film with nicole kidman](https://movies.allwomenstalk.com/great-movies-featuring-nicole-kidman-that-youre-gonna-love/)
+- [2014 summer movies](https://movies.allwomenstalk.com/summer-movies-of-we-cant-wait-to-watch/)
+- [7movies](https://movies.allwomenstalk.com/movies-set-in-africa/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [My 7 All-time Favorite Movies ...](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
 

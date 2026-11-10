@@ -1,9 +1,9 @@
 ---
 title: "7 Movies That Were Controversial in Their Time but Deserve to Be Admired Today ..."
-description: "A Patch of Blue (1965); Guess Who’s Coming to Dinner? (1967); The Defiant Ones (1958); Imitation of Life (1959); Suddenly, Last Summer (1959); More ..."
+description: "A Patch of Blue (1965); Guess Who’s Coming to Dinner? (1967); The Defiant Ones (1958); Imitation of Life (1959); Suddenly, Last Summer (1959)"
 url: "https://movies.allwomenstalk.com/movies-that-were-controversial-in-their-time-but-deserve-to-be-admired-today/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Movies That Were Controversial in Their Time but Deserve to Be Admired Today ...
@@ -42,16 +42,16 @@ I love any and all classic movies because they portray a certain charm most of o
 
 ## Related Posts
 
-- [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
-- [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
-- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
-- [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
-- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
-- [chick flick actresses](https://movies.allwomenstalk.com/must-see-90s-chick-flicks/)
-- [edge of seat horror movies](https://movies.allwomenstalk.com/scary-movies-that-will-keep-you-on-the-edge-of-your-seat/)
-- [hardx upcoming](https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/)
-- [danny masterson roseanne](https://movies.allwomenstalk.com/of-my-favorite-tv-and-movie-cast-reunions/)
 - [best mother and daughter movies](https://movies.allwomenstalk.com/great-movies-about-mother-daughter-relationships-to-enjoy-with-your-mom/)
+- [danny masterson roseanne](https://movies.allwomenstalk.com/of-my-favorite-tv-and-movie-cast-reunions/)
+- [best movies early 2000s](https://movies.allwomenstalk.com/top-movies-of-the-early-2000s/)
+- [night movies](https://movies.allwomenstalk.com/top-movies-of-the-70s-that-are-perfect-for-retro-movie-night/)
+- [best chemistry on screen](https://movies.allwomenstalk.com/fabulous-on-screen-couples-with-the-best-chemistry/)
+- [hardx upcoming](https://movies.allwomenstalk.com/upcoming-sequels-and-prequels-releasing-in/)
+- [best nostalgic 80s movies](https://movies.allwomenstalk.com/top-movies-of-the-80s-for-when-youre-in-a-nostalgic-mood/)
+- [edge of seat horror movies](https://movies.allwomenstalk.com/scary-movies-that-will-keep-you-on-the-edge-of-your-seat/)
+- [chick flick actresses](https://movies.allwomenstalk.com/must-see-90s-chick-flicks/)
+- [teenage girl shows](https://movies.allwomenstalk.com/tv-shows-for-teenage-girls-to-binge-watch-on-netflix/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 

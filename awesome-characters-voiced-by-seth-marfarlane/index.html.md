@@ -1,9 +1,9 @@
 ---
 title: "7 Awesome Characters Voiced by Seth MarFarlane ..."
-description: "Peter Griffin; Ted; Stewie Griffin; Brian Griffin; Quagmire; More ..."
+description: "Peter Griffin; Ted; Stewie Griffin; Brian Griffin; Quagmire"
 url: "https://movies.allwomenstalk.com/awesome-characters-voiced-by-seth-marfarlane/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Awesome Characters Voiced by Seth MarFarlane ...
@@ -52,16 +52,16 @@ I am still very impressed with Seth MacFarlane and his ability to create such di
 
 ## Related Posts
 
+- [doggett orange is the new black](https://movies.allwomenstalk.com/amazing-orange-is-the-new-black-characters/)
+- [american stereotypes in europe](https://travel.allwomenstalk.com/stereotypes-of-americans-held-by-other-countries/)
+- [victorian house in england](https://lifestyle.allwomenstalk.com/dangerous-things-in-homes-of-victorian-england/)
+- [sarah hughes skater wedding](https://celebs.allwomenstalk.com/great-olympic-ice-skaters-from-past-olympics/)
+- [wales myths and legends](https://lifestyle.allwomenstalk.com/welsh-myths-and-legends-to-rival-hollywood/)
+- [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
+- [sitcoms from the 1990s](https://movies.allwomenstalk.com/90s-sitcoms-we-need-to-see-make-a-revival/)
 - [tribe in rainforest](https://travel.allwomenstalk.com/tribes-of-the-rainforest/)
 - [asiantv only for love](https://movies.allwomenstalk.com/great-asian-tv-shows-you-should-be-watching/)
-- [victorian house in england](https://lifestyle.allwomenstalk.com/dangerous-things-in-homes-of-victorian-england/)
 - [most famous black scientists](https://lifestyle.allwomenstalk.com/brilliant-black-scientists-to-celebrate/)
-- [friends rolling stone cover](https://movies.allwomenstalk.com/best-90s-shows-that-i-miss-dearly/)
-- [doggett orange is the new black](https://movies.allwomenstalk.com/amazing-orange-is-the-new-black-characters/)
-- [sarah hughes skater wedding](https://celebs.allwomenstalk.com/great-olympic-ice-skaters-from-past-olympics/)
-- [sitcoms from the 1990s](https://movies.allwomenstalk.com/90s-sitcoms-we-need-to-see-make-a-revival/)
-- [wales myths and legends](https://lifestyle.allwomenstalk.com/welsh-myths-and-legends-to-rival-hollywood/)
-- [american stereotypes in europe](https://travel.allwomenstalk.com/stereotypes-of-americans-held-by-other-countries/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

@@ -1,9 +1,9 @@
 ---
 title: "8 of the Best John Hughes Movies ..."
-description: "The Breakfast Club (1985); Pretty in Pink (1986); Sixteen Candles (1984); Ferris Bueller’s Day off (1986); Curly Sue (1991); More ..."
+description: "The Breakfast Club (1985); Pretty in Pink (1986); Sixteen Candles (1984); Ferris Bueller’s Day off (1986); Curly Sue (1991)"
 url: "https://movies.allwomenstalk.com/of-the-best-john-hughes-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 of the Best John Hughes Movies ...
@@ -64,16 +64,16 @@ Do you have a favorite John Hughes movie?
 
 ## Related Posts
 
-- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
-- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
-- [anti valentine's day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
-- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
 - [highlander rotten tomatoes](https://movies.allwomenstalk.com/movies-that-became-a-tv-series/)
+- [anti valentine's day movies](https://movies.allwomenstalk.com/anti-love-movies-for-singles-to-watch-on-valentines-day/)
+- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
+- [books that became musicals](https://music.allwomenstalk.com/musicals-based-on-novels/)
+- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
+- [ravenous rotten tomatoes](https://movies.allwomenstalk.com/worst-comic-book-movies-of-all-time/)
+- [harry potter map easter egg](https://movies.allwomenstalk.com/easter-eggs-you-never-noticed-in-your-favorite-movies/)
 - [movies about losing a parent](https://movies.allwomenstalk.com/movies-to-watch-after-losing-a-loved-one/)
 - [most iconic movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-i/)
-- [great movie kisses](https://movies.allwomenstalk.com/great-movie-kisses-part-ii/)
 - [movies with confusing endings](https://movies.allwomenstalk.com/movies-ruined-by-uncanny-endings/)
-- [50 first dates movies like](https://movies.allwomenstalk.com/romance-films-that-he-will-like-too/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [8 Classic British Movies ...](https://movies.allwomenstalk.com/classic-british-movies/)
 

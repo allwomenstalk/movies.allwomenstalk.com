@@ -1,9 +1,9 @@
 ---
 title: "6 Lesser Known 🤔 Horror Movies Every Horror Addict Will Love ..."
-description: "Annabelle 2; Conjuring 2; Friend Request; Don’t Breathe; Lights out; More ..."
+description: "Annabelle 2; Conjuring 2; Friend Request; Don’t Breathe; Lights out"
 url: "https://movies.allwomenstalk.com/lesser-known-horror-movies-every-horror-addict-will-love/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 6 Lesser Known 🤔 Horror Movies Every Horror Addict Will Love ...
@@ -36,16 +36,16 @@ Matilda was worried about her boyfriend, who watched a mysterious videotape that
 
 ## Related Posts
 
-- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
+- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
+- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
 - [movies for the month of november](https://movies.allwomenstalk.com/movies-to-watch-in-november/)
+- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
+- [girl party movies](https://movies.allwomenstalk.com/best-chick-flicks-for-a-slumber-party/)
+- [movies about hunting animals](https://movies.allwomenstalk.com/best-animal-movies-to-watch-with-your-kids/)
+- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
 - [2007 romantic movies](https://movies.allwomenstalk.com/romantic-movies-for-a-solo-night-in/)
 - [scary scenes from movies](https://movies.allwomenstalk.com/scary-movie-moments/)
-- [woody allen manhattan](https://movies.allwomenstalk.com/realism-in-woody-allens-movie-manhattan/)
-- [romcoms to watch](https://movies.allwomenstalk.com/romcoms-to-watch-during-the-holidays/)
-- [moviestowatch apk](https://movies.allwomenstalk.com/best-movies-to-watch-with-friends-on-halloween/)
-- [movies about hunting animals](https://movies.allwomenstalk.com/best-animal-movies-to-watch-with-your-kids/)
-- [girl party movies](https://movies.allwomenstalk.com/best-chick-flicks-for-a-slumber-party/)
-- [break time tv](https://movies.allwomenstalk.com/netflix-shows-to-watch-on-your-lunch-break/)
+- [watch movies in car](https://movies.allwomenstalk.com/best-car-movies-for-date-night/)
 - [5 More Awesome Vampire Movies ...](https://twilight.allwomenstalk.com/5-more-awesome-vampire-movies/)
 - [5 Scary Movies ...](https://twilight.allwomenstalk.com/5-scary-movies/)
 

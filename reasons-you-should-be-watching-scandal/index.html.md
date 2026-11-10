@@ -1,9 +1,9 @@
 ---
 title: "7 Reasons You Should Be Watching Scandal ..."
-description: "A Strong Female Lead; The Scandal; Political Intrigue; A Human President; Progressive Casting; More ..."
+description: "A Strong Female Lead; The Scandal; Political Intrigue; A Human President; Progressive Casting"
 url: "https://movies.allwomenstalk.com/reasons-you-should-be-watching-scandal/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Reasons You Should Be Watching Scandal ...
@@ -42,16 +42,16 @@ I could probably come up with a dozen more reasons to watch Scandal, but these w
 
 ## Related Posts
 
-- [10 reasons why you are amazing](https://health.allwomenstalk.com/reasons-why-you-are-amazing/)
-- [do you like to use technology](https://lifestyle.allwomenstalk.com/reasons-to-love-technology/)
-- [not believe in love](https://love.allwomenstalk.com/romantic-reasons-to-still-believe-in-true-love/)
-- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/reasons-to-love-zumba/)
-- [soap movies meaning](https://movies.allwomenstalk.com/reasons-soap-operas-are-so-addicting/)
-- [wish i was](https://lifestyle.allwomenstalk.com/reasons-why-i-wish-i-was-british/)
 - [lauren conrad website](https://celebs.allwomenstalk.com/reasons-to-love-lauren-conrad/)
 - [skin changer in the hobbit actor](https://movies.allwomenstalk.com/reasons-the-hobbit-movie-will-be-awesome/)
+- [wish i was](https://lifestyle.allwomenstalk.com/reasons-why-i-wish-i-was-british/)
+- [10 reasons why you are amazing](https://health.allwomenstalk.com/reasons-why-you-are-amazing/)
+- [soap movies meaning](https://movies.allwomenstalk.com/reasons-soap-operas-are-so-addicting/)
+- [not believe in love](https://love.allwomenstalk.com/romantic-reasons-to-still-believe-in-true-love/)
 - [why should i read harry potter](https://lifestyle.allwomenstalk.com/reasons-why-you-should-re-read-harry-potter/)
+- [do you like to use technology](https://lifestyle.allwomenstalk.com/reasons-to-love-technology/)
 - [how to watch buffy the vampire slayer](https://movies.allwomenstalk.com/reasons-to-watch-buffy-the-vampire-slayer/)
+- [site:health.allwomenstalk.com](https://health.allwomenstalk.com/reasons-to-love-zumba/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
 - [7 Brilliant Reasons to Watch Jersey Shore ...](https://lifestyle.allwomenstalk.com/brilliant-reasons-to-watch-jersey-shore/)
 

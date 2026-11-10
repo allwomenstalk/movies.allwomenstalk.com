@@ -1,9 +1,9 @@
 ---
 title: "7 Gerard Depardieu Movies to Make You Go Oh La La ..."
-description: "Jean De Florette; Green Card; Cyrano De Bergerac; The Man in the Iron Mask; The Last Holiday; More ..."
+description: "Jean De Florette; Green Card; Cyrano De Bergerac; The Man in the Iron Mask; The Last Holiday"
 url: "https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Gerard Depardieu Movies to Make You Go Oh La La ...
@@ -42,16 +42,16 @@ You might have guessed by now that I am quite a fan. I know he’s not a typical
 
 ## Related Posts
 
-- [fairy tale movies to watch](https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/)
+- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
+- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
+- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
+- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
 - [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
 - [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
-- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
-- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
+- [best of tyler perry movies](https://movies.allwomenstalk.com/tyler-perry-movies-that-teach-us-valuable-lessons/)
 - [harrison ford romantic movies](https://movies.allwomenstalk.com/harrison-ford-movies-to-rent-for-a-great-movie-night/)
 - [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
-- [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
-- [best of tyler perry movies](https://movies.allwomenstalk.com/tyler-perry-movies-that-teach-us-valuable-lessons/)
-- [movies starring drew barrymore](https://movies.allwomenstalk.com/amazing-films-featuring-drew-barrymore-that-youre-gonna-love/)
+- [fairy tale movies to watch](https://movies.allwomenstalk.com/upcoming-fairy-tale-movies-to-look-forward-to/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [8 Fabulous French Films ...](https://movies.allwomenstalk.com/fabulous-french-films/)
 

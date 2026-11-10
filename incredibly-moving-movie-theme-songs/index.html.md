@@ -1,9 +1,9 @@
 ---
 title: "10 Incredibly Moving Movie Theme Songs ..."
-description: "“Uninvited,” by Alanis Morissette, for City of Angels; “Streets of Philadelphia,” by Bruce Springsteen, for Philadelphia; “Don't Wanna Miss a Thing,” by Aerosmith, for Armageddon; “Kiss from a Rose,” by Seal, for Batman Forever; “Kissing You,” by Des'ree, for Romeo + Juliet; More ..."
+description: "“Uninvited,” by Alanis Morissette, for City of Angels; “Streets of Philadelphia,” by Bruce Springsteen, for Philadelphia"
 url: "https://movies.allwomenstalk.com/incredibly-moving-movie-theme-songs/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 10 Incredibly Moving Movie Theme Songs ...
@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/256255)
 
 ## Related Posts
 
-- [i like some of the gaga songs](https://celebs.allwomenstalk.com/favourite-lady-gaga-songs/)
-- [motivational songs for weight loss](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
-- [best dance songs 2011](https://lifestyle.allwomenstalk.com/the-hottest-dance-songs-of/)
-- [songs to blast](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
-- [romantic slow music](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
-- [songs that get stuck in your head](https://lifestyle.allwomenstalk.com/top-songs-that-get-stuck-in-your-head/)
-- [music plants like](https://gardening.allwomenstalk.com/5-songs-your-plants-will-like/)
 - [happy songs to start the day](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
-- [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
+- [romantic slow music](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
+- [i like some of the gaga songs](https://celebs.allwomenstalk.com/favourite-lady-gaga-songs/)
+- [best dance songs 2011](https://lifestyle.allwomenstalk.com/the-hottest-dance-songs-of/)
+- [music plants like](https://gardening.allwomenstalk.com/5-songs-your-plants-will-like/)
+- [songs that get stuck in your head](https://lifestyle.allwomenstalk.com/top-songs-that-get-stuck-in-your-head/)
+- [songs to blast](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
 - [katy perry tracklist](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
+- [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
+- [motivational songs for weight loss](https://lifestyle.allwomenstalk.com/motivational-up-lifting-songs/)
 - [Top 10 Lines from the Movies ...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
 - [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 

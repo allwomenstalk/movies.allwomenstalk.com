@@ -1,9 +1,9 @@
 ---
 title: "9 Cameo Appearances by Authors in Movie Adaptations of Their Books ..."
-description: "Lee Child; John Irving; Stephen King; Kathryn Stockett; S E Hinton; More ..."
+description: "Lee Child; John Irving; Stephen King; Kathryn Stockett; S E Hinton"
 url: "https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Cameo Appearances by Authors in Movie Adaptations of Their Books ...
@@ -68,15 +68,15 @@ How many of these cameo appearances by authors did you spot? What others would y
 
 ## Related Posts
 
-- [great friends movie](https://movies.allwomenstalk.com/great-films-to-watch-with-your-best-friend/)
 - [channing tatum movies romantic](https://movies.allwomenstalk.com/best-channing-tatum-movie-roles-that-are-hard-not-to-love/)
+- [great friends movie](https://movies.allwomenstalk.com/great-films-to-watch-with-your-best-friend/)
 - [9 New Disney Movies I Can't Wait to See ...](https://movies.allwomenstalk.com/new-disney-movies-i-cant-wait-to-see/)
+- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
+- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
 - [movie about roman empire](https://movies.allwomenstalk.com/movies-about-ancient-rome-i-highly-recommend/)
 - [good horror movie marathons](https://movies.allwomenstalk.com/super-scary-movies-for-a-halloween-movie-marathon/)
-- [will ferrell vw bus](https://movies.allwomenstalk.com/newish-awesome-comedies-you-need-to-watch-now-if-you-havent/)
 - [bradley cooper best movies](https://movies.allwomenstalk.com/amazing-films-featuring-bradley-cooper-that-any-fan-will-love/)
 - [action 2014 movies](https://movies.allwomenstalk.com/new-action-movies-for/)
-- [fairy tales adult movie](https://movies.allwomenstalk.com/movie-fairy-tales-for-adults/)
 - [pixar easter eggs for next movie](https://movies.allwomenstalk.com/great-pixar-movie-easter-eggs-you-probably-havent-noticed/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 - [9 Very Brainy Movie Stars ...](https://movies.allwomenstalk.com/very-brainy-movie-stars/)

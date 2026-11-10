@@ -1,9 +1,9 @@
 ---
 title: "9 Baz Luhrmann Movie Moments That Are Beautifully Romantic ..."
-description: "Satine and Christian’s Elephant Moment; Romeo & Juliet Eyeing Each Other up through the Fish Tank; Christian Saving Satine during the “Spectacular Spectacular’s” Opening Night; Gatsby Seeing Daisy for the First Time in Five Years; Romeo & Juliet’s Pool Kiss; More ..."
+description: "Satine and Christian’s Elephant Moment; Romeo & Juliet Eyeing Each Other up through the Fish Tank"
 url: "https://movies.allwomenstalk.com/baz-luhrmann-movie-moments-that-are-beautifully-romantic/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Baz Luhrmann Movie Moments That Are Beautifully Romantic ...
@@ -50,15 +50,15 @@ Nobody does a bit of romance or death quite like Baz Luhrmann. In fact, nobody d
 
 ## Related Posts
 
-- [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
-- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
-- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
-- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
 - [killer birds movie](https://movies.allwomenstalk.com/terrifying-movies-where-the-killers-arent-human/)
-- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
+- [the originals fmovies](https://movies.allwomenstalk.com/movie-remakes-that-absolutely-overshadowed-the-originals/)
+- [shindlers list movie](https://movies.allwomenstalk.com/greatest-movie-scenes-the-world-will-never-tire-of/)
+- [marilyn monroe movies about](https://movies.allwomenstalk.com/marilyn-monroe-movies-that-you-must-see/)
 - [musicals based on films](https://movies.allwomenstalk.com/movies-that-turned-into-musicals/)
-- [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
 - [seven cringe movie](https://movies.allwomenstalk.com/of-the-worst-movies-of-that-will-make-you-cringe/)
+- [movies with heart](https://movies.allwomenstalk.com/tragic-movies-that-will-break-your-heart/)
+- [drop dead diva netflix](https://movies.allwomenstalk.com/exciting-shows-to-watch-on-netflix/)
+- [the best movie musicals](https://movies.allwomenstalk.com/best-movie-musicals-to-boost-your-mood/)
 - [film depardieu](https://movies.allwomenstalk.com/gerard-depardieu-movies-to-make-you-go-oh-la-la/)
 - [Top 9 Movie Kisses ...](https://7fun.net/my-top-9-movie-kisses/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)

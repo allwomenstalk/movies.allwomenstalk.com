@@ -1,9 +1,9 @@
 ---
 title: "11 80's Movies Everyone Should See ..."
-description: "The Breakfast Club (1985); Pretty in Pink (1986); Sixteen Candles (1984); Some Kind of Wonderful (1987); St. Elmo's Fire (1985); More ..."
+description: "The Breakfast Club (1985); Pretty in Pink (1986); Sixteen Candles (1984); Some Kind of Wonderful (1987); St. Elmo's Fire (1985)"
 url: "https://movies.allwomenstalk.com/80s-movies-everyone-should-see/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 11 80's Movies Everyone Should See ...
@@ -60,16 +60,16 @@ How many of these movies have you seen? Do you have any you'd want to add to thi
 
 ## Related Posts
 
-- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
-- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
-- [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
-- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
+- [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
 - [rainy days movie](https://movies.allwomenstalk.com/movies-for-a-rainy-day/)
-- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
-- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [the mentors movie](https://movies.allwomenstalk.com/top-movie-mentors/)
 - [disney movies with sequels](https://movies.allwomenstalk.com/dreadful-disney-sequels/)
 - [why are there so many remakes](https://movies.allwomenstalk.com/reasons-why-its-time-to-stop-movie-remakes/)
-- [unusual movies](https://movies.allwomenstalk.com/most-unusual-movies-of/)
+- [netflix caught out](https://movies.allwomenstalk.com/tv-shows-on-netflix-to-catch-up-on/)
+- [best musical autobiographies](https://lifestyle.allwomenstalk.com/interesting-musical-biographies/)
+- [walker hayes jawline](https://movies.allwomenstalk.com/top-superhero-movies/)
+- [movies related to international relations](https://movies.allwomenstalk.com/movies-about-international-politics/)
+- [romance movies france](https://movies.allwomenstalk.com/french-films-about-love/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 

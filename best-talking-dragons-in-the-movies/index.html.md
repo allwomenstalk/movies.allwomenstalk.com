@@ -1,9 +1,9 @@
 ---
 title: "7 Best Talking Dragons in the Movies ..."
-description: "Falkor the Luck Dragon; Draco; Smaug; Elliot; Saphira; More ..."
+description: "Falkor the Luck Dragon; Draco; Smaug; Elliot; Saphira"
 url: "https://movies.allwomenstalk.com/best-talking-dragons-in-the-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Best Talking Dragons in the Movies ...
@@ -44,14 +44,14 @@ There are some amazing dragons in the movies – like the one the Potter kids es
 
 - [international movies to watch](https://movies.allwomenstalk.com/reasons-to-watch-foreign-films/)
 - [best dads in movies](https://movies.allwomenstalk.com/greatest-movie-dads-that-you-cant-help-but-love/)
-- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
-- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
-- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
-- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
 - [spoofing movies](https://movies.allwomenstalk.com/horrifyingly-hilarious-spoof-movies/)
-- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
-- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
 - [the dhamma brothers trailer](https://movies.allwomenstalk.com/documentaries-on-netflix-you-will-love/)
+- [movie with dustin hoffman](https://movies.allwomenstalk.com/dustin-hoffman-movies-that-show-his-greatness/)
+- [robin hood movies list](https://movies.allwomenstalk.com/movies-about-robin-hood-through-the-decades/)
+- [laugh out loud movie](https://movies.allwomenstalk.com/movies-that-will-make-you-laugh-out-loud/)
+- [books based off movies](https://movies.allwomenstalk.com/movies-that-are-based-on-books/)
+- [timeless on netflix](https://movies.allwomenstalk.com/timeless-films-to-add-to-your-netflix-playlist/)
+- [films set in victorian era](https://movies.allwomenstalk.com/movies-set-in-victorian-times/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [7 Worst Movies Ever ...](https://movies.allwomenstalk.com/7-worst-movies-ever/)
 

@@ -1,9 +1,9 @@
 ---
 title: "9 Groovy 60s Films to Watch ..."
-description: "Barbarella; Head; Blow up; Dr Strangelove; The Producers; More ..."
+description: "Barbarella; Head; Blow up; Dr Strangelove; The Producers"
 url: "https://movies.allwomenstalk.com/groovy-60s-films-to-watch/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Groovy 60s Films to Watch ...
@@ -77,16 +77,16 @@ There are so many **60s movies to watch,** so here I´ve given you just a select
 
 ## Related Posts
 
-- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
 - [famous movies set in paris](https://movies.allwomenstalk.com/movies-that-will-make-you-want-to-visit-paris/)
-- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
 - [dramatic bollywood movies](https://movies.allwomenstalk.com/top-beautifully-made-bollywood-films/)
+- [love classic movies](https://allwomenstalk.com/10-most-romantic-movies/)
 - [inspired by a true story movies](https://movies.allwomenstalk.com/great-movies-inspired-by-true-stories/)
-- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
 - [top most expensive movies](https://movies.allwomenstalk.com/the-most-expensive-movies-ever-made/)
-- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [love movie scene](https://allwomenstalk.com/sexy-you-sexiest-movie-love-scenes/)
 - [top recent romantic movies](https://allwomenstalk.com/top-20-recent-romantic-movies/)
+- [best john waters movies](https://movies.allwomenstalk.com/completely-inappropriate-john-waters-movies/)
+- [top ten movies for kids](https://movies.allwomenstalk.com/best-movies-for-kids-ever/)
+- [alfred hitchcock movie titles](https://movies.allwomenstalk.com/amazing-alfred-hitchcock-movies/)
 - [9 Black and White Flicks You Should See ...](https://movies.allwomenstalk.com/black-and-white-flicks-you-should-see/)
 - [7 Totally Tubular 80s Flicks ...](https://movies.allwomenstalk.com/totally-tubular-80s-flicks/)
 

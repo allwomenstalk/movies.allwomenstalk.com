@@ -1,9 +1,9 @@
 ---
 title: "7 Great Natalie Portman Movies ..."
-description: "Leon: the Professional...; Anywhere but Here...; Where the Heart is...; Garden State...; Closer...; More ..."
+description: "Leon: the Professional...; Anywhere but Here...; Where the Heart is...; Garden State...; Closer..."
 url: "https://movies.allwomenstalk.com/great-natalie-portman-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Great Natalie Portman Movies ...
@@ -62,15 +62,15 @@ What Natalie Portman movie is your favorite? Are there any Natalie Portman movie
 ## Related Posts
 
 - [tv shows with hugo weaving](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
+- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
+- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
+- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
+- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
+- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
+- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
+- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
 - [best action trilogies](https://movies.allwomenstalk.com/popular-film-trilogies/)
 - [animated comedy movies for adults](https://movies.allwomenstalk.com/animated-movies-that-appeal-to-adults/)
-- [surprise visit quotes](https://movies.allwomenstalk.com/famously-fumbled-movie-quotes-that-will-surprise-you/)
-- [movies that are based on shakespeare plays](https://movies.allwomenstalk.com/modern-movies-inspired-by-the-works-of-shakespeare/)
-- [the horrid husband movie](https://movies.allwomenstalk.com/terrible-movie-husbands-were-glad-we-didnt-marry/)
-- [sad indie films](https://movies.allwomenstalk.com/lovely-indie-tearjerker-flicks-you-need-to-watch/)
-- [franco brothers movies](https://celebs.allwomenstalk.com/fantastic-franco-films-that-you-should-watch/)
-- [best movie props of all time](https://movies.allwomenstalk.com/great-movie-props-anyone-would-love-to-own/)
-- [romantic movies](https://movies.allwomenstalk.com/sexy-movie-kisses-you-have-to-see/)
 - [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
 - [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
 

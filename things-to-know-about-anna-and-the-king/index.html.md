@@ -1,9 +1,9 @@
 ---
 title: "7 Things to Know about Anna and the King ..."
-description: "Not a Romance; Not Just a Teacher; Western King; Anna’s past; Mongkut the Monk; More ..."
+description: "Not a Romance; Not Just a Teacher; Western King; Anna’s past; Mongkut the Monk"
 url: "https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Things to Know about Anna and the King ...
@@ -44,16 +44,16 @@ The story of Anna and the King is fascinating. While the movie was wonderful, th
 
 ## Related Posts
 
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
-- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
 - [belle casting](https://celebs.allwomenstalk.com/things-you-didnt-know-about-the-cast-of-belle/)
 - [pacific trash vortex satellite](https://travel.allwomenstalk.com/things-you-should-know-about-the-pacific-trash-vortex/)
-- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
-- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
 - [strange creatures of the sea](https://lifestyle.allwomenstalk.com/strange-ocean-creatures-youve-never-heard-of/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
+- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
 - [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
 - [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
 - [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
+- [monopoly game facts](https://lifestyle.allwomenstalk.com/fun-facts-about-monopoly/)
+- [moulin rouge facts](https://travel.allwomenstalk.com/interesting-facts-about-paris-moulin-rouge/)
 - [5 Facts on Bella Swan ...](https://twilight.allwomenstalk.com/5-facts-on-bella-swan/)
 - [5 Facts on Twilight ...](https://twilight.allwomenstalk.com/5-facts-on-twilight/)
 

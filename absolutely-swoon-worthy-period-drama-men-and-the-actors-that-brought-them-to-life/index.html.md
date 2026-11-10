@@ -1,9 +1,9 @@
 ---
 title: "7 Absolutely Swoon-Worthy Period Drama Men and the Actors That Brought Them to Life ..."
-description: "Colin Firth: Mr. Darcy, Pride and Prejudice; JJ Feild: Mr. Tilney, Northanger Abbey; Rupert Penry-Jones: Captain Wentworth, Persuasion; Matthew Macfadyen: Arthur Clennam, Little Dorrit; Richard Armitage: Mr. Thornton, North & South; More ..."
+description: "Colin Firth: Mr. Darcy, Pride and Prejudice; JJ Feild: Mr. Tilney, Northanger Abbey; Rupert Penry-Jones: Captain Wentworth, Persuasion"
 url: "https://movies.allwomenstalk.com/absolutely-swoon-worthy-period-drama-men-and-the-actors-that-brought-them-to-life/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Absolutely Swoon\-Worthy Period Drama Men and the Actors That Brought Them to Life ...
@@ -68,15 +68,15 @@ Well ladies, these are the period men and actors that I find absolutely swoon wo
 
 ## Related Posts
 
-- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
-- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
 - [things children are afraid of](https://lifestyle.allwomenstalk.com/things-that-scared-us-all-as-kids/)
-- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
-- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
-- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
-- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
 - [minions cartoon characters](https://movies.allwomenstalk.com/cutest-cartoon-characters-we-all-tend-to-like/)
+- [guilty pleasure netflix](https://movies.allwomenstalk.com/guilty-pleasure-reality-shows-we-cant-resist/)
+- [doctors serial](https://health.allwomenstalk.com/seemingly-normal-doctors-who-were-serial-killers/)
 - [miley cyrus inappropriate](https://celebs.allwomenstalk.com/craziest-miley-cyrus-moments-that-never-cease-to-amuse-us/)
+- [once upon a time medusa](https://movies.allwomenstalk.com/awesome-disney-characters-who-should-appear-on-once-upon-a-time/)
+- [tv shows science](https://movies.allwomenstalk.com/mind-boggling-science-fiction-tv-shows-youll-definitely-enjoy/)
+- [famous song](https://music.allwomenstalk.com/phenomenal-performances-featuring-jimmy-fallon-and-the-roots/)
+- [how to find college parties](https://lifestyle.allwomenstalk.com/of-the-craziest-college-parties-around-the-country/)
 - [characters named sue](https://books.allwomenstalk.com/literary-characters-we-all-would-die-to-meet-in-real-life/)
 - [7 Hottest on-Screen Heroes of All Times ...](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)

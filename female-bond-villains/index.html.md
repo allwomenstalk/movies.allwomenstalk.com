@@ -1,9 +1,9 @@
 ---
 title: "8 Female Bond Villains ..."
-description: "Pussy Galore; Mayday; Fatima Blush; Octopussy; Elektra King; More ..."
+description: "Pussy Galore; Mayday; Fatima Blush; Octopussy; Elektra King"
 url: "https://movies.allwomenstalk.com/female-bond-villains/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Female Bond Villains ...
@@ -68,16 +68,16 @@ And the moral of the story is, if you want be a fencing, poisoning, murdering, h
 
 ## Related Posts
 
-- [7 Best Multivitamins for Women ...](https://health.allwomenstalk.com/best-multivitamins-for-women/)
-- [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
-- [classic actresses](https://celebs.allwomenstalk.com/8-of-my-favorite-classic-actresses/)
-- [most beautiful royal princess](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
 - [notorious women](https://celebs.allwomenstalk.com/8-notorious-women/)
+- [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
 - [well known black actresses](https://celebs.allwomenstalk.com/7-wonderful-black-actresses/)
-- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
-- [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
-- [leading ladies list](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [what did marion donovan invent](https://lifestyle.allwomenstalk.com/things-women-invented-first/)
+- [good shows for girls](https://lifestyle.allwomenstalk.com/great-tv-shows-for-women/)
+- [most beautiful royal princess](https://celebs.allwomenstalk.com/famous-princesses-throughout-history/)
+- [7 Best Multivitamins for Women ...](https://health.allwomenstalk.com/best-multivitamins-for-women/)
+- [classic actresses](https://celebs.allwomenstalk.com/8-of-my-favorite-classic-actresses/)
+- [debbi fields bikini](https://lifestyle.allwomenstalk.com/brilliant-female-entrepreneurs/)
+- [leading ladies list](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [5 Sexy Vampires ...](https://twilight.allwomenstalk.com/5-sexy-vampires/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 

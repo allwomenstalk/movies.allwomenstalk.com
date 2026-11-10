@@ -1,9 +1,9 @@
 ---
 title: "7 Movies That Inspired Real Life Crimes ..."
-description: "Saw; Fight Club; Dexter; The Dark Knight; Scream; More ..."
+description: "Saw; Fight Club; Dexter; The Dark Knight; Scream"
 url: "https://movies.allwomenstalk.com/movies-that-inspired-real-life-crimes/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Movies That Inspired Real Life Crimes ...
@@ -44,16 +44,16 @@ Sources: [dailymail.co.uk](https://www.dailymail.co.uk/news/article-2108053/Kill
 
 ## Related Posts
 
-- [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
-- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
-- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
-- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
-- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
 - [documentaries like the secret](https://movies.allwomenstalk.com/thought-provoking-documentaries-to-check-out-on-netflix/)
 - [watch funny movie](https://movies.allwomenstalk.com/movies-to-watch-when-youre-looking-to-pee-your-pants-from-laughter/)
-- [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
-- [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
 - [outlet.naiston glorious](https://movies.allwomenstalk.com/movies-thatll-give-you-the-perfect-outlet-for-your-pms-outbursts/)
+- [inspiring romance movies](https://movies.allwomenstalk.com/inspiring-movies-about-love-based-on-true-life-events/)
+- [best thanksgiving.movies](https://movies.allwomenstalk.com/the-best-thanksgiving-movies-for-people-who-need-to-get-in-the-mood/)
+- [top ten saddest movies](https://movies.allwomenstalk.com/the-saddest-movies-of/)
+- [movies to make you smile](https://movies.allwomenstalk.com/these-are-the-funniest-movies-to-put-a-smile-on-your-face/)
+- [romantic obsession movies on netflix](https://movies.allwomenstalk.com/must-watch-movies-for-girls-who-want-dark-ominous-love-stories/)
+- [movies for knowledge](https://movies.allwomenstalk.com/movies-to-watch-if-you-want-to-increase-your-intelligence/)
+- [cheesy christmas romance movies](https://movies.allwomenstalk.com/cheesy-holiday-movies-to-get-you-excited-for-xmas/)
 - [7 Shockingly True Crime Documentaries ...](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
 - [7 Best Movie Spies ...](https://allwomenstalk.com/7-best-movie-spies/)
 

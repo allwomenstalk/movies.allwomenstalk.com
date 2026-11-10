@@ -1,9 +1,9 @@
 ---
 title: "7 Crossdressing Female Roles Played by Male Actors ..."
-description: "Miss Fritton (St Trinians); Edna Turnblad (Hairspray); Queen Elizabeth I (Orlando); Agatha D'Ascoyne (Kind Hearts and Coronets); Olivia (Twelfth Night); More ..."
+description: "Miss Fritton (St Trinians); Edna Turnblad (Hairspray); Queen Elizabeth I (Orlando); Agatha D'Ascoyne (Kind Hearts and Coronets); Olivia (Twelfth Night)"
 url: "https://movies.allwomenstalk.com/crossdressing-female-roles-played-by-male-actors/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Crossdressing Female Roles Played by Male Actors ...
@@ -42,16 +42,16 @@ These roles are all definitely female characters. There are also plenty of 'men 
 
 ## Related Posts
 
-- [levina teerlinc artwork](https://lifestyle.allwomenstalk.com/women-artists-who-deserve-more-acclaim/)
-- [take the money and run banksy](https://lifestyle.allwomenstalk.com/women-street-artists-who-give-banksy-a-run-for-his-money/)
-- [feminist zines](https://lifestyle.allwomenstalk.com/feminst-zines-you-need-to-check-out/)
-- [female singers 2014](https://music.allwomenstalk.com/the-most-streamed-female-artists-on-spotify-in/)
-- [movies about goddesses](https://lifestyle.allwomenstalk.com/badass-ancient-goddesses-tougher-than-angelina-jolies-movie-characters/)
-- [independent woman movie](https://movies.allwomenstalk.com/movies-about-independent-women-thatll-inspire-you/)
-- [womens black denim dress](https://fashion.allwomenstalk.com/women-rocking-the-denim-dress/)
 - [emily ratajkowski israel](https://celebs.allwomenstalk.com/these-women-put-the-super-in-supermodel/)
 - [ashley buzzfeed](https://apps.allwomenstalk.com/funny-women-on-twitter-you-should-be-following/)
+- [feminist zines](https://lifestyle.allwomenstalk.com/feminst-zines-you-need-to-check-out/)
+- [movies about goddesses](https://lifestyle.allwomenstalk.com/badass-ancient-goddesses-tougher-than-angelina-jolies-movie-characters/)
+- [womens black denim dress](https://fashion.allwomenstalk.com/women-rocking-the-denim-dress/)
+- [female singers 2014](https://music.allwomenstalk.com/the-most-streamed-female-artists-on-spotify-in/)
 - [inspirational fictional characters](https://inspiration.allwomenstalk.com/fictional-female-characters-to-gain-inspiration-from/)
+- [take the money and run banksy](https://lifestyle.allwomenstalk.com/women-street-artists-who-give-banksy-a-run-for-his-money/)
+- [levina teerlinc artwork](https://lifestyle.allwomenstalk.com/women-artists-who-deserve-more-acclaim/)
+- [independent woman movie](https://movies.allwomenstalk.com/movies-about-independent-women-thatll-inspire-you/)
 - [7 Iconic Movies Roles That Were Almost Played by O...](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
 - [8 Best Actresses in a Romantic Role ...](https://movies.allwomenstalk.com/8-best-actresses-in-a-romantic-role/)
 

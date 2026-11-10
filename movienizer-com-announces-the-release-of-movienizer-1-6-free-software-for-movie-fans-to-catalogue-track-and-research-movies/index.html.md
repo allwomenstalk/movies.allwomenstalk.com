@@ -1,9 +1,9 @@
 ---
 title: "Movienizer.com Announces the Release of Movienizer 1.6, Free Software for Movie Fans to Catalogue, Track and Research Movies"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "(PRWEB) April 24, 2008 (PRWEB) Movienizer is an advanced movie organizer that keeps all information about movies and videos in one place. It can use powerful…"
 url: "https://movies.allwomenstalk.com/movienizer-com-announces-the-release-of-movienizer-1-6-free-software-for-movie-fans-to-catalogue-track-and-research-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Movienizer.com Announces the Release of Movienizer 1.6, Free Software for Movie Fans to Catalogue, Track and Research Movies

@@ -1,9 +1,9 @@
 ---
 title: "7 British Sketch Shows That Will Get You Laughing ..."
-description: "Little Britain; Smack the Pony; Goodness Gracious Me; French and Saunders; Not the Nine O Clock News; More ..."
+description: "Little Britain; Smack the Pony; Goodness Gracious Me; French and Saunders; Not the Nine O Clock News"
 url: "https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 British Sketch Shows That Will Get You Laughing ...
@@ -42,16 +42,16 @@ There are so many British sketch shows you can catch on YK TV, American cable, N
 
 ## Related Posts
 
-- [high iq tv series](https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/)
-- [andrew davies: rewriting the classics](https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/)
-- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
-- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
 - [robin williams sad movies](https://movies.allwomenstalk.com/most-memorable-characters-played-by-robin-williams/)
-- [old disney cartoons shows](https://movies.allwomenstalk.com/old-disney-tv-shows-that-i-wish-came-back/)
 - [girl meets world free online](https://movies.allwomenstalk.com/ways-girl-meets-world-is-living-up-to-boy-meets-world/)
-- [which of celestina's biggest hits speaks to you th...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
-- [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
+- [shonda rhimes how to get away](https://movies.allwomenstalk.com/shonda-rhimes-hot-cast-teaches-us-how-to-get-away-with-murder/)
+- [andrew davies: rewriting the classics](https://movies.allwomenstalk.com/excellent-adaptations-by-andrew-davies/)
 - [improv everywhere](https://funny.allwomenstalk.com/improv-everywhere-missions-that-caused-scenes/)
+- [which of celestina's biggest hits speaks to you th...](https://lifestyle.allwomenstalk.com/fresh-harry-potter-news-finally/)
+- [high iq tv series](https://movies.allwomenstalk.com/tv-shows-that-will-make-you-smarter/)
+- [17 cartoons not for children](https://movies.allwomenstalk.com/great-cartoons-that-are-not-for-kids/)
+- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
+- [old disney cartoons shows](https://movies.allwomenstalk.com/old-disney-tv-shows-that-i-wish-came-back/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Amazing Satirists ...](https://allwomenstalk.com/7-amazing-satirists/)
 

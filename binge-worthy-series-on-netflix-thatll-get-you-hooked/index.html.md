@@ -1,9 +1,9 @@
 ---
 title: "7 Binge-Worthy Series on Netflix That'll Get You Hooked ..."
-description: "Prison Break; Lost; Orange is the New Black; Scrubs; The Office; More ..."
+description: "Prison Break; Lost; Orange is the New Black; Scrubs; The Office"
 url: "https://movies.allwomenstalk.com/binge-worthy-series-on-netflix-thatll-get-you-hooked/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Binge\-Worthy Series on Netflix That'll Get You Hooked ...
@@ -57,15 +57,15 @@ That sums up my list for binge-worthy series on Netflix. I know there’s a lot 
 ## Related Posts
 
 - [wish i could](https://movies.allwomenstalk.com/exciting-movies-you-wish-could-happen-in-real-life/)
-- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
-- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
-- [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
-- [is moon embracing the sun worth watching](https://movies.allwomenstalk.com/popular-korean-dramas-youll-have-a-blast-watching/)
 - [audrey hepburn casablanca](https://movies.allwomenstalk.com/classic-movie-actors-that-youve-got-to-check-out/)
 - [best romantic action movies](https://movies.allwomenstalk.com/action-movies-both-you-and-your-boyfriend-will-love/)
+- [what movie will make you cry](https://movies.allwomenstalk.com/movies-thatll-make-you-cry-every-single-time/)
+- [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
+- [is moon embracing the sun worth watching](https://movies.allwomenstalk.com/popular-korean-dramas-youll-have-a-blast-watching/)
 - [new years eve movie online](https://movies.allwomenstalk.com/fun-movies-to-watch-this-new-years-eve/)
 - [movies with katherine heigl in them](https://movies.allwomenstalk.com/awesome-katherine-heigl-movies-to-watch-with-your-gal-pals/)
-- [wanderlust bloopers](https://movies.allwomenstalk.com/movies-with-hilarious-blooper-reels-i-cant-get-enough-of/)
+- [saddest movies deaths](https://movies.allwomenstalk.com/depressing-deaths-from-animated-movies-that-wrecked-your-childhood/)
+- [movies to watch for teenagers](https://movies.allwomenstalk.com/teen-movies-every-girl-should-see-at-least-once/)
 - [7 TV Shows That Everyone Should Be Watching ...](https://movies.allwomenstalk.com/tv-shows-that-everyone-should-be-watching/)
 - [7 Completed TV Series to Stream Instantly on Netfl...](https://movies.allwomenstalk.com/completed-tv-series-to-stream-instantly-on-netflix/)
 

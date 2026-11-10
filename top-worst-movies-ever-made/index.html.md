@@ -1,9 +1,9 @@
 ---
 title: "Top 8 Worst Movies Ever Made ..."
-description: "Plan 9 from Outer Space; The Matrix 2 & 3; Spiderman 3; Southland Tales; White Chicks; More ..."
+description: "Plan 9 from Outer Space; The Matrix 2 & 3; Spiderman 3; Southland Tales; White Chicks"
 url: "https://movies.allwomenstalk.com/top-worst-movies-ever-made/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Top 8 Worst Movies Ever Made ...
@@ -48,16 +48,16 @@ Top Photo Credit: [weheartit.com](https://weheartit.com/entry/12408896)
 
 ## Related Posts
 
-- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
-- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
-- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
-- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
-- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
-- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 - [good war movies](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
-- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [treason movies](https://movies.allwomenstalk.com/movies-about-betrayal-2/)
+- [what to watch with friends](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
 - [barbara kingsolver movies](https://movies.allwomenstalk.com/books-that-should-be-movies/)
+- [chick flicks, best chick flicks](https://movies.allwomenstalk.com/good-chic-flicks-that-i-love/)
+- [best old british films](https://movies.allwomenstalk.com/classic-british-movies/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
+- [kevin soacey films](https://movies.allwomenstalk.com/great-kevin-spacey-movies/)
+- [movies that shouldn't be remade](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
+- [best remakes movies](https://movies.allwomenstalk.com/7-awesome-hollywood-remakes/)
 - [8 Most Evil Movie Villains of All Time ...](https://movies.allwomenstalk.com/8-most-evil-movie-villains-of-all-time/)
 - [8 Classic Movies Everyone Should See ...](https://movies.allwomenstalk.com/8-classic-movies-everyone-should-see/)
 

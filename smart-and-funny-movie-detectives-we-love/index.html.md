@@ -1,9 +1,9 @@
 ---
 title: "8 Smart and Funny Movie Detectives We Love ..."
-description: "Sherlock Holmes from Sherlock Holmes; J.J. Gittes from Chinatown; Jacques Clouseau from the Pink Panther; Philip Marlowe from the Big Sleep; Jimmy Doyle from the French Connection; More ..."
+description: "Sherlock Holmes from Sherlock Holmes; J.J. Gittes from Chinatown; Jacques Clouseau from the Pink Panther; Philip Marlowe from the Big Sleep"
 url: "https://movies.allwomenstalk.com/smart-and-funny-movie-detectives-we-love/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Smart and Funny Movie Detectives We Love ...
@@ -48,16 +48,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/28639178)
 
 ## Related Posts
 
-- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
-- [nice movies to watch with your boyfriend](https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/)
-- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
-- [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
-- [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
-- [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
-- [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
-- [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
-- [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
 - [will ferrell ricky bobby quotes](https://movies.allwomenstalk.com/best-movie-quotes-from-will-ferrell/)
+- [movies with unexpected endings](https://movies.allwomenstalk.com/movies-with-endings-that-leave-you-speechless/)
+- [movies with witchcraft and magic](https://movies.allwomenstalk.com/magical-movies-about-witchcraft/)
+- [comedy movie british](https://movies.allwomenstalk.com/top-british-crime-comedy-movies/)
+- [best chick flick of all time](https://movies.allwomenstalk.com/fabulous-chick-flicks-to-watch-during-sleepovers/)
+- [classic movie remakes](https://movies.allwomenstalk.com/upcoming-movie-remakes-that-might-be-really-great/)
+- [brad pitt gypsy boxer movie](https://movies.allwomenstalk.com/top-8-brad-pitt-movies/)
+- [movie about breakup](https://movies.allwomenstalk.com/best-movies-to-watch-after-a-breakup/)
+- [nice movies to watch with your boyfriend](https://movies.allwomenstalk.com/love-movies-to-watch-with-your-boyfriend/)
+- [the mature girl is back again.. the new movie is i...](https://movies.allwomenstalk.com/movies-sure-to-make-you-cry/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 - [9 Random Movie Characters I Adore ...](https://movies.allwomenstalk.com/random-movie-characters-i-adore/)
 

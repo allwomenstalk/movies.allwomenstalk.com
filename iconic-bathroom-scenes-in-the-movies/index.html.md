@@ -1,9 +1,9 @@
 ---
 title: "7 Iconic Bathroom Scenes in the Movies ..."
-description: "Psycho; Pretty Woman; Trainspotting; American Beauty; What Lies beneath; More ..."
+description: "Psycho; Pretty Woman; Trainspotting; American Beauty; What Lies beneath"
 url: "https://movies.allwomenstalk.com/iconic-bathroom-scenes-in-the-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Iconic Bathroom Scenes in the Movies ...
@@ -56,16 +56,16 @@ Did you know so much goes on in movie bathrooms? Do you have any favorite movie 
 
 ## Related Posts
 
-- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
-- [goofy christmas children & family films](https://movies.allwomenstalk.com/hilarious-holiday-movies-to-watch-with-the-family/)
-- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
-- [interstellee](https://movies.allwomenstalk.com/movies-that-rocked/)
-- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
-- [movies that motivate you](https://movies.allwomenstalk.com/movies-that-will-boost-your-energy/)
 - [holiday chick](https://movies.allwomenstalk.com/best-holiday-chick-flicks/)
+- [pp2 movie](https://movies.allwomenstalk.com/things-you-need-to-know-about-pitch-perfect-2/)
+- [netflix shall we dance](https://movies.allwomenstalk.com/awesome-movies-that-are-coming-to-leaving-netflix-in-january/)
+- [binge watch free movies](https://movies.allwomenstalk.com/movies-and-tv-show-to-binge-watch-during-your-christmas-break/)
 - [the santa clause villains](https://movies.allwomenstalk.com/dastardly-christmas-movie-villains/)
 - [great performers: 9 kisses](https://celebs.allwomenstalk.com/kiss-me-you-fool-the-years-best-actors-in-intimate-kisses/)
+- [movies that motivate you](https://movies.allwomenstalk.com/movies-that-will-boost-your-energy/)
+- [goofy christmas children & family films](https://movies.allwomenstalk.com/hilarious-holiday-movies-to-watch-with-the-family/)
 - [truck chases car movie](https://movies.allwomenstalk.com/thrilling-car-chases-in-the-movies/)
+- [interstellee](https://movies.allwomenstalk.com/movies-that-rocked/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)
 

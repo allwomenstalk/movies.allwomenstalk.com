@@ -1,9 +1,9 @@
 ---
 title: "7 Books That Should Be Movies ..."
-description: "Under the Dome by Stephen King; Notting Hell by Rachel Johnson; The Poisonwood Bible by Barbara Kingsolver; Good Omens by Terry Pratchett and Neil Gaiman; The Physick Book of Deliverance Dane by Katherine Howe; More ..."
+description: "Under the Dome by Stephen King; Notting Hell by Rachel Johnson; The Poisonwood Bible by Barbara Kingsolver; Good Omens by Terry Pratchett and Neil Gaiman"
 url: "https://movies.allwomenstalk.com/books-that-should-be-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Books That Should Be Movies ...
@@ -63,16 +63,16 @@ These are definitely **books that should be movies**, I think. In the right hand
 
 ## Related Posts
 
-- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
-- [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
 - [funny the movie](https://movies.allwomenstalk.com/funniest-movie-dialogues/)
 - [common movie](https://movies.allwomenstalk.com/19-common-misconceptions-from-movies/)
-- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
-- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
-- [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
-- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [gripping movies](https://movies.allwomenstalk.com/gripping-legal-movies/)
+- [funny movies 2011](https://movies.allwomenstalk.com/top-romantic-comedies-of-2011/)
+- [movies for girls nights](https://movies.allwomenstalk.com/7-best-movies-for-a-girls-night-in/)
+- [best summer movies](https://movies.allwomenstalk.com/best-summer-movies/)
 - [select the correct answer. identify the place show...](https://movies.allwomenstalk.com/top-10-lines-from-the-movies/)
+- [7 New Movies Worth Checking out ...](https://movies.allwomenstalk.com/7-new-movies-worth-checking-out/)
+- [hilarious new movies](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
+- [action movies in 2010](https://movies.allwomenstalk.com/best-action-movies-of/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [7 Movies That Shouldn't Be Remade ...](https://movies.allwomenstalk.com/movies-that-shouldnt-be-remade/)
 

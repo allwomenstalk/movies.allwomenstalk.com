@@ -1,9 +1,9 @@
 ---
 title: "7 of the Worst Directors to Work with ..."
-description: "David O. Russell; Francis Ford Coppola; Stanley Kubrick; Michael Bay; Otto Preminger; More ..."
+description: "David O. Russell; Francis Ford Coppola; Stanley Kubrick; Michael Bay; Otto Preminger"
 url: "https://movies.allwomenstalk.com/of-the-worst-directors-to-work-with/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 of the Worst Directors to Work with ...
@@ -56,16 +56,16 @@ Then again, maybe not. Some of these folks are a little heinous. I suddenly don'
 
 ## Related Posts
 
+- [the real mccoy sketch show](https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/)
+- [tales of survival](https://inspiration.allwomenstalk.com/tales-of-survival-you-wont-believe/)
+- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
+- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
 - [old disney cartoons shows](https://movies.allwomenstalk.com/old-disney-tv-shows-that-i-wish-came-back/)
 - [@love jade teen](https://lifestyle.allwomenstalk.com/mysterious-creatures-that-only-exist-in-urban-legends/)
-- [career in dancing](https://lifestyle.allwomenstalk.com/highs-and-lows-of-a-career-in-dancing/)
 - [anime for all ages](https://movies.allwomenstalk.com/anime-shows-to-enjoy-at-any-age/)
-- [unexpected nudity in movies](https://celebs.allwomenstalk.com/cases-of-embarrassing-accidental-nudity-caught-on-camera/)
-- [the real mccoy sketch show](https://movies.allwomenstalk.com/british-sketch-shows-that-will-get-you-laughing/)
 - [down east music festival](https://movies.allwomenstalk.com/things-we-learned-from-historys-down-east-dickering/)
-- [tales of survival](https://inspiration.allwomenstalk.com/tales-of-survival-you-wont-believe/)
-- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
 - [girl meets world free online](https://movies.allwomenstalk.com/ways-girl-meets-world-is-living-up-to-boy-meets-world/)
+- [funny french commercials](https://movies.allwomenstalk.com/strangest-tv-commercials-to-ever-exist/)
 - [7 Horrible Diseases ...](https://health.allwomenstalk.com/7-horrible-diseases/)
 - [7 Ways to Say No to Your Boss ...](https://lifestyle.allwomenstalk.com/ways-to-say-no-to-your-boss/)
 

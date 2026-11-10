@@ -1,9 +1,9 @@
 ---
 title: "7 Best Monster Movies ..."
-description: "Child's Play; Fright Night; Pet Sematary; Night of the Living Dead; Predator; More ..."
+description: "Child's Play; Fright Night; Pet Sematary; Night of the Living Dead; Predator"
 url: "https://movies.allwomenstalk.com/7-best-monster-movies/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Best Monster Movies ...
@@ -63,14 +63,14 @@ Very little actually scares me. These days, I'm more bothered by psychological h
 
 ## Related Posts
 
-- [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
-- [great place to watch a movie](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
-- [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
-- [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
-- [love movies 2012](https://movies.allwomenstalk.com/top-romantic-movies-of-2012/)
 - [documentaries like jesus camp](https://movies.allwomenstalk.com/to-impactful-and-insightful-documentaries/)
-- [best movie kisses](https://movies.allwomenstalk.com/best-movie-kisses/)
+- [great place to watch a movie](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
 - [best archeology movies](https://movies.allwomenstalk.com/age-defying-archaeological-movies-you-should-really-dig/)
+- [inspirational family movie](https://movies.allwomenstalk.com/inspiring-family-films/)
+- [best movie kisses](https://movies.allwomenstalk.com/best-movie-kisses/)
+- [7 Really Stupid Action Movies ...](https://movies.allwomenstalk.com/really-stupid-action-movies/)
+- [good tv shows to watcg](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
+- [love movies 2012](https://movies.allwomenstalk.com/top-romantic-movies-of-2012/)
 - [Top 10 Biggest Box Office Hits of All Time ...](https://movies.allwomenstalk.com/top-biggest-box-office-hits-of-all-time/)
 - [10 Ludicrous and Funny Horror Movies ...](https://7fun.net/ludicrous-and-funny-horror-movies/)
 - [5 Cool Werewolf Movies ...](https://twilight.allwomenstalk.com/5-cool-werewolf-movies/)

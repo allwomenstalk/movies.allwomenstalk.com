@@ -1,9 +1,9 @@
 ---
 title: "9 Movies Where the Dog is the Star ..."
-description: "101 Dalmatians; Turner and Hooch; Greyfriars Bobby; Marley and Me; Lassie Come Home; More ..."
+description: "101 Dalmatians; Turner and Hooch; Greyfriars Bobby; Marley and Me; Lassie Come Home"
 url: "https://movies.allwomenstalk.com/movies-where-the-dog-is-the-star/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Movies Where the Dog is the Star ...
@@ -59,16 +59,16 @@ What are your favorite dog movies?
 
 ## Related Posts
 
-- [family road trip movie](https://travel.allwomenstalk.com/movie-road-trips-you-can-take-in-real-life/)
-- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
-- [movie with orange car](https://movies.allwomenstalk.com/awesome-movie-cars-wed-all-love-to-drive/)
 - [comedy musical movies](https://movies.allwomenstalk.com/funny-musical-movies-that-will-keep-you-laughing/)
-- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
 - [films should watch before die](https://movies.allwomenstalk.com/movies-you-should-watch-before-you-die/)
-- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
-- [make you think movies](https://movies.allwomenstalk.com/incredible-movies-about-war-that-make-you-think/)
-- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
 - [people at movies](https://lifestyle.allwomenstalk.com/irritating-types-of-people-youll-see-at-the-movie-theater/)
+- [movie with orange car](https://movies.allwomenstalk.com/awesome-movie-cars-wed-all-love-to-drive/)
+- [movies guys like](https://movies.allwomenstalk.com/movies-guys-secretly-love-watching-with-you/)
+- [braveheart father and son](https://movies.allwomenstalk.com/movies-featuring-real-life-father-and-son/)
+- [summer camp the movie](https://movies.allwomenstalk.com/summer-camp-movies/)
+- [family road trip movie](https://travel.allwomenstalk.com/movie-road-trips-you-can-take-in-real-life/)
+- [make you think movies](https://movies.allwomenstalk.com/incredible-movies-about-war-that-make-you-think/)
+- [did jenny cheat on forrest](https://movies.allwomenstalk.com/terrible-movie-wives-who-give-marriage-a-bad-name/)
 - [7 Popular Animals in the Movies ...](https://movies.allwomenstalk.com/7-popular-animals-in-the-movies/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
 

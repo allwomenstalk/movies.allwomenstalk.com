@@ -1,9 +1,9 @@
 ---
 title: "Women of Game of Thrones We Love or Hate (Part 2 of 2) ..."
-description: "Myranda (Charlotte Hope) - Hate; Osha (Natalia Tena) and Meera Reed (Ellie Kendrick) - Love; Shae (Sibel Kekilli) - Hate; Arya Stark (Maisie Williams) - Love; Catelyn Stark (Michelle Fairley) - Love; More ..."
+description: "Myranda (Charlotte Hope) - Hate; Osha (Natalia Tena) and Meera Reed (Ellie Kendrick) - Love; Shae (Sibel Kekilli) - Hate; Arya Stark (Maisie Williams) - Love"
 url: "https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate-2/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Women of Game of Thrones We Love or Hate \(Part 2 of 2\) ...
@@ -58,16 +58,16 @@ So that is the complete list. Share in the comments which characters you love an
 
 ## Related Posts
 
-- [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
-- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
 - [branches of feminism](https://lifestyle.allwomenstalk.com/the-major-types-of-feminism/)
-- [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
-- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
-- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
 - [what is a pullow princess](https://lifestyle.allwomenstalk.com/lesbian-stereotypes/)
 - [myrcella game of thrones actress](https://movies.allwomenstalk.com/females-in-game-of-thrones-we-love-or-hate/)
+- [what makes you a strong woman](https://inspiration.allwomenstalk.com/what-makes-a-strong-woman/)
 - [joram friedman](https://books.allwomenstalk.com/foundational-female-writers-every-woman-should-know/)
+- [female immigrants](https://inspiration.allwomenstalk.com/female-immigrants-making-america-great/)
+- [lady power quotes](https://inspiration.allwomenstalk.com/girl-power-quotes/)
+- [site:allwomenstalk.com](https://music.allwomenstalk.com/divas-of-hip-hop/)
 - [woman superheroes](https://movies.allwomenstalk.com/female-superheroes-who-kick-ass/)
+- [barbie sheroes](https://inspiration.allwomenstalk.com/who-are-the-barbie-sheroes/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [A Tale of Two Women](https://allwomenstalk.com/a-tale-of-two-women/)
 

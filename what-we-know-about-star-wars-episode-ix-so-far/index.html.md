@@ -1,9 +1,9 @@
 ---
 title: "What We Know about Star Wars Episode IX so Far ..."
-description: "Release Date; Rating; Director; Plot; Carrie Fisher; More ..."
+description: "Release Date; Rating; Director; Plot; Carrie Fisher"
 url: "https://movies.allwomenstalk.com/what-we-know-about-star-wars-episode-ix-so-far/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # What We Know about Star Wars Episode IX so Far ...
@@ -40,16 +40,16 @@ And finally, the one remaining name on everyone’s lips of Kylo Ren, son of Han
 
 ## Related Posts
 
-- [twilight character names](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
-- [Revolutionary Love in the Time ⏳ of Revolutionary ...](https://inspiration.allwomenstalk.com/revolutionary-love-in-the-time-of-revolutionary-hate/)
-- [Let's End Gossip Once and for All ...](https://lifestyle.allwomenstalk.com/how-to-end-gossip-once-and-for-all/)
-- [20 Dying Professions ...](https://money.allwomenstalk.com/dying-professions/)
-- [Short Story : Attack of the Foyer ...](https://books.allwomenstalk.com/short-story-called-attack-of-the-foyer/)
-- [7 Organizations to Help Ukraine Right Now ...](https://allwomenstalk.com/organizations-help-ukraine/)
-- [ginger vampire twilight](https://twilight.allwomenstalk.com/5-cool-werewolves/)
 - [newest harry potter](https://apps.allwomenstalk.com/wizards-unite-the-newest-harry-potter-game-fans-will-be-thrilled-by/)
 - [10 Surprising Fun Facts About John Oliver and His ...](https://celebs.allwomenstalk.com/fun-facts-john-oliver-last-week-tonight/)
+- [7 Organizations to Help Ukraine Right Now ...](https://allwomenstalk.com/organizations-help-ukraine/)
+- [Revolutionary Love in the Time ⏳ of Revolutionary ...](https://inspiration.allwomenstalk.com/revolutionary-love-in-the-time-of-revolutionary-hate/)
+- [ginger vampire twilight](https://twilight.allwomenstalk.com/5-cool-werewolves/)
+- [Let's End Gossip Once and for All ...](https://lifestyle.allwomenstalk.com/how-to-end-gossip-once-and-for-all/)
+- [twilight character names](https://twilight.allwomenstalk.com/5-interesting-twilight-characters/)
+- [Short Story : Attack of the Foyer ...](https://books.allwomenstalk.com/short-story-called-attack-of-the-foyer/)
 - [monsters inside of my head](https://inspiration.allwomenstalk.com/the-monsters-in-your-head/)
+- [20 Dying Professions ...](https://money.allwomenstalk.com/dying-professions/)
 - [9 Most Iconic Super Heroes ...](https://movies.allwomenstalk.com/9-most-iconic-super-heroes/)
 - [9 Cool Movies Coming out in 2011 ...](https://allwomenstalk.com/cool-movies-coming-out-in/)
 

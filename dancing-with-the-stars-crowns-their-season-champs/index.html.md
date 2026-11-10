@@ -1,9 +1,9 @@
 ---
 title: "Season 19 of Dancing with the Stars: Here is Who Won the Mirrorball Trophy!"
-description: "The Final Four Contestants; And the Winner Is...; Finale Night Performances; More ..."
+description: "The Final Four Contestants; And the Winner Is...; Finale Night Performances"
 url: "https://movies.allwomenstalk.com/dancing-with-the-stars-crowns-their-season-champs/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Season 19 of Dancing with the Stars: Here is Who Won the Mirrorball Trophy!
@@ -43,16 +43,16 @@ Do you agree with the results? Whether you were Team Alfonso or pulling for Sadi
 
 ## Related Posts
 
-- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
+- [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
 - [emma watson white jumpsuit](https://fashion.allwomenstalk.com/red-carpet-looks-from-the-british-fashion-awards-whos-your-favorite/)
-- [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
 - [kroes rocks](https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/)
+- [kate hudson white dress](https://celebs.allwomenstalk.com/of-kate-hudsons-most-killer-red-carpet-looks/)
+- [fashion dresses 2014](https://fashion.allwomenstalk.com/ooh-la-la-here-are-the-best-red-carpet-dresses-of/)
+- [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
 - [saffron vera wang dress of michelle williams](https://fashion.allwomenstalk.com/oscar-fashions-weve-absolutely-loved-over-the-years/)
+- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
 - [2015 oscar best movie nominees](https://movies.allwomenstalk.com/whos-your-money-on-of-the-top-oscar-nominees/)
 - [araya couture studio photos](https://celebs.allwomenstalk.com/and-the-best-dressed-celebrities-at-the-cannes-film-festival-were/)
-- [oscars after party outfits](https://fashion.allwomenstalk.com/oscars-after-party-dresses-you-have-to-see/)
-- [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
-- [bafta 2015 nominations](https://movies.allwomenstalk.com/of-the-top-bafta-nominees-for/)
 - [And the Winner of American Idol 9 is ...](https://celebs.allwomenstalk.com/american-idol-finale-arrivals/)
 - [A Wide Ranging Soul Train Awards ...](https://celebs.allwomenstalk.com/a-wide-ranging-soul-train-awards/)
 

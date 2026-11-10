@@ -1,9 +1,9 @@
 ---
 title: "7 Disney Movie Spin-off Shows I Loved as a Kid ..."
-description: "“Buzz Lightyear of Star Command”; “the Legend of Tarzan”; “the Little Mermaid”; “Hercules: the Animated Series”; “Aladdin”; More ..."
+description: "“Buzz Lightyear of Star Command”; “the Legend of Tarzan”; “the Little Mermaid”; “Hercules: the Animated Series”; “Aladdin”"
 url: "https://movies.allwomenstalk.com/disney-movie-spin-off-shows-i-loved-as-a-kid/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Disney Movie Spin\-off Shows I Loved as a Kid ...
@@ -56,16 +56,16 @@ Disney movie spin-off shows were my way of following the stories of all my favor
 
 ## Related Posts
 
+- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
+- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
+- [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
+- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
+- [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
 - [when the bad guy is actually talented](https://movies.allwomenstalk.com/bad-guys-we-love-even-though-we-shouldnt/)
+- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
 - [what episode do serena and nate get together in se...](https://movies.allwomenstalk.com/memorable-gossip-girl-moments-i-will-never-get-over/)
 - [when someone you loved becomes a stranger](https://lifestyle.allwomenstalk.com/struggles-of-becoming-strangers-again/)
-- [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
-- [famous street magicians](https://celebs.allwomenstalk.com/best-magicians-who-will-boggle-your-mind/)
 - [watch usa network online](https://movies.allwomenstalk.com/usa-network-tv-shows-to-watch/)
-- [crazy news headlines](https://funny.allwomenstalk.com/real-but-crazy-newspaper-headlines/)
-- [2013 big events](https://lifestyle.allwomenstalk.com/most-memorable-things-about/)
-- [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
-- [sequels to gone with the wind](https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/)
 - [7 TV Shows That I Miss Dearly ...](https://movies.allwomenstalk.com/7-tv-shows-that-i-miss-dearly/)
 - [7 Tween Series I Read as a Kid ...](https://lifestyle.allwomenstalk.com/tween-series-i-read-as-a-kid/)
 

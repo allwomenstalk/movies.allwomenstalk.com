@@ -1,9 +1,9 @@
 ---
 title: "The 7 Best Movie Trilogies Ever ..."
-description: "The Bourne Trilogy; Toy Story; Die Hard; The Man with No Name; Indiana Jones; More ..."
+description: "The Bourne Trilogy; Toy Story; Die Hard; The Man with No Name; Indiana Jones"
 url: "https://movies.allwomenstalk.com/the-7-best-movie-trilogies-ever/"
 category: "movies"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The 7 Best Movie Trilogies Ever ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Flamenco Sun](https://www.flickr.com/photos/greenypics/491033
 
 ## Related Posts
 
-- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
-- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
-- [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
-- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
-- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
-- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
-- [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
 - [comfort movie to watch](https://movies.allwomenstalk.com/7-greatest-comfort-movies-ever/)
+- [untouchable comedies girlfriend](https://movies.allwomenstalk.com/comedies-to-watch-with-your-girlfriends/)
+- [7 Awesome Indie Movies ...](https://movies.allwomenstalk.com/7-awesome-indie-movies/)
+- [8 Amazing Musical Movies ...](https://movies.allwomenstalk.com/amazing-musical-movies/)
 - [romantic movie ever](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)
+- [my all time favorite movies](https://movies.allwomenstalk.com/my-all-time-favorite-movies/)
+- [7 Scintillating Civil War Movies ...](https://movies.allwomenstalk.com/scintillating-civil-war-movies/)
+- [movies that men like](https://movies.allwomenstalk.com/8-love-movies-guys-secretly-like/)
 - [loreal le stylo smoky always pearly pink](https://movies.allwomenstalk.com/best-sports-movies-ever-made/)
+- [7 Romantic Lines from Movies ...](https://movies.allwomenstalk.com/7-romantic-lines-from-movies/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 - [7 Best TV Shows Ever ...](https://movies.allwomenstalk.com/7-best-tv-shows-ever/)
 
