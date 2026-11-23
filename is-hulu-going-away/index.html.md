@@ -1,16 +1,16 @@
 ---
-title: "Is Hulu Going Away? What Changes on Disney+ in December 2026"
-description: "Disney is moving Hulu into the Disney+ app in December 2026, including live TV. It has not set a shutdown date for the Hulu app, and standalone Hulu is still for sale."
+title: "Will Disney Discontinue the Hulu Standalone App?"
+description: "Will Disney discontinue the Hulu standalone app? See what changes on Disney+ in December 2026 and what Disney has said about a shutdown date."
 url: "https://movies.allwomenstalk.com/is-hulu-going-away/"
 category: "movies"
 last_updated: "2026-11-23"
 ---
 
-# Is Hulu Going Away? What Changes on Disney+ in December 2026
+# Will Disney Discontinue the Hulu Standalone App?
 
-Hulu is still available in the United States, and Disney has given December 2026 as the start of a more complete Hulu experience inside Disney+. Disney’s [November shareholder letter](https://www.sec.gov/Archives/edgar/data/1744489/000174448926000065/fy2026_q4xerxex991.htm?pubDate=20261117) says that experience will include live TV and select premium add-ons. The letter gives no day in December for the rollout and no date for turning off the standalone Hulu app.
+Disney has not announced a date to discontinue the Hulu standalone app. Starting in December 2026, Disney+ will offer a more complete Hulu experience, including live TV and select premium add-ons, according to [Disney’s November shareholder letter](https://www.sec.gov/Archives/edgar/data/1744489/000174448926000065/fy2026_q4xerxex991.htm?pubDate=20261117). U.S. subscribers can still use the Hulu app.
 
-For most viewers, the practical question is where to press play. Some Hulu subscribers can already watch through Disney+ with their existing login. Others still rely on the Hulu app for a channel, add-on or title. Use the [plan-by-plan guide](#by-plan) to see which description fits your household, then check the [account and device steps](#what-to-do) before making any subscription changes.
+The [standalone app shutdown question](#shutdown) matters most if you use Hulu for a live channel, a recording or an add-on. Check the [plan-by-plan guide](#by-plan) and [account steps](#what-to-do) before switching apps or changing what you pay for.
 
 _Last updated November 23, 2026. This guide covers U.S. subscriptions._
 
@@ -51,9 +51,9 @@ A separate Disney+ subscription is not automatically necessary just because you 
 
 The Hulu section of Disney+ also is not a complete inventory of what you personally can see. Access depends on your plan, and Disney’s current consumer guide says certain titles are still available only in the Hulu app. If an episode appears on your phone in Hulu and fails to show up on the living-room TV in Disney+, search for that episode by title and compare the profile, plan and app before deciding it has left streaming. For another watch-night pick, browse these [holiday rom-coms](https://allwomenstalk.com/8-perfect-holiday-movies/).
 
-## Will the standalone Hulu app shut down?
+## When will Disney discontinue the Hulu standalone app?
 
-Disney has yet to announce a standalone Hulu app shutdown date. The December timing in the investor letter is for the unified viewing experience. It is safe to keep the current Hulu app installed while the rollout begins, especially if anyone in your household uses it for a local channel, live sports, a saved show or a paid extra.
+There is no announced shutdown date for the Hulu standalone app. December 2026 is when Disney says the expanded experience will begin on Disney+. Keep Hulu installed while you check whether your live channels, recordings and paid add-ons are available through Disney+.
 
 There is also a difference between Disney saying that live TV will be available through Disney+ and Disney detailing how it will work. If you routinely record an evening show and watch it a day later, seeing a live channel inside Disney+ only answers part of your question. Check whether you can find and play your recording first. The same goes for a favorite channel whose availability depends on your home location.
 
@@ -85,9 +85,9 @@ If part of your household mostly watches on-demand and someone else depends on a
 
 ## Frequently asked questions
 
-### Is the Hulu app going away in December 2026?
+### Is Disney discontinuing the Hulu standalone app in December 2026?
 
-Disney announced a more complete Hulu viewing experience inside Disney+ starting in December 2026. It did not give a December shutdown date for the standalone Hulu app.
+Disney has announced a December start for expanded Hulu access inside Disney+. As of November 23, it has given no date for shutting down the standalone Hulu app.
 
 ### Can I watch Hulu on Disney+ with a Hulu-only subscription?
 
